@@ -1,7 +1,7 @@
 ---
 title: "Slash Expenses in Newspaper Digitization: DL Consulting's Use of ABBYY® Software"
-date: 2024-08-19 15:32:23
-updated: 2024-08-22 11:21:43
+date: 2024-08-21T15:07:51.333Z
+updated: 2024-08-22T15:07:51.333Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3269c858221e8ab75b91d65fc2cbdc3bf0d972fb510d01ae54b3ad8d22470d02.jpg
@@ -112,6 +112,9 @@ Share  True ?  : ""
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
+<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.

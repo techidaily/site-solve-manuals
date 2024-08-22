@@ -1,7 +1,7 @@
 ---
 title: Top-Ranked Transpo Cost Control Firm Accelerates Bill Approvals via Intelligent Data Systems
-date: 2024-08-19 15:59:36
-updated: 2024-08-22 10:31:48
+date: 2024-08-21T15:07:51.053Z
+updated: 2024-08-22T15:07:51.053Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4703b9d657812b3886216df90e44b1d9ef5fb3878b6869f4909ce7c65740d3ae.jpg
@@ -54,14 +54,23 @@ AFS, a world-leader in transportation cost management, processes 70,000,000 invo
 
 ###### SEE HOW ABBYY CAN HELP
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### **2,600,000** 
 
 paper invoices a year
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### a **50**% drop
 
 of turnaround time
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### $**60,000** of
 
 annual savings
@@ -94,6 +103,10 @@ And how has FlexiCapture delivered during this hectic growth period? “Brillian
 
 [![ABBYY FlexiCapture](https://static2.abbyy.com/abbyycommedia/21380/4-flexicapture.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
+The ultimate burning program for all your needs!</a>
+<!-- affiliate ads end -->
 [read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![Transportation & Logistics](https://static5.abbyy.com/abbyycommedia/14363/13-transportation.jpg)](https://tools.techidaily.com/abbyy/products/) [Transportation](https://tools.techidaily.com/abbyy/products/) 
@@ -102,6 +115,9 @@ And how has FlexiCapture delivered during this hectic growth period? “Brillian
 
 [![PDF Version](https://static3.abbyy.com/abbyycommedia/38090/ds-260_afs-case-study_thumbnails-gray-360-162.jpg)](https://static3.abbyy.com/abbyycommedia/38077/customer-story-intelligent-document-processing-transportation-afs-en.pdf "PDF version") [PDF version](https://static3.abbyy.com/abbyycommedia/38077/customer-story-intelligent-document-processing-transportation-afs-en.pdf "PDF version") 
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<!-- affiliate ads end -->
 [read more](https://static3.abbyy.com/abbyycommedia/38077/customer-story-intelligent-document-processing-transportation-afs-en.pdf "PDF version") 
 
 ###### Like, share or repost
@@ -112,6 +128,9 @@ Share  True ?  : ""
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
+<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.

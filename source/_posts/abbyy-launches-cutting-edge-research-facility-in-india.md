@@ -1,7 +1,7 @@
 ---
 title: ABBYY Launches Cutting-Edge Research Facility in India
-date: 2024-08-21 22:34:27
-updated: 2024-08-22 12:26:34
+date: 2024-08-21T15:07:50.791Z
+updated: 2024-08-22T15:07:50.791Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/614e0e5c423fbfce776b4242bea85cadda084bd0ef851e6cf9024dcc8525ee26.jpg
@@ -61,3 +61,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<!-- affiliate ads end -->

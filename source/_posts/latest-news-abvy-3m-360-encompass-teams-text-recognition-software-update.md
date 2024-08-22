@@ -1,7 +1,7 @@
 ---
 title: "Latest News: ABVY 3M 360 Encompass Team's Text Recognition Software Update"
-date: 2024-08-21 18:42:46
-updated: 2024-08-22 11:27:53
+date: 2024-08-21T15:07:50.685Z
+updated: 2024-08-22T15:07:50.685Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e2bd7441f115d457631670c7835514cc1e1ad27ead792a165abad33ef124056a.jpg
@@ -86,3 +86,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

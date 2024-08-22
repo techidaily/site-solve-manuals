@@ -1,7 +1,7 @@
 ---
 title: "New Features and Renaming: From ABBYY Recognition Server to ABBYY FineReader Server"
-date: 2024-08-19 22:30:12
-updated: 2024-08-22 11:51:34
+date: 2024-08-21T15:07:52.190Z
+updated: 2024-08-22T15:07:52.190Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/74ac13432c01dd5c17161c9b4a52f81e0b445cdf2ff78bc2a59c4da0244a5a39.jpg
@@ -82,3 +82,7 @@ Vernetzen Sie sich mit uns
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<!-- affiliate ads end -->

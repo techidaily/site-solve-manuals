@@ -1,7 +1,7 @@
 ---
 title: Significant Milestones Reached by ABBYY in the 2019 Fiscal Year's Third Phase
-date: 2024-08-19 17:23:39
-updated: 2024-08-22 10:57:39
+date: 2024-08-21T15:07:50.068Z
+updated: 2024-08-22T15:07:50.068Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5f19d12263b1224bd46b49560f2a184a0c0f8c0d56bb43f9e5c26e9a6768a6cd.jpg
@@ -200,3 +200,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

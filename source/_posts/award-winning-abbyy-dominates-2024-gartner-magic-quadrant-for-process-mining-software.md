@@ -1,7 +1,7 @@
 ---
 title: Award-Winning ABBYY Dominates 2024 Gartner Magic Quadrant for Process Mining Software
-date: 2024-08-21 16:18:56
-updated: 2024-08-22 11:33:23
+date: 2024-08-21T15:07:50.815Z
+updated: 2024-08-22T15:07:50.815Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a15aaf86d9e6f286629da1a62d56aaff3df86baa99afaf09eec0439a28bfe3f5.jpg
@@ -39,6 +39,9 @@ GARTNER is a registered trademark and service mark, and MAGIC QUADRANT and PEER 
 
 Gartner Peer Insights content consists of the opinions of individual end users based on their own experiences with the vendors listed on the platform, should not be construed as statements of fact, nor do they represent the views of Gartner or its affiliates. Gartner does not endorse any vendor, product or service depicted in this content nor makes any warranties, expressed or implied, with respect to this content, about its accuracy or completeness, including any warranties of merchantability or fitness for a particular purpose."
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<!-- affiliate ads end -->
 ## Thank you for your interest in ABBYY.
 
 [Read the report](https://www.gartner.com/reprints/?id=1-2HU9T8IX&ct=240614&st=sb "Read the report") 

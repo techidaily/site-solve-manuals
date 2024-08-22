@@ -1,7 +1,7 @@
 ---
 title: Customized Tracking & Analytics with Cookiebot Technology
-date: 2024-08-21 21:13:13
-updated: 2024-08-22 10:59:11
+date: 2024-08-21T15:07:50.880Z
+updated: 2024-08-22T15:07:50.880Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e4beac8fff1e6ed1138983bf5a17ed77a249b1784cd0b6ce36cdaf1016dc1bb5.png
@@ -19,6 +19,9 @@ thumbnail: https://thmb.techidaily.com/e4beac8fff1e6ed1138983bf5a17ed77a249b1784
 
 昨今、企業にはデジタルトランスフォーメーション（DX）を戦略的な計画に組み込まなければならない、というプレッシャーがのしかかっています。 ローコードやノーコードの開発プラットフォームの登場は、新しいシチズンデベロッパー（市民開発者）を生み出しました。またRPAのようなテクノロジーは、多くの組織において、DXの第一歩を踏み出すきっかけとなっています。 今、企業は、より複雑で価値の高いプロセスを解き明かし、自動化することを急いでいます。 こうした重要なプロセスは顧客と関わるものであることが多く、必然的に非構造化コンテンツが流出するようになります。まさにそれらをインテリジェントに処理する必要があるのです。
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 今すぐダウンロード！
 
 このホワイトペーパーをダウンロードすれば、以下のようなテーマの情報を得ることができます。
@@ -30,12 +33,18 @@ thumbnail: https://thmb.techidaily.com/e4beac8fff1e6ed1138983bf5a17ed77a249b1784
 
 このホワイトペーパーでは、ABBYY Vantageのような次世代AI OCRがどのようにこうしたニーズを解決しているのかが紹介されています。また、市民開発者に対応し、RPAやBPMプラットフォームと統合するために、ローコード/ノーコードで使いやすい実装を行うという新しい「パラダイム」に適合していくための方法もご覧いただけます。 さらに、ABBYY Marketplaceの再利用可能なコンポーネントを新しい自動化の取り組みにすばやく活用し、短期間で目に見えるビジネス成果を達成する方法についても学ぶことができます。
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYYにご関心をお寄せいただき、誠にありがとうございます。
 
 [ホワイトペーパーを読む](https://digital.abbyy.com/hubfs/content/whitepaper-vantage-need-for-understanding-content-ja.pdf "ホワイトペーパーを読む") 
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### ご質問がおありですか？ [お気軽にABBYYにお問い合わせください。](https://tools.techidaily.com/abbyy/products/)
 
 #### Get your copy by filling in the form.

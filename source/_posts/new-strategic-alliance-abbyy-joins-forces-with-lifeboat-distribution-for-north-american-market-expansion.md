@@ -1,7 +1,7 @@
 ---
 title: "New Strategic Alliance: ABBYY Joins Forces with Lifeboat Distribution for North American Market Expansion"
-date: 2024-08-20 23:55:59
-updated: 2024-08-22 12:59:43
+date: 2024-08-21T15:07:50.405Z
+updated: 2024-08-22T15:07:50.405Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8c3061c39eb85dd875af824e1d1149fd13be54628fb79ee748ce5191efb525e2.jpg
@@ -67,3 +67,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->

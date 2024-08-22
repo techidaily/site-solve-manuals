@@ -1,7 +1,7 @@
 ---
 title: Exploring ABBYY's Cutting-Edge Solutions for Enhanced Digital Intelligence – Highlights of the Reimagine Conference as Featured on Our Official Blog
-date: 2024-08-21 10:12:33
-updated: 2024-08-22 11:36:26
+date: 2024-08-21T15:07:50.613Z
+updated: 2024-08-22T15:07:50.613Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d67db43bd99257f0af99e68e427f312b6fcddd2d0ff0d753e05a7e79c9663b0b.jpg
@@ -60,10 +60,16 @@ Find out how it can improve customer journey visibility, reduce time and manual 
 
 Visit the FlexiCapture web page for more information about the [Timeline for FlexiCapture](https://tools.techidaily.com/abbyy/products/) solution.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<!-- affiliate ads end -->
 ### **ABBYY partner ecosystem promotes hyperautomation, value for customers**
 
 ABBYY will have several technology partners share how they integrate ABBYY Digital Intelligence to achieve intelligent automation leveraging multiple tools ranging from machine learning, analytics, process mining, business intelligence, and RPA. The integrated approach promotes what Gartner refers to as hyperautomation using best-in-breed technology. Partners presenting during ABBYY Reimagine sessions include Gold sponsors EXL, Blue Prism, and Alteryx, as well as other technology partners PwC and Capitalize Analytics.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **ABBYY partners with Capitalize Analytics to deliver end-to-end process insight to achieve operational excellence**
 
 ABBYY has partnered with Capitalize Analytics, a business intelligence and consulting firm that specializes in leveraging data automation and monitorization tools to provide end-to-end process understanding of organizations’ operations. Capitalize Analytics provides consulting services to companies that leverage various platforms such as ABBYY Timeline, Tableau, Power BI, and UiPath and is an Alteryx North American Partner of the Year.
@@ -72,6 +78,9 @@ Capitalize leverages industry-leading solutions to enable companies to make bett
 
 ![digital transformation technology](https://static1.abbyy.com/abbyycommedia/32426/b-4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 During the ABBYY Reimagine Reveal session, Capitalize demonstrates using the Alteryx platform to analyze and monitor data from multiple sources. It starts with data incoming from unstructured invoices via ABBYY Vantage, customer information sourced from Salesforce, and purchase order information pulled from Microsoft Dynamics and shows how the various data can be fed into ABBYY Timeline for process understanding and also into Excel, Power BI, and Tableau Dashboard for additional analytics information.
 
 A more detailed technical demonstration will be shown during a session with ABBYY, Alteryx, and Capitalize during Day 2\. Information about combining Process Intelligence with analytics can be found at [ABBYY+Alteryx](https://tools.techidaily.com/abbyy/products/) solution page.
@@ -84,6 +93,9 @@ If you are unable to join us live, ABBYY Reimagine sessions will be available on
 
 ![Bruce Orcutt ABBYY](https://static5.abbyy.com/abbyycommedia/25719/bruceorcutt-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 Bruce Orcutt
 
 Senior Vice President of Product Marketing at ABBYY
@@ -92,6 +104,9 @@ Bruce Orcutt is a veteran Product Marketing and Product Management professional 
 
 Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

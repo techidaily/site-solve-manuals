@@ -1,7 +1,7 @@
 ---
 title: "Marlin Equity's Investment in ABBYY: Official Announcement & Press Statement"
-date: 2024-08-21 20:56:57
-updated: 2024-08-22 10:40:24
+date: 2024-08-21T15:07:50.695Z
+updated: 2024-08-22T15:07:50.695Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f7008ec86977e694421ef724a35a33c6fec32d45741490d50d66c52b24ae9074.jpg
@@ -47,10 +47,16 @@ ABBYY empowers organizations to gain a complete understanding of their business 
 
 [ABBYY](https://tools.techidaily.com/abbyy/products/) and the ABBYY Logo are either registered trademarks or trademarks of ABBYY Software Ltd. Other product names mentioned herein may be trademarks and/or registered trademarks of their respective owners and are hereby recognized.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### ABBYY Editorial Contact
 
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
+<!-- affiliate ads begin -->
+<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
+<!-- affiliate ads end -->
 #### Gina Ray, APR
 
 (949) 370-0941

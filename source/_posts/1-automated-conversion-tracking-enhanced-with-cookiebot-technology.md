@@ -1,7 +1,7 @@
 ---
 title: "1. Automated Conversion Tracking: Enhanced with Cookiebot Technology"
-date: 2024-08-21 16:13:46
-updated: 2024-08-22 10:48:10
+date: 2024-08-21T15:07:50.778Z
+updated: 2024-08-22T15:07:50.778Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b21b5439f80b1a102ace85a9da59aeae7943c3afff9ae70d9fb6a7745b13a600.jpg
@@ -95,6 +95,9 @@ Share  True ?  : ""
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.

@@ -1,7 +1,7 @@
 ---
 title: Revolutionize Your Scanning Workflow with ABBYY's OCR Software Development Kit for Precise Text Extraction and Analysis
-date: 2024-08-21 22:27:56
-updated: 2024-08-22 10:16:29
+date: 2024-08-21T15:07:52.203Z
+updated: 2024-08-22T15:07:52.203Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/965654acbd64cd762e18be6423e980e53d1c3fa7dd1512b5cfdc18b0e2b93a57.jpg
@@ -30,10 +30,16 @@ ABBYY FineReader Engine
 認識後の文書を再利用する場合や、文書の正確な再構築が必要な場合には、ここで得られた分析結果を利用して文書構造やレイアウトを再現します。 画像や図表はすべて元の形のままで維持され、画像やロゴの中に含まれるテキストは認識されません
 
   
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ### フィールドレベル認識用にブロックをマニュアル指定
 
 テキスト認識範囲をマニュアルで指定するモードです。 この場合、認識すべきフィールドを直接定義するので、自動文書分析は不要となります。 指定したフィールドの座標とプロパティについての情報が、これに続く認識工程に引き渡され、指定された部分でのみOCRが実行されます。
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ### 専門家とお話ししてみませんか？ 
 
 [デモを予約する](https://tools.techidaily.com/abbyy/products/)[お問い合わせ](https://tools.techidaily.com/abbyy/products/)

@@ -1,7 +1,7 @@
 ---
 title: Deloitte Et ABBYY Unissent Forces Pour Transformer Les Processus Opérationnels Clientiels Par L'Automatisation
-date: 2024-08-19 14:43:36
-updated: 2024-08-22 10:23:26
+date: 2024-08-21T15:07:50.295Z
+updated: 2024-08-22T15:07:50.295Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0c6d2fd1a73159563e57dda315b30eb330741092cc6760e2a82edb3563c1b5c8.jpg
@@ -37,14 +37,23 @@ Vous retrouves plus d’infos concernant la technologie d’ABBYY sur [cette pag
 
 Avec plus de 130 Partners et 2 300 employés, Deloitte Luxembourg est un des cabinets de conseil professionnels les plus importants, les plus solides et les plus anciens du Grand-Duché. Depuis plus de 70 ans, des équipes talentueuses servent des clients actifs dans des secteurs variés et offrent des services à forte valeur ajoutée à des clients nationaux et internationaux dans les domaines de l’audit et de l’assurance, du conseil, du conseil financier, du conseil en matière de risques, de la fiscalité et des services connexes. Deloitte Luxembourg fait partie du réseau mondial de Deloitte, qui est présent dans plus de 150 pays et territoires et sert quatre entreprises sur cinq du Fortune Global 500\. Découvrez comment les collaborateurs de Deloitte ont un impact sur [www.deloitte.com/lu](http://www.deloitte.com/lu).
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
+<!-- affiliate ads end -->
 ### À propos d’ABBYY
 
 ABBYY est la force motrice de l’automatisation intelligente. Nous révolutionnons la façon dont les gens travaillent et aidons les entreprises à accélérer leurs opérations en leur apportant l’intelligence qui alimente les plateformes d’automatisation. Nos solutions transforment les données d’entreprise et fournissent les informations nécessaires pour travailler plus intelligemment et plus rapidement. Basé dans les États-Unis et avec des filiales dans quinze pays, nous aidons plus de 5 000 organisations de par le monde, dont un grand nombre d’entreprises du Fortune 500, à faire des progrès au niveau de l’expérience client, la rentabilité et l’avantage concurrentiel. Pour plus d’informations, rendez-vous sur [www.abbyy.com/company/about-us](https://tools.techidaily.com/abbyy/products/) et suivez-nous sur LinkedIn, Twitter et Facebook.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Contact presse
 
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 #### Bianca Stupp
 
 _ABBYY_

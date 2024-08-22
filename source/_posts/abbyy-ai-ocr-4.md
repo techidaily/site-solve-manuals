@@ -1,7 +1,7 @@
 ---
 title: "パーソルグループの名刺管理システムにABBYY AI OCRを実装: モバイル且つ4枚まとめて高精度読み取り"
-date: 2024-08-21 12:58:55
-updated: 2024-08-22 11:15:53
+date: 2024-08-21T15:07:51.683Z
+updated: 2024-08-22T15:07:51.683Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f55494b1c8843bed72fd409a0474603bdb628f91806cf12974c661e4f3ab93d8.jpg
@@ -135,6 +135,9 @@ FlexiCaptureはさまざまな工夫を加えることにより、導入後も�
 
 [お問い合わせ](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### 専門家に相談する準備はできていますか?
 
 私たちは、自動化への取り組みをお手伝いさせていただきたいと思っています。

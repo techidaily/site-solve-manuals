@@ -1,7 +1,7 @@
 ---
 title: Comment ABBYY Renforce Sa Plateforme Timeline Avec Des Fonctionnalités Supplémentaires Pour Aider Les Entreprises À Atteindre Leurs Cibles Opérationnelles
-date: 2024-08-21 19:16:58
-updated: 2024-08-22 12:54:22
+date: 2024-08-21T15:07:50.539Z
+updated: 2024-08-22T15:07:50.539Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/9d6bb2044f5f33dd6b599b386099f3868d77bd593d3d88e2cde5996f7415935f.jpg
@@ -53,10 +53,16 @@ ABBYY est un acteur référent de l’Intelligent Process Automation. L’entrep
 
 ABBYY est une multinationale basée aux États-Unis, et dont les bureaux sont répartis au sein de 15 pays. Pour plus d’informations, veuillez consulter le site[https://www.abbyy.com/fr/](https://tools.techidaily.com/abbyy/products/).
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<!-- affiliate ads end -->
 ### Contact presse
 
 ![02E Eva Mariahufschmitt](https://static4.abbyy.com/abbyycommedia/23663/02e-eva-mariahufschmitt.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### Eva-Maria Hufschmitt
 
 _ABBYY_

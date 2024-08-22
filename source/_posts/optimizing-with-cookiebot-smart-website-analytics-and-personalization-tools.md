@@ -1,7 +1,7 @@
 ---
 title: "Optimizing with Cookiebot: Smart Website Analytics and Personalization Tools"
-date: 2024-08-21 18:12:57
-updated: 2024-08-22 10:41:28
+date: 2024-08-21T15:07:51.031Z
+updated: 2024-08-22T15:07:51.031Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/bfe527075b76486c457bb40593f28ebdf4420fa39a7d079da9e7faa5dde71ba1.jpg
@@ -53,6 +53,9 @@ After you create an AR emoji, your phone will automatically generate GIFs featur
 
 P.S. For more useful tips on using emojis, see the previous issues of this newsletter [here](https://tools.techidaily.com/abbyy/products/) and [here](https://tools.techidaily.com/abbyy/products/).
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **ABBYY Tip: Using FineScanner in Research Projects**
 
 [FineScanner](http://qrs.ly/mg4z2wm) was conceived as a mobile app that would do the job of the traditional flat-bed scanner. And it’s not just occasional scanning of a handful of A4 pages. Meredith M. Parker, for example, has successfully used [FineScanner](http://qrs.ly/mg4z2wm) to scan and capture data from over 600 tables from the _Ministry of Labour Gazette_ published between 1923 and 1936\. For her project, the researcher needed to digitize UK unemployment statistics for the interwar period and export them to Microsoft Excel for further processing.
@@ -61,10 +64,19 @@ FineScanner successfully captured 600+ pages of printed tables, and all of the p
 
 ![abbyy finescanner](https://static1.abbyy.com/abbyycommedia/26704/fs1.jpg) Original photo
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<!-- affiliate ads end -->
 ![abbyy finescanner scanning documents](https://static1.abbyy.com/abbyycommedia/28714/fs2.png) Captured data in Excel
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<!-- affiliate ads end -->
 For a detailed step-by-step description of the data capture stage of the project, please see [this page](https://www.meredithpaker.com/updates/digitizingdata).
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **App of the Week: Dogo**
 
 Naturally, you can take your puppy to a dog school, but lots of dog owners choose to train their four-legged pets themselves. [Dogo](https://dogo.pro/) is a mobile app intended to help you with training your dog. The app creates a daily training programme adapted specifically to your pet’s progress, providing you with lots of tips and advice on how to teach your puppy to respond to its name, to offer you its paw, to sit, to roll over, and do lots of other tricks. The app offers detailed step-by-step instructions for teaching your dog each new trick or command. ![train dogs](https://static1.abbyy.com/abbyycommedia/26706/dogo-en.png) ![excirsises for dogs on a smartphone](https://static1.abbyy.com/abbyycommedia/26707/dogo-en2.png)
@@ -73,12 +85,18 @@ You can then film your dog doing a new trick and submit the video via the app to
 
 ![good dog](https://static1.abbyy.com/abbyycommedia/26708/dogo-en3.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
 The app is available on [iOS](https://itunes.apple.com/ru/app/id1153294767) and [Android](https://play.google.com/store/apps/details?id=app.dogo.com.dogo%5Fandroid). That’s all from us for today. See you next Monday!
 
 P.S. You can find the previous issue of this newsletter here.
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

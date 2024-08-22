@@ -1,7 +1,7 @@
 ---
 title: "Revolutionizing Large-Scale Housing Operations: Streamlined Invoice Handling Through ABBYY's Advanced Technology"
-date: 2024-08-19 23:33:51
-updated: 2024-08-22 10:32:39
+date: 2024-08-21T15:07:50.735Z
+updated: 2024-08-22T15:07:50.735Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ef4f7364eb178269ce5e333115e1834d8d6af4b37108b148f724431123b9f7ea.jpg
@@ -23,6 +23,9 @@ Real Estate | Accounts Payable Automation
 
 Immobilier | Automatisation comptabilité fournisseurs 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.

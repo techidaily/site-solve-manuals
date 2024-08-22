@@ -1,7 +1,7 @@
 ---
 title: "Innovating Finance: How France's Premier Bank Transforms with Digitalization Using ABBYY FlexiCapture Technology"
-date: 2024-08-21 20:24:44
-updated: 2024-08-22 11:42:53
+date: 2024-08-21T15:07:51.864Z
+updated: 2024-08-22T15:07:51.864Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b357c4b8f72776975451a46d642e42d569af6d435c0d587f7372c46c2b7924bd.jpg
@@ -99,6 +99,9 @@ The introduction of this integrated solution enables the credit department at Ca
 
 Share  True ?  : "" 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.

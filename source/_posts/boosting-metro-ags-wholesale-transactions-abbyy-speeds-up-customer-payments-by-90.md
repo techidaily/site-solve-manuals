@@ -1,7 +1,7 @@
 ---
 title: "Boosting Metro AG's Wholesale Transactions: ABBYY Speeds Up Customer Payments by 90%%"
-date: 2024-08-20 22:29:52
-updated: 2024-08-22 11:16:19
+date: 2024-08-21T15:07:51.135Z
+updated: 2024-08-22T15:07:51.135Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3e64ab7fbedf01adf094c0f7a07b62ec8466f937073c7188969d1624a01e5f53.jpg
@@ -86,6 +86,9 @@ In addition, ABBYY's solution provides significantly more of the additional info
 
 [Read the document](https://static1.abbyy.com/abbyycommedia/37651/metro-digital-case-study-intelligent-document-processing-en.pdf "PDF Version") 
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.

@@ -1,7 +1,7 @@
 ---
 title: Smart Automation Lösungen Für Die Versicherungswirtschaft
-date: 2024-08-21 12:49:34
-updated: 2024-08-22 11:22:13
+date: 2024-08-21T15:07:51.638Z
+updated: 2024-08-22T15:07:51.638Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/acf1543a08c93a8277bd32ca8ca0045c1e81ebd5061ccbafdfe3582cd05fb8bf.jpg
@@ -29,14 +29,29 @@ Leiter Marketing & Vertrieb, **AGILA Haustierversicherung**
 
 ![46 Christianmichel 198X198](https://static5.abbyy.com/abbyycommedia/29481/46-christianmichel-198x198.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Christian Michel
 
 Gründer und CEO, **insinno**
 
 ![Falkhoessler 198X198](https://static3.abbyy.com/abbyycommedia/29492/insinno-logo-forspeakers.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Falkhoessler 198X198](https://static1.abbyy.com/abbyycommedia/35556/falkhoessler-198x198.png)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Falk Hößler
 
 Project Manager, **insinno**
@@ -49,6 +64,10 @@ Project Manager, **insinno**
 
 Senior Enterprise Sales Manager, **ABBYY**
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
+<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<!-- affiliate ads end -->
 ### Übersicht
 
 In diesem praxisorientierten Webinar mit Marco Brandt, Leiter Marketing & Vertrieb bei der AGILA Haustierversicherung sowie Christian Michel und Falk Hößler von insinno, präsentieren wir Ihnen, wie der Einsatz von Robotern, künstlicher Intelligenz, Low Code und Cloud-Lösungen die internen Prozesse des etablierten Versicherungsunternehmens revolutioniert hat. Innerhalb von drei Monaten konnte 25% Dunkelverarbeitung von Rechnungen und Faxen erreicht werden!
@@ -61,8 +80,14 @@ In diesem praxisorientierten Webinar mit Marco Brandt, Leiter Marketing & Vertri
 
 Weitere Informationen zu dieser Lösung erhalten Sie auch im Whitepaper ["Dunkelverarbeitung für Versicherungen – Robotics effektiv umsetzen" von insinno](http://eepurl.com/hfmis5 "Zum insinno-Whitepaper").
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Webinar-Aufzeichnung hier anfordern
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ### Get in touch with us
 
 Please note that progressive profiling is used on this form to incrementally collect profile data over time.   

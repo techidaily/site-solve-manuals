@@ -1,7 +1,7 @@
 ---
 title: "The Art of Effortless Document Management and Boosting Workouts: Discover Universal Clipboard Techniques & In-Depth Guide to Indoor Cycling | Tips From the ABBYY Blog"
-date: 2024-08-20 15:22:13
-updated: 2024-08-22 10:45:19
+date: 2024-08-21T15:07:50.101Z
+updated: 2024-08-22T15:07:50.101Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/043a6e9400628e90ba868e49367a439edaed6ed2655e7384611850ca4beac263.jpg
@@ -52,8 +52,14 @@ Unlike Apple, Android device manufacturers do not offer a built-in clipboard to 
 
 ![android alt-c app](https://static1.abbyy.com/abbyycommedia/26470/alt-c-app.png)
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 That’s it! Now you can copy and paste text between the two devices. The app will also store up to 50 recently copied items.
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **ABBYY Tip: Your Documents in the Palm of Your Hand**
 
 Sometimes you may be asked to provide a scan of our ID papers, or you may need to check your payment details against your actual credit to make an online purchase. You no longer need to rummage around your bag looking for your passport, then take out your phone, and struggle to make a snapshot that will do for a legible scan.
@@ -68,6 +74,9 @@ Don’t forget to supply your scans with tags to make them easier to find. Simpl
 
 If you already have good-quality document scans, you can import them into [FineScanner](http://qrs.ly/pl4x25p). iPad users can drag-and-drop scans onto their device. Read this [ABBYY Tip](https://tools.techidaily.com/abbyy/products/) to find out more about importing content into [FineScanner](http://qrs.ly/pl4x25p). There you will also learn how to remove excess background or convert your scans to PDF.
 
+<!-- affiliate ads begin -->
+<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<!-- affiliate ads end -->
 ## **App of the Week: Insight Timer**
 
 Now and then we all need to clear our minds of the worries and thoughts created by the hustle and bustle of city life. Unsurprisingly, there’s an app for that and it’s called [Insight Timer](https://insighttimer.com/).
@@ -84,8 +93,14 @@ Besides meditation, you can choose yoga, walking, breathing, and even prayer. Th
 
 ![insight3](https://static1.abbyy.com/abbyycommedia/26474/insight3.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<!-- affiliate ads end -->
 The app is available for [iOS](https://itunes.apple.com/us/app/insight-timer-meditation-app/id337472899?mt=8) and [Android](https://play.google.com/store/apps/details?id=com.spotlightsix.zentimerlite2&hl=ru).
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<!-- affiliate ads end -->
 ## First-Hand Experience: Advice From a Colleague
 
 _Shared by Olga Titova, Product Owner, Mobile SDK_
@@ -113,6 +128,9 @@ P.S. You can find the previous issue of our newsletter [here](https://tools.tech
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

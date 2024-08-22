@@ -1,7 +1,7 @@
 ---
 title: "スクリーンショットからPDFへ: FineReader PDFというアプリはiPhone・Androidデバイスでどのように文章をスキャンしますか?"
-date: 2024-08-20 22:23:43
-updated: 2024-08-22 11:31:22
+date: 2024-08-21T15:07:50.046Z
+updated: 2024-08-22T15:07:50.046Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b2bf4cd4c4150768a4991186ca82f84c6e82b391b455745b734da2cba3671e13.jpg
@@ -242,6 +242,9 @@ PDF ファイルはPDFエディタで開かれます。そしてレビューし�
 
 [モバイル](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
+<!-- affiliate ads end -->
 ### いいね！、シェア、再投稿
 
 シェア

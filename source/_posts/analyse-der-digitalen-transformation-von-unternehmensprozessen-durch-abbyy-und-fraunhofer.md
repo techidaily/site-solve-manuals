@@ -1,7 +1,7 @@
 ---
 title: Analyse Der Digitalen Transformation Von Unternehmensprozessen Durch ABBYY Und Fraunhofer
-date: 2024-08-21 17:15:51
-updated: 2024-08-22 12:15:14
+date: 2024-08-21T15:07:50.170Z
+updated: 2024-08-22T15:07:50.171Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3940086541c823408b7e3893cd4adcfe04714cf8a1d0ceb2c3d06364d867bc68.png
@@ -49,16 +49,25 @@ Die gesamten Studienergebnisse sowie weiterführende Informationen erhalten Sie 
 
 Als Partner für Digitalisierung, Industrie 4.0 und das Internet der Dinge entwickelt das Fraunhofer-Institut für Angewandte Informationstechnik FIT seit knapp 40 Jahren IT-Lösungen, die auf Menschen zugeschnitten sind und sich nahtlos in Unternehmensprozesse einfügen. Als Innovationstreiber bietet es nicht nur Orientierung, sondern gestaltet auch den digitalen Wandel in Wirtschaft, Umwelt und Gesellschaft. Die Projektgruppe Wirtschaftsinformatik des Fraunhofer FIT hat sich als international anerkanntes Forschungszentrum an der Schnittstelle von Finanzmanagement, Informationsmanagement und Wirtschaftsinformatik etabliert. Derzeit arbeiten wir insbesondere in den Geschäftsbereichen Digital Disruption, Digital Business und Digital Transformation. Die Grundsätze unserer Forschung sind Innovation, Interdisziplinarität und Ganzheitlichkeit. Darauf basierend wurde gemeinsam mit der Abteilung Data Science und Künstliche Intelligenz des Fraunhofer FIT das [Center for Process Intelligence](https://cpi.fit.fraunhofer.de/) (CPI) gegründet, welches ganzheitliche Beratungsleistungen im Bereich der datengetriebenen Prozessanalyse, Prozessmodellierung und Prozessanalyse für die Industrie anbietet.
 
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
 ### Über ABBYY
 
 ABBYY ermöglicht es, mit seiner Digital Intelligence Plattform die gesamten Geschäftsprozesse und Informationen, die ein Unternehmen antreiben, zu analysieren und im Detail zu verstehen. ABBYY-Technologien werden von mehr als 5.000 Unternehmen weltweit eingesetzt, darunter viele Fortune-500-Unternehmen. Die als führend ausgezeichneten Lösungen im Bereich [Intelligent Document Processing (IDP)](https://www.abbyy.com/company/news/everest-group-recognizes-abbyy-as-a-leader-in-intelligent-document-processing-products-peak-matrix-assessment-for-second-consecutive-year-2020/ "Everest Group Recognizes ABBYY as a Leader in Intelligent Document Processing Products") und [Process Discovery & Mining](https://tools.techidaily.com/abbyy/products/) steigern Effizienz, Rentabilität und Wettbewerbsfähigkeit eines Unternehmens und verbessern das Kundenerlebnis nachhaltig. ABBYY ist ein globales Unternehmen mit Niederlassungen in 14 Ländern. Weitere Informationen finden Sie unter <https://www.abbyy.com/de>.
 
 ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeichen von ABBYY Software Ltd. Alle anderen Warenzeichen sind Eigentum ihrer jeweiligen Inhaber.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<!-- affiliate ads end -->
 ### Pressekontakt:
 
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<!-- affiliate ads end -->
 #### Bianca Stupp
 
 **ABBYY**

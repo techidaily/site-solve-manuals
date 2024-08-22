@@ -1,7 +1,7 @@
 ---
 title: "Effective Onboarding Strategies: Harmonizing Client Trust and Anti-Fraud Measures"
-date: 2024-08-19 13:50:47
-updated: 2024-08-22 11:52:24
+date: 2024-08-21T15:07:50.564Z
+updated: 2024-08-22T15:07:50.564Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a6535057526d825a812b9edea09b4a8a4894edee43c3184c203deba2afb4fbdc.jpg
@@ -21,6 +21,9 @@ In a world in which the line between virtual and offline identities has become i
   
 Verifying the true identity of customers and employees has become more difficult and more important as scammers become more sophisticated. Highly regulated industries like banking and healthcare are hyper focused on cybersecurity, but it’s become increasingly important for businesses in every industry to make sure they have best-in-class fraud prevention procedures in place. 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Download it now!
 
 This playbook will dig into the challenges of verifying user identities online. You’ll also learn the benefits using an organization that can provide seamless, reliable identity proofing and identity affirmation, as well as:   
@@ -30,12 +33,18 @@ This playbook will dig into the challenges of verifying user identities online. 
 * How identity proofing makes use of biometrics and document verification, and how it differs from identity affirmation.
 * Why identity proofing isn’t enough.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ## Thank you for your interest in ABBYY.
 
 [Read eBook](https://digital.abbyy.com/hubfs/documents/content/ebook-use-case-playbook-onboarding-en.pdf "Read eBook") 
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)
 
 #### Get your copy by filling in the form.

@@ -1,7 +1,7 @@
 ---
 title: "Majority of British Workforce Eager to Outsource Tasks to Automation: Insights From ABBYY"
-date: 2024-08-19 12:45:35
-updated: 2024-08-22 11:39:29
+date: 2024-08-21T15:07:50.971Z
+updated: 2024-08-22T15:07:50.971Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/da7fa3270346efb8a59ee9a2227fafe39fab3e8091406f28b8c4b7ad88c22375.jpg
@@ -97,3 +97,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

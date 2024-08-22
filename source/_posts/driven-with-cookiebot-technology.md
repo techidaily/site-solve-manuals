@@ -1,7 +1,7 @@
 ---
 title: Driven with Cookiebot Technology
-date: 2024-08-20 19:19:40
-updated: 2024-08-22 12:27:15
+date: 2024-08-21T15:07:51.809Z
+updated: 2024-08-22T15:07:51.809Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7077ddd1132ef7b304c8a4c6d57fc2c4c3da823c4ca2efa45fb7b2172157b200.jpg
@@ -23,17 +23,26 @@ Laserfiche Enterprise Content Management（ECM）システムは、企業のデ�
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/solutions/digital-onboarding/overview-image.jpg?h=716&iar=0&w=1272)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## ABBYYとLaserficheがどう連携するか 
 
 FlexiCapture for Laserficheは、文書やメールに含まれる貴重なデータが届いた時点からECMシステムに取り込まれるまでの過程を自動化し、企業のワークフロー内で価値あるデータを活用できるようにします。 テキストや画像のコンテンツは、チャネルを問わず正確に処理され、事前に定義されたルールや文書の種類（契約書、請求書など）によって仕分けされ、重要なデータはLaserficheのリポジトリに直接抽出されます。
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/products/timeline/timeline_overview_2.jpg?h=716&iar=0&w=1272)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 * さまざまな種類、構造、内容の文書を自動的に取り込みます。取り込みは、文書が複合機、メール、社内データベース、クラウドアプリケーションなどで受信した時点で行われます。
 * FlexiCaptureは、タイプやタグでこれらの文書をインデックス化し、必要なデータ抽出を行い、ビジネスにとって重要なデータをLaserficheのリポジトリやワークフローにエクスポートします。
 * データは自動的に検証されるので、正確性やコンプライアンスが確保されます。 追加の自動制御により、不正な取引を防ぐことができます。
 * Laserfiche Enterprise Content Management（ECM）システムには、すぐに検索・使用可能な文書が保存されるので、簡単に文書にアクセス、活用可能です。
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 連携するメリット 
 
 ##### 効果的なデータ管理体制の構築 
@@ -48,6 +57,9 @@ FlexiCapture for Laserficheは、文書やメールに含まれる貴重なデ�
 
 フレキシブルでカスタマイズ可能なFlexiCaptureは、すべての文書処理シナリオに対応しており、あらゆる企業のワークフローや規制に合わせて調整することができます。 1日に10万ページの処理から100万ページ以上の処理へのスケールアップも容易です。
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 専門家に相談してみませんか？
 
 [デモを予約する](https://tools.techidaily.com/abbyy/products/)[お問い合わせ](https://tools.techidaily.com/abbyy/products/)

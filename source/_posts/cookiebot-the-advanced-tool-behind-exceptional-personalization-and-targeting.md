@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot: The Advanced Tool Behind Exceptional Personalization and Targeting"
-date: 2024-08-20 12:12:36
-updated: 2024-08-22 11:43:27
+date: 2024-08-21T15:07:51.206Z
+updated: 2024-08-22T15:07:51.206Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3e9db891de75640d42280dabbfbbc511c64f55b10c2c6cccea4046ea3f8adbe3.jpg
@@ -48,16 +48,26 @@ Weitere Details und globale Ergebnisse über die Investitionen in künstliche In
 
 Diese Umfrage wurde im Juli 2023 von Sapio Research im Auftrag von ABBYY durchgeführt. 1.000 IT-Entscheidungsträger aus 17 Branchen, darunter die Bereiche Finanzdienstleistungen, Gesundheitswesen, Transport/Logistik, Versicherungen, Einzelhandel und Regierungen/öffentlicher Sektor, wurden in den USA, Großbritannien, Deutschland und Frankreich befragt, um zu erörtern, wie sich derzeitige globale wirtschaftliche Herausforderungen auf Investitionen in die intelligente Automatisierung auswirken. Die Umfrage untersuchte auch, ob und welche Technologien Unternehmen in naher Zukunft einführen wollen.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Über ABBYY
 
 ABBYY macht Ihre Informationen nutzbar. Unsere Lösungen kombinieren Innovation und Erfahrung, um Daten aus geschäftskritischen Dokumenten in über 200 Sprachen und in Echtzeit in intelligente, umsetzbare Ergebnisse umzuwandeln. Wir helfen mehr als 10.000 Unternehmen weltweit, darunter vielen der Fortune-500-Unternehmen, dort etwas zu bewegen, wo es am wichtigsten ist: Bei der Customer Experience, der operativen Exzellenz und in puncto Wettbewerbsvorteile. ABBYY ist ein globales Unternehmen mit Sitz in Milpitas, Kalifornien (USA) und Niederlassungen in 14 Ländern und [offizieller Intelligent Automation Partner des Arsenal Women Football Club](https://tools.techidaily.com/abbyy/products/). Weitere Informationen finden Sie unter <https://www.abbyy.com/de> und folgen Sie uns auf [LinkedIn](https://www.linkedin.com/company/abbyy), [Twitter](https://twitter.com/ABBYY%5FSoftware) und [Facebook](https://www.facebook.com/ABBYYsoft).
 
 ABBYY ist als Wort- und Bildmarke, auch in Verbindung mit ABBYY Produkten, geschützt. Die Marken dürfen nicht ohne Zustimmung der Inhaber verwendet werden.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
+</a>
+<!-- affiliate ads end -->
 ### Pressekontakt:
 
 ![Bianca 110X110](https://static2.abbyy.com/abbyycommedia/36222/bianca-110x110.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
 #### Bianca Stupp
 
 _ABBYY_

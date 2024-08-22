@@ -1,7 +1,7 @@
 ---
 title: Enhancing Voice Assistant Interactions Through Advanced Vocal Recognition Training | Insights by ABBYY Blog
-date: 2024-08-19 20:56:54
-updated: 2024-08-22 10:41:19
+date: 2024-08-21T15:07:51.841Z
+updated: 2024-08-22T15:07:51.841Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c68e5dfe066870e624209e946a88b5eb21db8406cf2fae44c9a446c53d02efdc.jpg
@@ -39,6 +39,9 @@ To have a chat with Siri, tap and hold either the **Home** button (on devices th
 
 By the way, Siri can also be used with FineScanner and TextGrabber. For example, you can use voice commands to [open a document in FineScanner](https://tools.techidaily.com/abbyy/products/) or [recognize your last gallery image in TextGrabber](https://tools.techidaily.com/abbyy/products/).
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
+<!-- affiliate ads end -->
 ## **Android Tip: Texting Google Assistant** 
 
 [Google Assistant](https://assistant.google.com/) works on devices running Android 5.0 or later. They must also have [Google app 6.13 or later](https://play.google.com/store/apps/details?id=com.google.android.googlequicksearchbox) and [Google services](https://play.google.com/store/apps/details?id=com.google.android.gms) installed. For more details about system requirements for the Assistant, see [this page](https://support.google.com/assistant/answer/7172657?hl=en#phone%5Frequirements). Check everything carefully: we did not manage to get the Assistant working on a Samsung Galaxy S9 device due to it not having Google Services installed.
@@ -47,14 +50,27 @@ Enabling keyboard input is easy: call up your assistant using a long press of th
 
 ![google assistant](https://static1.abbyy.com/abbyycommedia/26891/google-assistent.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Google have also made an interesting feature available for Pixel 2 and 3 owners. On these devices, you can also activate the Assistant by lightly squeezing the phone in your hand (i.e. by pressing down on both sides simultaneously).
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<!-- affiliate ads end -->
 ## **ABBYY Tip: the Recognize Again Command**
 
 In one of the recent FineScanner updates, we have added an offline text recognition mode. Using it does not require an internet connection, meaning that you will receive the results instantly. Note, however, that this mode can only be used with TXT files. Sometimes, you might not be satisfied with your offline mode results. If this is so, you can tap **Recognize again**. This will take you back to the mode selection screen, where you can try the more powerful online mode (which will also keep the formatting of the original text).
 
 ![abbyy finescanner](https://static1.abbyy.com/abbyycommedia/26892/abbyy-finescanner.jpeg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ## **App of the Week: Vanido** 
 
 We would recommend Vanido to karaoke enthusiasts or people planning to take up singing as more than just a hobby.
@@ -69,6 +85,9 @@ That’s all from us for today. Until next time!
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

@@ -1,7 +1,7 @@
 ---
 title: Cookiebot-Enabled Marketing Tools for Advanced User Tracking and Analysis
-date: 2024-08-19 19:54:31
-updated: 2024-08-22 10:25:16
+date: 2024-08-21T15:07:51.775Z
+updated: 2024-08-22T15:07:51.775Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8cff42ae0b07628cf47b2fefd624aed56ec467c25aa15518d2e331ff9c28e273.jpg
@@ -29,12 +29,18 @@ Social Work
 | ------- | ------------------------------------------------------ |
 | Website | [www.simonheijdens.com](http://www.simonheijdens.com/) |
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Zum Hintergrund
 
 Simon Heijdens ist ein weltbekannter holländischer Lichtinstallationskünstler. Ausgebildet in Design und experimentellem Film, wird seine Arbeit heute in Galerien rund um den Globus gezeigt und Unternehmen wie Swarovski engagieren ihn wegen seiner Fähigkeit, Natur und Gefühl in einen künstlichen Raum zu bringen. Heijdens benutzt Licht und Projektion, um die Faszination für die Rolle auszudrücken, die Objekte in unserer Gesellschaft spielen und um zu zeigen, wie sich unsere Wahrnehmung dieser Objekte verändern kann. Er kombiniert Technologie mit subtilem Design um künstlichen Objekten einen natürlichen Charakter zu verleihen und um in einem ansonsten statischen Raum wieder Zeit und Wandel einzuführen.
 
 Heijdens’ neueste Arbeit mit dem Titel „Wortgeflecht” wird im Espresso Café im Rotterdam Museum of Modern Art gezeigt und war eine technologische Herausforderung. Zusätzlich zum Design von Raum und Einrichtung wollte Heijdens ein Kunstwerk schaffen, das die Besucher des Cafés mit einbezieht. Er stellte sich die Cafétische als Oberfläche für einen Dialog vor, in dem Informationen in Form von Zeitungsschlagzeilen, Prospekten oder sogar Zigarettenschachteln ausgetauscht werden. Heijdens wollte diese Informationen aufzeichnen da er glaubte, dass sie sehr viel über die einzelnen Momente im Zeitverlauf erzählen. Er wollte eine lebendige![„Wortgeflecht” im Espresso Café im Rotterdam Museum of Modern Art](https://static1.abbyy.com/abbyycommedia/6029/museumofmodernart.png "„Wortgeflecht” im Espresso Café im Rotterdam Museum of Modern Art ") Aufzeichnung der Geschichte des Cafés schaffen, in der jeder Tisch seine eigene Geschichte erzählen sollte. „Was wäre, wenn ein Tisch ein Archiv seiner eigenen Nutzung werden könnte?” fragt Heijdens. „In meiner Arbeit geht es um das Aufbrechen der statischen Natur von Architektur. Ich mache Einschnitte in einem Raum um zu zeigen, was er erlebt hat und um zuzuhören, wie er benutzt wurde. Ich wollte nicht, dass die Menschen einfach nur durch das Café gehen und es wieder verlassen, ohne ihre Spuren zu hinterlassen. Ich wollte, dass zurückbleibt was dort passierte” sagt er.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Die Herausforderung
 
 Heijdens’ Arbeit beinhaltete die Installation von Bewegungsmeldern über acht Tischen des Cafés. Sobald etwas auf dem Tisch abgestellt wurde, lösten die Sensoren eine Kamera aus, die Bilder davon machte. Heijdens brauchte dann eine Software, die den Text aus den Bildern auslesen und entziffern konnte, um diesen dann zu extrahieren und auf die Decke direkt oberhalb des Tisches zu projizieren. Die Wörter sollten dann zu einem Kreis gewoben werden, der mit jeder neuen Information, die aufgenommen wurde, Reihe um Reihe wachsen würde. Stärker frequentierte Tische hätten dann größere, weniger frequentierte Tische kleinere Kreise.  
@@ -45,6 +51,9 @@ Da das Werk eine dauerhafte Installation im Café sein sollte, musste es in der 
 „Das Werk war eine sehr öffentliche Darstellung von Kunst und Software, daher musste es funktionieren”, sagte Heijdens.  
 „Ich arbeitete auch mit einigen recht unterschiedlichen Elementen, angefangen von Beegungsmeldern über Bilderfassung und Zeichenerkennung bis hin zur tatsächlichen Projektion. Alle diese einzelnen Elemente zusammen zum Funktionieren zu bringen, war eine Herausforderung.”
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Die Lösung
 
 Heijdens sah sich mehrere serverbasierte Lösungen zur optischen Zeichenerkennung (OCR) verschiedener Anbieter an. OCR-Software nimmt Bilder von Texten und wandelt diese Bilder in digitalen Text um, der in einer Vielzahl von Formaten ausgegeben und genutzt werden kann. Heijdens kontaktierte ABBYY im Juli 2008 und testete umgehend ABBYY Recognition Server 2.0 Professional Edition. Einen Monat später hatte er die Software implementiert und an die spezifischen Bedürfnisse seines Werkes angepasst.  
@@ -53,6 +62,9 @@ Die Aufnahmen der Tische wurden direkt an Recognition Server 2.0 geschickt, und 
 „Auch die automatische Fehlertoleranz war Teil der Lösung”, so Jupp Stoepetie weiter.  
 „Das System ist in der Lage, auf intelligente Weise Aufgaben aufzuteilen und zu erkennen, wenn diese nicht ausgeführt werden. Gibt es ein Problem, so werden diese Aufgaben einfach umverteilt, um den Engpass zu umgehen. Die Lösung toleriert Systemfehler der darunter liegenden Computersysteme und kann sich selbst korrigieren, ohne dass menschliches Eingreifen erforderlich ist.”
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Das Ergebnis
 
 „Wortgeflecht“’ wurde der Öffentlichkeit am 27\. September 2008 mit großem Erfolg vorgestellt. Mehr als 3.000 Personen wohnten der Enthüllung bei. Nach wie vor ist es eine sehr beliebte Ausstellung, die seit der Installation große Datenmengen problemlos verarbeitet hat, und das mit einem Minimum an Wartungsaufwand durch Heijdens. „Die Lösung von ABBYY macht ihre Arbeit einfach sehr gut”, sagt Heijdens.  
@@ -63,6 +75,9 @@ Die Aufnahmen der Tische wurden direkt an Recognition Server 2.0 geschickt, und 
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Über ABBYY und Kontaktmöglichkeiten
 
 [Zur ABBYY Unternehmensübersicht ›](https://tools.techidaily.com/abbyy/products/)
@@ -71,6 +86,9 @@ Die Aufnahmen der Tische wurden direkt an Recognition Server 2.0 geschickt, und 
 
 Teilen 
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Sind Sie bereit, mit einem Experten zu sprechen?
 
 Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.

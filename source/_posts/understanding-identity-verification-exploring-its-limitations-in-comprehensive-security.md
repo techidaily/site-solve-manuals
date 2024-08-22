@@ -1,7 +1,7 @@
 ---
 title: "Understanding Identity Verification: Exploring Its Limitations in Comprehensive Security"
-date: 2024-08-21 14:44:31
-updated: 2024-08-22 12:31:50
+date: 2024-08-21T15:07:51.941Z
+updated: 2024-08-22T15:07:51.941Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8e945962e22da7cc13548b0273df3ba622849bedca30e5d0f04cb4a458929e39.jpg
@@ -43,8 +43,14 @@ The NIST identifies [three steps that make up the identity proofing process](htt
 
 ![](https://static1.abbyy.com/abbyycommedia/36099/2_steps-in-identity-proofing-and-identity-affirmation.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<!-- affiliate ads end -->
 Manual approaches to this detailed process can be time-consuming, tedious, and at high risk for error. Fortunately, today’s identity proofing systems can leverage automation and AI to carry out each step without the need for human intervention in most cases.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What’s the difference between identity proofing and identity affirmation … and why do we need both? 
 
 While identity proofing is a vital capability for organizations looking to secure their processes, there is more to the story. Sophisticated scammers are capable of creating realistic documentation that may even trick some verification systems, even though the human being they describe is purely fictional. This is why businesses need identity affirmation alongside traditional identity proofing. 
@@ -53,6 +59,9 @@ Identity affirmation, [according to Gartner](https://www.gartner.com/en/document
 
 When businesses leverage identity proofing and identity affirmation in tandem, they can enjoy a high level of confidence that the users they interact with really are who they say they are.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<!-- affiliate ads end -->
 ## Is there a “one-stop shop” for identity proofing and affirmation capabilities?
 
 While many vendors offer identity proofing and affirmation tools, few actually deliver the full slate of required functions. When ABBYY developers designed our solution, we made sure to include a full slate of capabilities for you, including
@@ -64,6 +73,9 @@ While many vendors offer identity proofing and affirmation tools, few actually d
 * Exception handling (optional human auditing of certain transactions)
 * Process intelligence and mining to identify opportunities for process improvement
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<!-- affiliate ads end -->
 ## What are common use cases for identity proofing?
 
 While fraud can happen in nearly any industry, sectors with a high frequency of high-risk transactions stand to derive the greatest benefit from AI-driven identity proofing solutions. Here’s a brief sampling of how businesses in various industries are putting identity proofing to use: 
@@ -96,6 +108,10 @@ While fraud can happen in nearly any industry, sectors with a high frequency of 
 
 ![abbyy proof of identity](https://static1.abbyy.com/abbyycommedia/36104/poi-gif-4_using-poi-1.gif?width=847&height=477)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 Over the course of just a few years, the volume and complexity of online transactions has grown exponentially, both for better and for worse. Fortunately, identity proofing and affirmation solutions can help businesses continue to meet consumers’ demands for efficient, convenient services while also staying one step ahead of fraudulent actors.
 
 Not only can you minimize the risk of fraud—and the corresponding costs in terms of money and reputation—but you can also earn and build upon the trust of your customers, building relationships that can support business goals for years to come.
@@ -110,6 +126,10 @@ Easy for your customers. Secure for your business.
 
 [Artificial Intelligence (AI)](https://www.abbyy.com/blog/artificial-intelligence-ai/ "Artificial Intelligence (AI)") [Customer Experience](https://tools.techidaily.com/abbyy/products/) [Customer Onboarding](https://tools.techidaily.com/abbyy/products/) [Data Privacy](https://tools.techidaily.com/abbyy/products/) [Digital Transformation](https://tools.techidaily.com/abbyy/products/) [Enterprise](https://tools.techidaily.com/abbyy/products/) [Financial Services](https://tools.techidaily.com/abbyy/products/) [Government](https://tools.techidaily.com/abbyy/products/) [Healthcare](https://tools.techidaily.com/abbyy/products/) [Intelligent Automation](https://tools.techidaily.com/abbyy/products/) [Intelligent Document Processing (IDP)](https://www.abbyy.com/blog/intelligent-document-processing-idp/ "Intelligent Document Processing (IDP)") [Insurance](https://tools.techidaily.com/abbyy/products/) [Legal](https://tools.techidaily.com/abbyy/products/) [Mobile](https://tools.techidaily.com/abbyy/products/) [Robotic Process Automation (RPA)](https://www.abbyy.com/blog/robotic-process-automation-rpa/ "Robotic Process Automation (RPA)") [Transportation & Logistics](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
+DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

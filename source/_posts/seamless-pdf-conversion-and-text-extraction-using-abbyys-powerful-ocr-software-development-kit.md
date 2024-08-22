@@ -1,7 +1,7 @@
 ---
 title: Seamless PDF Conversion & Text Extraction Using ABBYY's Powerful OCR Software Development Kit
-date: 2024-08-20 19:57:35
-updated: 2024-08-22 12:20:56
+date: 2024-08-21T15:07:51.041Z
+updated: 2024-08-22T15:07:51.041Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/063f04ddcc12d7ad0c40343a71ed623fbddb1ebfb8c3b581a5d414d7d362a54b.jpg
@@ -30,10 +30,16 @@ En même temps, la mise en page de chacune des pages est décortiquée et chaque
 Les résultats de cette analyse sont utilisés pour retrouver la structure et la mise en page d’un document dans un scénario de réutilisation du contenu. Toutes les images et les diagrammes sont conservés dans leur présentation d’origine sans texte reconnu.
   
   
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Spécification de blocs manuels pour la reconnaissance par champ
 
 Les zones de reconnaissance de texte peuvent être définies manuellement. Dans ce cas, le champ pertinent est défini directement et l’analyse automatisée du document n’est pas nécessaire. Lors de l’étape ultérieure de reconnaissance, l’outil de reconnaissance reçoit des informations à propos des coordonnées et des propriétés des champs nécessaires et applique l’OCR uniquement à la zone spécifiée.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Prêt à parler à un expert ?
 
 [Demander une démo](https://tools.techidaily.com/abbyy/products/)[Contactez-nous](https://tools.techidaily.com/abbyy/products/)

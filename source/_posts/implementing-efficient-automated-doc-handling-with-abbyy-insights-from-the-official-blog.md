@@ -1,7 +1,7 @@
 ---
 title: "Implementing Efficient Automated Doc Handling with ABBYY: Insights From the Official Blog"
-date: 2024-08-21 13:19:27
-updated: 2024-08-22 10:40:46
+date: 2024-08-21T15:07:49.994Z
+updated: 2024-08-22T15:07:49.994Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/bdc516c407f1c047ce69fce10934901af5b77e56306af6bf8cabd1b35043cc3e.jpg
@@ -97,3 +97,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

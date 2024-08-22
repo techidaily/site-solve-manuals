@@ -1,7 +1,7 @@
 ---
 title: "ABBYY LATEX: Die Zukunft Der Texterkennung in 3M's 360 Encompass Software"
-date: 2024-08-19 10:19:34
-updated: 2024-08-22 10:42:24
+date: 2024-08-21T15:07:50.508Z
+updated: 2024-08-22T15:07:50.508Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/45524aa106a4105324652bc7bc955b6e88f7e35d58f6ea88aa55d127c382693d.jpg
@@ -100,3 +100,7 @@ Vernetzen Sie sich mit uns
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->

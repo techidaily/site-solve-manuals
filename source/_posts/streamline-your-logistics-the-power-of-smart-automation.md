@@ -1,7 +1,7 @@
 ---
 title: "Streamline Your Logistics: The Power of Smart Automation"
-date: 2024-08-20 18:57:51
-updated: 2024-08-22 12:12:39
+date: 2024-08-21T15:07:50.444Z
+updated: 2024-08-22T15:07:50.444Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/907f940c68ac3ee45f8b59683cc047cc04665184817513adef7255fa53df8a70.jpg
@@ -21,18 +21,27 @@ Autonomous driverless trucks, drone delivery, exoskeletons, and artificial intel
 
 Intelligent automation in shipping begins with the digitization and automation of the documents that drive transportation and logistics processes. 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<!-- affiliate ads end -->
 ### Download it now!
 
 _“While a cross-border transaction involves multiple actors and requires the exchange of 36 documents and 240 copies on average, fewer than 1% of trade documents are fully digitized.”_\-International Chamber of Commerce and World Trade Organization
 
 Shippers are implementing low-code intelligent document processing to sustainably improve accuracy, expedite processes, and increase traceability in freight forwarding and other transportation/logistics processes. Download this eBook to find out what those automated processes look like, and what sort of results are possible to achieve.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Thank you for your interest in ABBYY.
 
 [Read eBook](https://abbyy.com/-/jssmedia/project/abbyy/abbyy/insights/resource-center/pdfs/ebook-intelligent-automation-transportation-shipping-en.pdf "Read eBook") 
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)
 
 #### Get your copy by filling in the form.

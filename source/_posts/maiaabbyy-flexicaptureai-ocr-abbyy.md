@@ -1,7 +1,7 @@
 ---
 title: "人工知能文字認識の新時代:株式会社MAIAがABBYY FlexiCapture用に最適化したAI-OCR学習キット - ABBYYニュース"
-date: 2024-08-19 21:51:26
-updated: 2024-08-22 10:13:57
+date: 2024-08-21T15:07:50.688Z
+updated: 2024-08-22T15:07:50.688Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1dd490a8bd0fd9490b2a1a7e2f3e07f4fe288167493a224a8c1401933c662484.jpeg
@@ -58,3 +58,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: "1. David Yang: Visionary Behind ABBYY, Leading with Strategic Insight as Board Chairman"
-date: 2024-08-19 15:36:12
-updated: 2024-08-22 11:56:41
+date: 2024-08-21T15:07:50.483Z
+updated: 2024-08-22T15:07:50.483Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/98061f90f0702266772c41039bf7505ea26afb88709675b4845f86d9c07123c1.jpg
@@ -43,3 +43,7 @@ Dr. Yang holds numerous patents and has published several research papers and ar
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

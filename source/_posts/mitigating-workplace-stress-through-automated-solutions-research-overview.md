@@ -1,7 +1,7 @@
 ---
 title: Mitigating Workplace Stress Through Automated Solutions - Research Overview
-date: 2024-08-20 14:13:47
-updated: 2024-08-22 12:10:41
+date: 2024-08-21T15:07:50.977Z
+updated: 2024-08-22T15:07:50.977Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5b8892c5db775bfe3651bc6e97180034918a1871516139b779bbf46994cbed29.jpg
@@ -68,10 +68,16 @@ ABBYY est un acteur référent de l’Intelligent Process Automation. L’entrep
 
 ABBYY est une multinationale basée aux États-Unis, et dont les bureaux sont répartis au sein de 15 pays. Pour plus d’informations, veuillez consulter le site <https://www.abbyy.com/fr/>.
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Contact presse
 
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
+<!-- affiliate ads end -->
 #### Bianca Stupp
 
 _ABBYY_

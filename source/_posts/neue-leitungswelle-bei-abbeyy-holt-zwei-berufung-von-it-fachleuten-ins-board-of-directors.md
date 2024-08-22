@@ -1,7 +1,7 @@
 ---
 title: "Neue Leitungswelle Bei ABBEYY Holt Zwei: Berufung Von IT-Fachleuten Ins Board of Directors"
-date: 2024-08-21 22:26:49
-updated: 2024-08-22 10:56:20
+date: 2024-08-21T15:07:51.628Z
+updated: 2024-08-22T15:07:51.628Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/107b878568a292795df7223b3d5abd69ab5019b1e63962476715de24b7a9394e.jpg
@@ -63,3 +63,7 @@ Vernetzen Sie sich mit uns
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<!-- affiliate ads end -->

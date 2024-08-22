@@ -1,7 +1,7 @@
 ---
 title: Boosting Efficiency in Rhenus Logistics Through ABBYY Intelligent Document Processor
-date: 2024-08-19 16:46:45
-updated: 2024-08-22 12:41:24
+date: 2024-08-21T15:07:49.943Z
+updated: 2024-08-22T15:07:49.943Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ef126118f50b6cc91b0e402fe75cfce958a6a6e6b161357abe8bae35407eca1c.jpg
@@ -95,6 +95,9 @@ Share  True ?  : ""
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.

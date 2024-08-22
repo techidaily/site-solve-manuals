@@ -1,7 +1,7 @@
 ---
 title: "Next-Gen Banking: Masterclass on Digital Transformation and Process Automation"
-date: 2024-08-19 18:46:26
-updated: 2024-08-22 12:16:40
+date: 2024-08-21T15:07:50.414Z
+updated: 2024-08-22T15:07:50.414Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/107b878568a292795df7223b3d5abd69ab5019b1e63962476715de24b7a9394e.jpg
@@ -31,27 +31,45 @@ ABBYY can help your financial institution make the right moves for the future. W
 
 ### Fill in the form to register for the webinar now
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Get in touch with us
 
 Please note that progressive profiling is used on this form to incrementally collect profile data over time.   
 All personal information collected via this method is under full scope of all provisions in our privacy policy.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Thank you for registering!
 
 [![16 Financial Services Demo 643X363](https://static1.abbyy.com/abbyycommedia/35053/16-financial-services-demo-643x363.jpg)](https://www.youtube.com/watch?v=8krtRv7xz%5Fw) 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Please check your inbox, we have sent you a confirmation email.
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### You might also be interested in these assets
 
 [![Cards Financialservices 360X232](https://static2.abbyy.com/abbyycommedia/34945/cards-financialservices-360x232.jpg) Shared Services & Outsourcing Woche 2021 ![ABBYY Logo Forcards](https://static4.abbyy.com/abbyycommedia/25122/logo-2021-76x23.svg) ![Fraunhofer Logo Forcards 118X33 (1)](https://static2.abbyy.com/abbyycommedia/35533/fraunhofer-logo-forcards-118x33.png) German Watch webinar](https://www.abbyy.com/webinars/on-demand/handelsblatt-podcast-so-klingt-wirtschaft/) 
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
+<!-- affiliate ads end -->
 [![Cards BPO 360X232](https://static5.abbyy.com/abbyycommedia/34944/cards-bpo-360x232.jpg) Shared Services & Outsourcing Woche 2021 ![SSON Logo Forcards 180X30](https://static4.abbyy.com/abbyycommedia/34860/sson-logo-forcards-180x30.png) ![Bosch Logo Forcards 113X27](https://static5.abbyy.com/abbyycommedia/34858/bosch-logo-forcards-113x27.png) ![ABBYY Logo Forcards](https://static4.abbyy.com/abbyycommedia/25122/logo-2021-76x23.svg) German Watch webinar](https://www.abbyy.com/webinars/on-demand/shared-services-and-outsourcing-woche-2021/) 
 
+<!-- affiliate ads begin -->
+<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### Please fill in this form to watch the webinar:
 
 First name\*

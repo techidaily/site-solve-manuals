@@ -1,7 +1,7 @@
 ---
 title: "Innovative Synergy: Strengthening the Purposeful AI Collaboration Between ABBYY & Novelis"
-date: 2024-08-21 21:53:47
-updated: 2024-08-22 12:31:56
+date: 2024-08-21T15:07:50.656Z
+updated: 2024-08-22T15:07:50.656Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3d4f10ff7575c64862599f681c5c76c2a7860b5686d5a4ad72e83eea7dc08de2.jpg
@@ -47,6 +47,9 @@ AABBYY puts your information to work with purpose-built AI. We combine innovatio
 
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies and may not be used without consent of its respective owners.
 
+<!-- affiliate ads begin -->
+<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### About Novelis 
 
 At Novelis, we specialize in offering comprehensive solutions and services that seamlessly combine our distinct Process Expertise with Process Intelligence, Intelligent Automation, AI Advancements, Innovative Architectures, and Cybersecurity. This fusion of capabilities empowers us to deliver solutions that not only leverage cutting-edge technologies but also draw on our in-depth understanding of processes. Our holistic approach to driving process efficiency ensures that every facet of your business receives the Novelis touch.

@@ -1,7 +1,7 @@
 ---
 title: "高付加価値への転換:ABBYY FlexiCapture®による請求書プロセス改革とデジタル技術活用"
-date: 2024-08-21 19:36:51
-updated: 2024-08-22 12:17:51
+date: 2024-08-21T15:07:50.785Z
+updated: 2024-08-22T15:07:50.785Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4546ddfed47c887fd8822a083e53e55a360fbac19fd97cadc5d42f68a2d04c9c.png
@@ -136,6 +136,9 @@ FlexiCaptureは、オンプレミス／クラウド／SDKで利用できる多�
 
 [お問い合わせ](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ### 専門家に相談する準備はできていますか?
 
 私たちは、自動化への取り組みをお手伝いさせていただきたいと思っています。

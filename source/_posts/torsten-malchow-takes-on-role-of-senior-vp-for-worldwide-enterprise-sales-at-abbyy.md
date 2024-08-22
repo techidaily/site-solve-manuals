@@ -1,7 +1,7 @@
 ---
 title: Torsten Malchow Takes on Role of Senior VP for Worldwide Enterprise Sales at ABBYY
-date: 2024-08-20 20:21:49
-updated: 2024-08-22 10:41:37
+date: 2024-08-21T15:07:51.924Z
+updated: 2024-08-22T15:07:51.924Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f20754be61be25378c16e65b62ab87943c4b43cc2d7005b2adb1f8ded04dff01.jpg
@@ -78,3 +78,7 @@ Vernetzen Sie sich mit uns
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

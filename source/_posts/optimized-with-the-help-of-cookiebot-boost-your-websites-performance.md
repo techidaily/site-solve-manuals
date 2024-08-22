@@ -1,7 +1,7 @@
 ---
 title: "Optimized with the Help of Cookiebot: Boost Your Website's Performance"
-date: 2024-08-20 14:32:34
-updated: 2024-08-22 12:11:29
+date: 2024-08-21T15:07:51.019Z
+updated: 2024-08-22T15:07:51.019Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/2dc71f07a766ca604beda3fe20bd5fd81321c87e0ac1f0a29af15d53f14e15af.jpg
@@ -53,6 +53,9 @@ documents appartiennent au passé. “Grâce au traitement plus rapide des factu
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<!-- affiliate ads end -->
 ### À propos d’ABBYY et contact
 
 [Vers la description d’ABBYY ›](https://tools.techidaily.com/abbyy/products/)
@@ -61,6 +64,9 @@ documents appartiennent au passé. “Grâce au traitement plus rapide des factu
 
 Partager 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Prêt à parler à un expert ?
 
 Nous serions ravis de vous aider tout au long de votre parcours d’automatisation.

@@ -1,7 +1,7 @@
 ---
 title: "Onboarding Ist Entscheidend: Erkennen Sie Die Risiken, Bei Denen Fast Jeder Unternehmen Mit Dem Verlust Von Interessenten Rechnen Sollte."
-date: 2024-08-21 15:57:14
-updated: 2024-08-22 10:30:33
+date: 2024-08-21T15:07:50.989Z
+updated: 2024-08-22T15:07:50.989Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e0be33554f7e808cbb9defb5e44d8742371f9f0a41b00b3f13329dba336fbddc.png
@@ -33,6 +33,9 @@ Dies wirkt sich nicht nur auf den Umsatz aus, sondern auch auf die Meinung der K
 
 Obwohl sich die Unternehmen der negativen Folgen eines schlechten Onboardings bewusst sind, wie zum Beispiel versäumte Geschäftschancen (32%), das Verlieren potenzieller Kunden an die Konkurrenz (33%) oder Schwierigkeiten bei der Gewinnung neuer Kunden (29%), nehmen sie dies stillschweigend in Kauf. Zwei von drei Befragten halten den Onboarding-Prozess zwar für sehr wichtig (45%) oder immerhin einigermaßen wichtig (21%), aber es besteht bei vielen noch ein großer Verbesserungsbedarf beim tatsächlichen Prozess.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Den richtigen Mix aus Technologie und menschlicher Interaktion schaffen
 
 Derzeit sind eine Kombination aus Self-Service und persönlichem Onboarding (45%) und ein komplett persönliches Onboarding in der Filiale (29%) die bevorzugten Methoden für das Onboarding neuer Kunden. Die meisten Unternehmen nutzen dabei eine Mischung aus automatisierter und menschlicher Interaktion für den Prozess, nur 8% haben bisher einen vollständig automatisierten Prozess eingeführt. Vier von zehn Befragten arbeiten in einer Organisation mit einem zu 75% automatisierten Onboarding-Prozess.
@@ -50,10 +53,16 @@ _Markoss Martina, VP Next Generation Platforms bei ABBYY_
 
 Der neue ABBYY State of Intelligent Automation Report gibt Ihnen weitere Einblicke in die Treiber und Herausforderungen des Onboardings und zeigt, wie Sie die Erwartungen Ihrer Kunden besser erfüllen können. Lesen Sie den ausführlichen [Report hier](https://tools.techidaily.com/abbyy/products/).
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Über die Studie
 
 Diese Studie wurde von Sapio Research im September 2022 im Auftrag von ABBYY durchgeführt. Die Umfrage wurde unter 1.623 Entscheidungsträgern in Großbritannien, den USA, Frankreich, Deutschland und Japan durchgeführt.
 
+<!-- affiliate ads begin -->
+<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Über ABBYY
 
 ABBYY treibt die intelligente Automatisierung voran. Wir gestalten die Art und Weise, wie Menschen arbeiten neu, indem wir Automatisierungsplattformen mit der Intelligenz ausstatten, die es Unternehmen ermöglicht, ihr Geschäft zu beschleunigen. Unsere Lösungen wandeln Unternehmensdaten in verwertbare Daten um und liefern die Erkenntnisse, die für ein smarteres und schnelleres Arbeiten erforderlich sind.
@@ -64,10 +73,16 @@ ABBYY ist ein globales Unternehmen mit Sitz in den USA und Niederlassungen in 14
 
 ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeichen von ABBYY Software Ltd. Alle anderen Warenzeichen sind Eigentum ihrer jeweiligen Inhaber. 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### ABBYY Pressekontakt
 
 ![02E Eva Mariahufschmitt](https://static4.abbyy.com/abbyycommedia/23663/02e-eva-mariahufschmitt.png)
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 #### Eva-Maria Hufschmitt
 
 _ABBYY_
