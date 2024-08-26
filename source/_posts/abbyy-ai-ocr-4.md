@@ -1,7 +1,7 @@
 ---
 title: "パーソルグループの名刺管理システムにABBYY AI OCRを実装: モバイル且つ4枚まとめて高精度読み取り"
-date: 2024-08-21T15:07:51.683Z
-updated: 2024-08-22T15:07:51.683Z
+date: 2024-08-25T21:22:05.188Z
+updated: 2024-08-26T21:22:05.188Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f55494b1c8843bed72fd409a0474603bdb628f91806cf12974c661e4f3ab93d8.jpg
@@ -158,3 +158,41 @@ FlexiCaptureはさまざまな工夫を加えることにより、導入後も�
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-unlock-advanced-capturing-a-guide-to-aiseesoft-screen-recorder-use/"><u>[New] In 2024, Unlock Advanced Capturing  A Guide to Aiseesoft Screen Recorder Use</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-silent-story-consumers-leading-anonymity-apps/"><u>2024 Approved  Silent Story Consumers  Leading Anonymity Apps</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/achieve-better-insights-without-compromising-on-data-security-discover-our-automated-tracking-technology/"><u>Achieve Better Insights without Compromising on Data Security: Discover Our Automated Tracking Technology</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/automated-conversion-tracking-with-advanced-analytics-by-cookiebot/"><u>Automated Conversion Tracking with Advanced Analytics by Cookiebot</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/boost-your-online-presence-using-cookiebot-technology-tailored-analytics-and-targeting-solutions/"><u>Boost Your Online Presence Using Cookiebot Technology - Tailored Analytics & Targeting Solutions</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/boost-your-sites-performance-with-the-robust-features-of-cookiebot-technology/"><u>Boost Your Site's Performance with the Robust Features of Cookiebot Technology</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/boost-your-website-with-advanced-tracking-the-power-of-cookiebot-technology/"><u>Boost Your Website with Advanced Tracking: The Power of Cookiebot Technology</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/comprehensive-security-report-understanding-organizational-safeguards/"><u>Comprehensive Security Report: Understanding Organizational Safeguards</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/comprehensive-step-by-step-tutorial-on-preparing-datasets-for-artificnial-intelligence/"><u>Comprehensive Step-by-Step Tutorial on Preparing Datasets for Artificnial Intelligence</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-personalization-enhancing-your-sites-user-experience/"><u>Cookiebot-Driven Personalization: Enhancing Your Site's User Experience</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-enhanced-experience-optimize-your-website-with-advanced-tracking-solutions/"><u>Cookiebot-Enhanced Experience: Optimize Your Website with Advanced Tracking Solutions</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-enhanced-optimize-your-website-with-cutting-edge-analytics-tools/"><u>Cookiebot-Enhanced: Optimize Your Website with Cutting-Edge Analytics Tools</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebots-magic-touch-in-enhancing-your-websites-visibility-unveiling-the-secrets-behind-successful-seo/"><u>Cookiebot's Magic Touch in Enhancing Your Website's Visibility - Unveiling the Secrets Behind Successful SEO!</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/driven-with-advanced-ai-the-modern-solution-of-cookiebot/"><u>Driven with Advanced AI: The Modern Solution of Cookiebot</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/effortless-docbook-digitization-for-iphones-using-ocr-technology-try-the-power-of-finereader/"><u>Effortless Doc/Book Digitization for iPhones Using OCR Technology - Try the Power of FineReader!</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/elevate-site-traffic-with-advanced-cookiebot-driven-seo-techniques/"><u>Elevate Site Traffic with Advanced Cookiebot-Driven SEO Techniques</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/elevating-enterprise-success-through-process-intelligence-explore-innovations-on-the-abbyy-platform/"><u>Elevating Enterprise Success Through Process Intelligence - Explore Innovations on the ABBYY Platform</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/enhance-user-experience-with-advanced-cookiebot-tracking-technology/"><u>Enhance User Experience with Advanced Cookiebot Tracking Technology</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/enhance-your-website-with-our-advanced-cookiebot-driven-solutions/"><u>Enhance Your Website with Our Advanced Cookiebot-Driven Solutions</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/enhancing-record-accuracy-at-pwc-through-abbyys-cutting-edge-document-processing-systems/"><u>Enhancing Record Accuracy at PwC Through ABBYY's Cutting-Edge Document Processing Systems</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-change-lock-screen-wallpaper-on-motorola-moto-g14-by-drfone-android/"><u>How to Change Lock Screen Wallpaper on Motorola Moto G14</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-files-after-iphone-13-factory-reset-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Recover Files after iPhone 13 Factory Reset? | Stellar</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-share-location-in-messenger-on-gionee-f3-pro-drfone-by-drfone-virtual-android/"><u>How to Share Location in Messenger On Gionee F3 Pro? | Dr.fone</u></a></li>
+<li><a href="https://network-issues.techidaily.com/how-to-tackle-persistent-video-output-errors/"><u>How to Tackle Persistent Video Output Errors</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/how-to-update-your-lenovo-legion-5-pro-16ach6h-essential-driver-software-guide/"><u>How to Update Your Lenovo Legion 5 Pro (16ACH6H) - Essential Driver Software Guide</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-6-proven-ways-to-unlock-honor-magic-vs-2-phone-when-you-forget-the-password-by-drfone-android/"><u>In 2024, 6 Proven Ways to Unlock Honor Magic Vs 2 Phone When You Forget the Password</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-new-guide-how-to-check-icloud-activation-lock-status-on-your-iphone-se-2020-by-drfone-ios/"><u>In 2024, New Guide How To Check iCloud Activation Lock Status On Your iPhone SE (2020)</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/learn-abbyy-vantage-with-our-comprehensive-online-tutorial-videos/"><u>Learn ABBYY Vantage with Our Comprehensive Online Tutorial Videos</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/maximize-site-engagement-using-the-innovative-capabilities-of-cookiebot/"><u>Maximize Site Engagement Using the Innovative Capabilities of Cookiebot</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-10-free-online-sticker-makers-to-make-your-own-stickers/"><u>New 10 Free Online Sticker Makers to Make Your Own Stickers</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/new-features-and-renaming-from-abbyy-recognition-server-to-abbyy-finereader-server/"><u>New Features and Renaming: From ABBYY Recognition Server to ABBYY FineReader Server</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ated-asmr-mic-picks-for-quality-sound/"><u>Top-Rated ASMR Mic Picks for Quality Sound</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-top-audio-splitter-on-mac-2024-update/"><u>Updated Top Audio Splitter on Mac - 2024 Update</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/weekly-must-see-elite-igtv-talents/"><u>Weekly Must-See  Elite IGTV Talents</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "ABBYY FineReader Powers Preservation: Safeguarding Over 4 Million Pages From Latvia's National Library Across 20 Languages"
-date: 2024-08-21T15:07:51.380Z
-updated: 2024-08-22T15:07:51.380Z
+date: 2024-08-25T21:21:22.629Z
+updated: 2024-08-26T21:21:22.629Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/da7fa3270346efb8a59ee9a2227fafe39fab3e8091406f28b8c4b7ad88c22375.jpg
@@ -164,3 +164,44 @@ We'd love to help you along your automation journey.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/updated-10-innovative-platforms-revolutionizing-online-education/"><u>[Updated] 10 Innovative Platforms Revolutionizing Online Education</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-thors-bold-path-asgard-reborn/"><u>[Updated] In 2024, Thor’s Bold Path  Asgard Reborn</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-instant-archive-access-revived-deleted-reddit-entries/"><u>[Updated] Instant Archive Access  Revived Deleted Reddit Entries</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1724313535664-abbyy/"><u>「タスクマイニングの基礎: 効率的なワークフローへの道」 - ABBYYブログで探るタスク分析と自動化</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-5-critical-equipment-items-to-start-your-channel-right/"><u>2024 Approved  5 Critical Equipment Items to Start Your Channel Right</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-the-quick-guide-to-innovative-voice-personalization-techniques/"><u>2024 Approved  The Quick Guide to Innovative Voice Personalization Techniques</u></a></li>
+<li><a href="https://howto.techidaily.com/4-solutions-to-fix-unfortunately-your-app-has-stopped-error-on-realme-gt-neo-5-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Solutions to Fix Unfortunately Your App Has Stopped Error on Realme GT Neo 5 | Dr.fone</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/abbyy-welcomes-tomohito-shimizu-as-new-head-of-its-japan-operations/"><u>ABBYY Welcomes Tomohito Shimizu as New Head of Its Japan Operations</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/boost-your-sites-traffic-with-cookiebot-the-smart-way/"><u>Boost Your Site's Traffic with Cookiebot - The Smart Way</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/boosting-efficiency-in-rhenus-logistics-through-abbyy-intelligent-document-processor/"><u>Boosting Efficiency in Rhenus Logistics Through ABBYY Intelligent Document Processor</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/comprehensive-analysis-on-ai-driven-customer-onboarding-key-trends-challenges-and-strategies/"><u>Comprehensive Analysis on AI-Driven Customer Onboarding: Key Trends, Challenges & Strategies</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/continuous-learning/"><u>Continuous Learning</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-enhance-your-sites-data-collection-with-our-advanced-tracking-solutions/"><u>Cookiebot-Enabled: Enhance Your Site's Data Collection with Our Advanced Tracking Solutions</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1724313295714-dx/"><u>DX初心者をサポートする入門書リスト</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/enhance-user-experience-with-our-cookiebot-integration-services/"><u>Enhance User Experience with Our Cookiebot Integration Services</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/harmonious-hues-recording-with-a-mac-for-2024/"><u>Harmonious Hues  Recording with a Mac for 2024</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/harnessing-cutting-edge-ocr-technology-for-effective-learning-explore-with-abbyy-experts-on-our-blog/"><u>Harnessing Cutting-Edge OCR Technology for Effective Learning | Explore with ABBYY Experts on Our Blog</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On Honor X50 GT? | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/how-to-correctly-resolve-the-acpi-conforming-power-management-drivers-issue-in-microsoft-devices/"><u>How to Correctly Resolve the ACPI-Conforming Power Management Drivers Issue in Microsoft Devices</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-a-how-to-guide-on-bypassing-apple-iphone-xs-max-icloud-activation-lock-by-drfone-ios/"><u>In 2024, A How-To Guide on Bypassing Apple iPhone XS Max iCloud Activation Lock</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/introducing-the-latest-milestone-abbyy-opens-a-state-of-the-art-innovation-center-for-smart-automation-in-serbia/"><u>Introducing the Latest Milestone: ABBYY Opens a State-of-the-Art Innovation Center for Smart Automation in Serbia</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/laptop-and-mobile-entrance-into-online-gatherings-google-meet-for-2024/"><u>Laptop & Mobile  Entrance Into Online Gatherings (Google Meet) for 2024</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/leveraging-cookiebot-technology-for-enhanced-user-engagement-and-growth/"><u>Leveraging Cookiebot Technology for Enhanced User Engagement and Growth</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/leveraging-cookiebot-technology-for-improved-website-personalization-and-retargeting/"><u>Leveraging Cookiebot Technology for Improved Website Personalization and Retargeting</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/neil-murphy-lead-revenue-strategist-at-abbyy/"><u>Neil Murphy: Lead Revenue Strategist at ABBYY</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/new-strategic-alliance-abbyy-joins-forces-with-lifeboat-distribution-for-north-american-market-expansion/"><u>New Strategic Alliance: ABBYY Joins Forces with Lifeboat Distribution for North American Market Expansion</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/next-gen-banking-masterclass-on-digital-transformation-and-process-automation/"><u>Next-Gen Banking: Masterclass on Digital Transformation and Process Automation</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/optimizing-your-site-with-advanced-cookiebot-technology/"><u>Optimizing Your Site with Advanced Cookiebot Technology</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/1722847007317-quick-guide-crafting-the-symbol-from-keystrokes-alone-no-touch-needed/"><u>Quick Guide: Crafting the ❤️ Symbol From Keystrokes Alone – No Touch Needed</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/strategic-growth-abbyys-commitment-to-expanding-enterprise-solutions-in-early-year-initiatives/"><u>Strategic Growth: Abbyy's Commitment to Expanding Enterprise Solutions in Early-Year Initiatives</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/streamline-your-logistics-the-power-of-smart-automation/"><u>Streamline Your Logistics: The Power of Smart Automation</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/successfully-integrating-ai-and-rpa-a-five-step-guide-leveraging-advanced-process-insight/"><u>Successfully Integrating AI and RPA: A Five-Step Guide Leveraging Advanced Process Insight</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-recover-deleted-photos-on-tecno-camon-20-premier-5g-without-backup-by-fonelab-android-recover-photos/"><u>The way to recover deleted photos on Tecno Camon 20 Premier 5G without backup.</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/twitter-video-dimensions-aspect-ratio-standards-for-2024/"><u>Twitter Video Dimensions  Aspect Ratio Standards for 2024</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/unlocking-user-engagement-with-cookiebots-advanced-tracking-solutions/"><u>Unlocking User Engagement with Cookiebot's Advanced Tracking Solutions</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/unveiling-synergy-webinar-on-analytics-automation-and-process-insight-as-interconnected-strategies/"><u>Unveiling Synergy: Webinar on Analytics Automation & Process Insight as Interconnected Strategies</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/webinar-on-smart-data-extraction-techniques-enhancing-business-insights/"><u>Webinar on Smart Data Extraction Techniques: Enhancing Business Insights</u></a></li>
+</ul></div>
