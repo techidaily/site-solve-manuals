@@ -1,7 +1,7 @@
 ---
 title: "Konstantin Anisimovich: Visionary Leader & Co-Creator of Innovative Enterprise"
-date: 2024-08-25T21:19:50.018Z
-updated: 2024-08-26T21:19:50.018Z
+date: 2024-09-03T22:40:17.014Z
+updated: 2024-09-04T22:40:17.014Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/bb9accbf9aa450f0fe34df3fa6aee3bab970d5d0da3d5945b94c06b1e59faa56.jpg
@@ -38,9 +38,6 @@ Konstantin was formerly Chief Science Officer at ABBYY and Chief Technology Offi
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://screen-recording.techidaily.com/new-in-2024-capturing-your-browsing-journey-top-2023-web-recorder-software/"><u>[New] In 2024, Capturing Your Browsing Journey  Top 2023 Web Recorder Software</u></a></li>
@@ -91,3 +88,10 @@ Konstantin was formerly Chief Science Officer at ABBYY and Chief Technology Offi
 <li><a href="https://ios-pokemon-go.techidaily.com/why-cant-i-install-the-ipogo-on-apple-iphone-se-2020-drfone-by-drfone-virtual-ios/"><u>Why cant I install the ipogo On Apple iPhone SE (2020) | Dr.fone</u></a></li>
 <li><a href="https://windows11.techidaily.com/win11-screen-reset-3-straightforward-solutions/"><u>Win11 Screen Reset: 3 Straightforward Solutions</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
+  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

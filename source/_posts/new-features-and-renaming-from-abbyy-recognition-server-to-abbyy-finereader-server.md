@@ -1,7 +1,7 @@
 ---
 title: "New Features and Renaming: From ABBYY Recognition Server to ABBYY FineReader Server"
-date: 2024-08-25T21:23:04.725Z
-updated: 2024-08-26T21:23:04.725Z
+date: 2024-09-03T22:40:20.292Z
+updated: 2024-09-04T22:40:20.292Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/74ac13432c01dd5c17161c9b4a52f81e0b445cdf2ff78bc2a59c4da0244a5a39.jpg
@@ -83,9 +83,6 @@ Vernetzen Sie sich mit uns
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://youtube-lab.techidaily.com/scending-with-expertise-mastering-the-art-and-science-of-asmr-production-for-2024/"><u>[New] Ascending with Expertise  Mastering The Art & Science of ASMR Production for 2024</u></a></li>
@@ -143,3 +140,10 @@ Vernetzen Sie sich mit uns
 <li><a href="https://android-pokemon-go.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-oneplus-open-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On OnePlus Open? | Dr.fone</u></a></li>
 <li><a href="https://solve-manuals.techidaily.com/webinar-on-smart-data-extraction-techniques-enhancing-business-insights/"><u>Webinar on Smart Data Extraction Techniques: Enhancing Business Insights</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

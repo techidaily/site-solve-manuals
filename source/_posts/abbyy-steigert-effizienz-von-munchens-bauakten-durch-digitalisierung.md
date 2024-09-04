@@ -1,7 +1,7 @@
 ---
 title: ABBYY Steigert Effizienz Von Münchens Bauakten Durch Digitalisierung
-date: 2024-08-25T21:22:08.546Z
-updated: 2024-08-26T21:22:08.546Z
+date: 2024-09-03T22:40:19.272Z
+updated: 2024-09-04T22:40:19.272Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/90c049846794e5aed031591412d4826aac7c7bd6532c5bd0d695b676cbba88c9.jpg
@@ -24,7 +24,10 @@ Government | Document Classification
 Behörden und öffentlicher Sektor | Dokumentenklassifizierung 
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Sind Sie bereit, mit einem Experten zu sprechen?
 

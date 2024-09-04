@@ -1,7 +1,7 @@
 ---
 title: ABBYY Announces Worldwide Effort to Advance Reliable and Ethical AI Technologies
-date: 2024-08-25T21:22:06.390Z
-updated: 2024-08-26T21:22:06.390Z
+date: 2024-09-03T22:40:19.241Z
+updated: 2024-09-04T22:40:19.241Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/23dc4857279699198e48a622a7713386fd30f7f47908caf6a0fe50229057f885.jpg
@@ -82,10 +82,6 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
-</a>
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-master-the-art-of-visuals-on-tiktok-with-smart-background-choices/"><u>[New] 2024 Approved  Master the Art of Visuals on TikTok with Smart Background Choices</u></a></li>
@@ -147,3 +143,10 @@ Connect with us
 <li><a href="https://howto.techidaily.com/what-to-do-when-vivo-x-flip-has-black-screen-of-death-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do When Vivo X Flip Has Black Screen of Death? | Dr.fone</u></a></li>
 <li><a href="https://solve-manuals.techidaily.com/abbyy-ai-ocr-4/"><u>パーソルグループの名刺管理システムにABBYY AI OCRを実装: モバイル且つ4枚まとめて高精度読み取り</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
+  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
