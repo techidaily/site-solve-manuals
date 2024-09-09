@@ -1,22 +1,40 @@
 ---
 title: Torsten Malchow Takes on Role of Senior VP for Worldwide Enterprise Sales at ABBYY
-date: 2024-09-03T22:40:19.745Z
-updated: 2024-09-04T22:40:19.745Z
+date: 2024-09-08T23:34:47.504Z
+updated: 2024-09-09T23:34:47.504Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f20754be61be25378c16e65b62ab87943c4b43cc2d7005b2adb1f8ded04dff01.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Torsten Malchow Takes on Role of Senior VP for Worldwide Enterprise Sales at ABBYY
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY beruft Torsten Malchow zum neuen Vice President, Head of Global Enterprise Sales
 
 12\. September 2018
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120866/26400?prodsku=mars" target="_top" id="2120866">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120866/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _Malchow soll mit seiner Erfahrung den Verkauf von Content-Intelligence-Lösungen noch stärker vorantreiben_
 
 ABBYY®, ein globaler Anbieter von Lösungen und Services für Content Intelligence, besetzt mit Torsten Malchow die Position des Vice President, Head of Global Enterprise Sales neu. Er soll die Entwicklung und Umsetzung der Verkaufsstrategie vorantreiben und ABBYYs Präsenz in spezifischen Industriezweigen und Regionen ausweiten.
@@ -115,10 +133,3 @@ Vernetzen Sie sich mit uns
 <li><a href="https://solve-manuals.techidaily.com/unlocking-growth-potential-through-cookiebot-power-solutions/"><u>Unlocking Growth Potential Through Cookiebot Power Solutions</u></a></li>
 <li><a href="https://solve-manuals.techidaily.com/pdf-finereader-pdfiphoneandroid/"><u>スクリーンショットからPDFへ: FineReader PDFというアプリはiPhone・Androidデバイスでどのように文章をスキャンしますか?</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

@@ -1,20 +1,38 @@
 ---
 title: "1. David Yang: Visionary Behind ABBYY, Leading with Strategic Insight as Board Chairman"
-date: 2024-09-03T22:40:16.455Z
-updated: 2024-09-04T22:40:16.455Z
+date: 2024-09-08T23:34:44.424Z
+updated: 2024-09-09T23:34:44.424Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/98061f90f0702266772c41039bf7505ea26afb88709675b4845f86d9c07123c1.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 1. David Yang: Visionary Behind ABBYY, Leading with Strategic Insight as Board Chairman
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## David Yang
 
 Founder and Board Director
 
 ![David Yang](https://content.abbyy.com/-/media/project/abbyy/abbyy/company/management/headshots/cards-headshots/1486x836-david-yang.jpg?h=836&iar=0&w=1486)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### David Yang is a Silicon Valley-based serial entrepreneur, founder and Board Director at ABBYY, co-founder of Yva.ai, and a member of the Band of Angels.
 
 David Yan started his first company, ABBYY, in 1989 when he was a 4th-year university student. Today ABBYY has more than 1,000 employees and is a leading developer of Intelligent Automation solutions including Artificial Intelligence, Optical Character Recognition, Intelligent Document Processing, and Process Intelligence software with offices in 14 countries. Thousands of companies and more than 50 million users in 200 countries rely on ABBYY applications and solutions.
@@ -25,6 +43,12 @@ Dr. Yang started a variety of business, creative, and educational projects: he c
 
 Dr. Yang holds numerous patents and has published several research papers and articles. His areas of interest include AI, modern art, architecture, and education. The World Economic Forum in Davos named him as one of the top 100 World Technology Pioneers.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Ready to speak with an expert?
 
 [Schedule a demo](https://tools.techidaily.com/abbyy/products/)[Get in touch](https://tools.techidaily.com/abbyy/products/)
@@ -97,10 +121,3 @@ Dr. Yang holds numerous patents and has published several research papers and ar
 <li><a href="https://solve-manuals.techidaily.com/upgrade-your-iphones-productivity-quickscanandocr-for-seamless-pdf-and-jpg-transformation-into-editable-text/"><u>Upgrade Your iPhone's Productivity: QuickScan&OCR for Seamless PDF and JPG Transformation Into Editable Text.</u></a></li>
 <li><a href="https://solve-manuals.techidaily.com/verbessern-sie-ihre-dokumentenmanagement-prozesse-mit-abbyy-und-eucon-unterstutzung/"><u>Verbessern Sie Ihre Dokumentenmanagement-Prozesse Mit ABBYY Und Eucon Unterstützung</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

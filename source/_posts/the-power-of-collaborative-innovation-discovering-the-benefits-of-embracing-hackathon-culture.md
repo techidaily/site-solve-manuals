@@ -1,16 +1,28 @@
 ---
 title: "The Power of Collaborative Innovation: Discovering the Benefits of Embracing Hackathon Culture"
-date: 2024-09-03T22:40:17.188Z
-updated: 2024-09-04T22:40:17.188Z
+date: 2024-09-08T23:34:45.009Z
+updated: 2024-09-09T23:34:45.009Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a0065ec58e14aa7a294fd33338e90d4d15fa577ac0b3dd7d4dd7c6264c50f140.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## The Power of Collaborative Innovation: Discovering the Benefits of Embracing Hackathon Culture
 
 [Back to The Intelligent Enterprise](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Why We Believe in Hackathons, and Why You Should Too
 
 ###### by Rahul Kapoor, Partner Innovation and Enablement
@@ -33,6 +45,18 @@ At ABBYY, we believe that companies should consider integrating hackathons into 
 
 ![ABBYY Hackathon-photo](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/intelligent-enterprise/content-media/hackathon-photo.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1975648">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 The most tangible benefit of hackathons for enterprises is the opportunity to learn about their own technology in a controlled environment. Tasking a room full of curious technology enthusiasts with finding novel applications—or weaknesses—of a solution is sure to generate useful insight into its intricacies. When coupled with the easily accessible interfaces of low-code/no-code platforms like [ABBYY Vantage](https://tools.techidaily.com/abbyy/products/) and [Timeline](https://tools.techidaily.com/abbyy/products/), developers can delve into the technology with few barriers and become familiar enough to design innovative solutions within the allotted time.
 
 As such, hackathons could uncover new use cases for technologies that enterprises could further consider or pursue. On the other hand, it could expose previously unseen vulnerabilities and allow for their correction before reaching the hands of consumers. No matter which goal is prioritized, a hackathon serves as an incubator for rapidly accelerating products’ maturity.
@@ -205,10 +229,3 @@ Connect with us
 <li><a href="https://solve-manuals.techidaily.com/understanding-web-pages-key-elements-and-optimization-strategies/"><u>Understanding Web Pages: Key Elements and Optimization Strategies</u></a></li>
 <li><a href="https://solve-manuals.techidaily.com/webinar-invitation-strategies-for-safeguarding-finances-from-fraud-and-money-laundering/"><u>Webinar Invitation: Strategies for Safeguarding Finances From Fraud & Money Laundering</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
-  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

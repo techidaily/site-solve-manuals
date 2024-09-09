@@ -1,22 +1,40 @@
 ---
 title: "Cookiebot-Enabled: Optimize Your Site with Smart Tracking Technology"
-date: 2024-09-03T22:40:16.629Z
-updated: 2024-09-04T22:40:16.629Z
+date: 2024-09-08T23:34:44.584Z
+updated: 2024-09-09T23:34:44.584Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e3528d506823cb6dca25eee03d51754fbb17fe96f4d59ce559e11e5be6c55331.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Cookiebot-Enabled: Optimize Your Site with Smart Tracking Technology
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Scott Opitz wird neuer Chief Marketing Officer von ABBYY
 
 11\. Februar 2020
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [ABBYY](https://tools.techidaily.com/abbyy/products/), ein globaler Anbieter von Technologien und Unternehmenslösungen für Digital Intelligence, ernennt Scott Opitz zum neuen Chief Marketing Officer. Er tritt die Nachfolge von Jupp Stoepetie an, der sich nach 20-jähriger Betriebszugehörigkeit in den Ruhestand verabschiedet.
 
 Scott Opitz verfügt über 30 Jahre Erfahrung in der Computerindustrie und fungierte als Präsident für den Bereich ABBYY Process Intelligence seit der Übernahme der TimelinePI Inc. durch ABBYY im August. Er ist Mitbegründer und CEO von TimelinePI Inc.. In seiner Rolle als President Process Intelligence bei ABBYY beaufsichtigte er bisher die Integration der Process Intelligence-Lösungen von TimelinePI (jetzt ABBYY Timeline) in die globalen Verkaufs- und Vertriebskanäle von ABBYY und trieb die Integration von Timeline-Lösungen und dem restlichen ABBYY-Portfolio voran.
@@ -118,10 +136,3 @@ Vernetzen Sie sich mit uns
 <li><a href="https://solve-manuals.techidaily.com/verbessern-sie-ihre-dokumentenmanagement-prozesse-mit-abbyy-und-eucon-unterstutzung/"><u>Verbessern Sie Ihre Dokumentenmanagement-Prozesse Mit ABBYY Und Eucon Unterstützung</u></a></li>
 <li><a href="https://solve-manuals.techidaily.com/abbyy-ai-ocr-4/"><u>パーソルグループの名刺管理システムにABBYY AI OCRを実装: モバイル且つ4枚まとめて高精度読み取り</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

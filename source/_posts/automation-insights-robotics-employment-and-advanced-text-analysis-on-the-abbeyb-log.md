@@ -1,22 +1,46 @@
 ---
 title: Automation Insights - Robotics, Employment & Advanced Text Analysis on the ABBEYB Log
-date: 2024-09-03T22:40:19.341Z
-updated: 2024-09-04T22:40:19.341Z
+date: 2024-09-08T23:34:47.137Z
+updated: 2024-09-09T23:34:47.137Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f795cb8f05b5f5e2a9428472b69cf514c64baf04e642ab24591a56b8d090783a.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Automation Insights - Robotics, Employment & Advanced Text Analysis on the ABBEYB Log
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118321/7443" target="_top" id="2118321">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118321" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118321/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Robots, Jobs and Text Analytics
 
 May 11, 2018
 
 ![How deployment of robots will affect the workplace; working with robots | ABBYY Blog Post](https://static5.abbyy.com/abbyycommedia/25286/9181e_smm_robots-jobs-and-text-analytics_2blog.png) 
 
+<!-- affiliate ads begin -->
+<span id="1304647">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 One of the most popular discussions around digital transformation is how deployment of robots will affect the workplace.
 
 While the effect of robotization on individual jobs remains a sensitive issue, benefits to businesses are already clear. No wonder investors have already injected $4 billion into 4,000 AI vendors that want to concentrate on RPA. Furthermore, [Forrester](https://cdn2.hubspot.net/hubfs/416323/UiPathForward%20Americas%202017/UiPathForward%20Americas%20Presentations/%23UiPathForward%20Americas%202017%20Forrester%20Keynote.pdf?t=1513016415391) estimates the RPA and AI market to escalate to $50 billion in 2020 from an estimated $3 billion in 2018\. Primary drivers for investment center around improving operations and reducing processing errors, as well as enabling workers to better serve customers.
@@ -41,6 +65,18 @@ To address this trend, last week [ABBYY launched an AI-based managed service](ht
 
 [Artificial Intelligence (AI)](https://www.abbyy.com/blog/artificial-intelligence-ai/ "Artificial Intelligence (AI)") [Intelligent Document Processing (IDP)](https://www.abbyy.com/blog/intelligent-document-processing-idp/ "Intelligent Document Processing (IDP)") [Robotic Process Automation (RPA)](https://www.abbyy.com/blog/robotic-process-automation-rpa/ "Robotic Process Automation (RPA)") [Data Privacy](https://tools.techidaily.com/abbyy/products/) [Financial Services](https://tools.techidaily.com/abbyy/products/) [Healthcare](https://tools.techidaily.com/abbyy/products/) [Insurance](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<span id="1743243">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 
@@ -147,10 +183,3 @@ Connect with us
 <li><a href="https://solve-manuals.techidaily.com/understanding-web-pages-key-elements-and-optimization-strategies/"><u>Understanding Web Pages: Key Elements and Optimization Strategies</u></a></li>
 <li><a href="https://solve-manuals.techidaily.com/webinar-invitation-strategies-for-safeguarding-finances-from-fraud-and-money-laundering/"><u>Webinar Invitation: Strategies for Safeguarding Finances From Fraud & Money Laundering</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

@@ -1,16 +1,28 @@
 ---
 title: Leverage Cookiebot Technology for Enhanced Online Advertising Success
-date: 2024-09-03T22:40:19.672Z
-updated: 2024-09-04T22:40:19.672Z
+date: 2024-09-08T23:34:47.447Z
+updated: 2024-09-09T23:34:47.447Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/836b19a99b81c291189dfbcf8add59f634c1fb8aacdfd70319b10cdaec65e638.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Leverage Cookiebot Technology for Enhanced Online Advertising Success
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Photos, BCR and Social Networks, Currency Converter
 
 July 16, 2018
@@ -41,6 +53,12 @@ Loop turns your Live Photo into a video loop, Bounce makes your photo rock back 
 
 ![Long Exposure iPhone 6S Live Photos](https://static1.abbyy.com/abbyycommedia/26346/long-exposure.png)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123475/16836" target="_top" id="2123475">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123475" border="0" alt="https://techidaily.com" width="300" height="75"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123475/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Planning to take a group photo? Try Timer that sets the countdown (from 3 to 10 seconds) and lets you create amazing photos where all of your friends will make it in the shot.
 
 Camera app also enables you to modify focus and camera exposure of selected shot areas or simply make your shot darker or lighter. Click the area that you wish to modify. To turn on the auto-focus, tap and hold an object on your shot until you see the **AE/AF lock**. You can freely move your camera, the focus will be fixed on the selected spot. To adjust exposure, move the sun icon in the focus square up or down.
@@ -65,6 +83,12 @@ When you enable the Pano mode, your camera will display a guide bar in the middl
 
 ![ios iphone camera pano mode](https://static1.abbyy.com/abbyycommedia/26348/ios10-iphone7-camera-pano-mode-502x1024.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Video mode**
 
 Take a regular video with the Video mode. But before recording it take a moment and think where you will show it. This will decide the orientation, either horizontally or vertically, and the resolution of your file. If you intend to display your masterpiece on a high-quality big screen, opt for 4K. But remember, the higher the resolution, the more space a photo takes up in your iPhone! To activate 4K, go to **Settings** → **Camera** → **Record Video** → **4K at 30 fps**.
@@ -97,24 +121,24 @@ The Pro mode allows you to take professional photos with three types of settings
 
 ![exposure Pro mode Camera Android](https://static1.abbyy.com/abbyycommedia/26350/exposure-1.png)
 
-<!-- affiliate ads begin -->
-<span id="1975636">
-					<video width="80" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Dynamic focus**
 
 Want to add a blurry background on Samsung S8? There is no need to install third-party applications for this purpose. Camera on Samsung features three types of focusing: close, far, and panoramic. Dynamic focusing lets you adjust image sharpness and focus depth. With this mode, you may take portrait images of two types: regular and wide angle.
 
 ![Dynamic focus Camera Android Samsung S8](https://static1.abbyy.com/abbyycommedia/26351/dynamic-focus-1.png)
 
+<!-- affiliate ads begin -->
+<span id="1424528">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Dual Pixel technology**
 
 [Dual Pixel](https://www.gsmarena.com/samsungs%5Fdual%5Fpixel%5Ftech%5Fis%5Flike%5Fcanons%5Fdual%5Fpixel%5Fauto%5Ffocus-news-16805.php) enables you to take focused pictures in motion and in places with bad lighting. This technology will catch every moment even if you are on the move.
@@ -125,18 +149,6 @@ Samsung surely follows modern trends. The frontal camera of Samsung [S8](https:/
 
 ![Samsung S8 Selfie photo Android](https://static1.abbyy.com/abbyycommedia/26352/stickers.png)
 
-<!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Object recognition**
 
 Samsung camera is trained to recognized objects on photos and search for similar images in the internet with the [Bixby](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.samsung.com%2Fglobal%2Fgalaxy%2Fapps%2Fbixby%2F) assistant. To activate Bixby, click the special button on your phone. Point your camera at an object or a landscape and the assistant will display related images and links that you can follow to buy these objects on the internet.
@@ -146,10 +158,10 @@ Samsung camera is trained to recognized objects on photos and search for similar
 Just like iPhone, Samsung lets you record 4K videos. To configure the quality or other settings of photo taking, go to Settings at the top panel of the camera app. You can also record slow-mo videos.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **ABBYY Tip: How to Add Data From Social Networks to BCR**
 
@@ -172,10 +184,16 @@ If your [BCR](http://qrs.ly/ip56xfe)contact lacked a photo, it will be added fro
 [BCR](http://qrs.ly/ip56xfe) will save a link to a Facebook or LinkedIn profile in a business card so that you can open a social network page at anytime.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1938136">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **App of the Week: Valuta+ Currency Converter**
 
@@ -188,16 +206,10 @@ This user-friendly app converts over 170 currencies, works offline, and has a fa
 Valuta+ can be downloaded from [iOS](https://itunes.apple.com/us/app/valuta-currency-converter/id646925682?mt=8) and [Android](https://play.google.com/store/apps/details?id=com.danielnoehr.valuta&hl=en%5FUS).
 
 <!-- affiliate ads begin -->
-<span id="1531879">
-					<video width="540" height="960" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2128843/7443" target="_top" id="2128843">
+  <img src="//a.impactradius-go.com/display-ad/7443-2128843" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128843/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **First-Hand Experience: Advice From a Colleague**
 
@@ -224,10 +236,10 @@ P.S. Go [here](https://tools.techidaily.com/abbyy/products/), to check our previ
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Like, share or repost
 

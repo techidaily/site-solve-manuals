@@ -1,12 +1,18 @@
 ---
 title: Smart Automation Lösungen Für Die Versicherungswirtschaft
-date: 2024-09-03T22:40:19.116Z
-updated: 2024-09-04T22:40:19.116Z
+date: 2024-09-08T23:34:46.899Z
+updated: 2024-09-09T23:34:46.899Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/acf1543a08c93a8277bd32ca8ca0045c1e81ebd5061ccbafdfe3582cd05fb8bf.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Smart Automation Lösungen Für Die Versicherungswirtschaft
 
 [Back to Webinars](https://tools.techidaily.com/abbyy/products/)
@@ -15,69 +21,45 @@ thumbnail: https://thmb.techidaily.com/acf1543a08c93a8277bd32ca8ca0045c1e81ebd50
 
 German
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Sprecher
 
 ![45 Marcobrandt 198X198](https://static5.abbyy.com/abbyycommedia/35555/agila-logo-forspeakers-136x44.jpg) 
 
 ![45 Marcobrandt 198X198](https://static4.abbyy.com/abbyycommedia/29484/45-marcobrandt-198x198.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2024326/7443" target="_top" id="2024326">
-  <img src="//a.impactradius-go.com/display-ad/7443-2024326" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024326/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Marco Brandt
 
 Leiter Marketing & Vertrieb, **AGILA Haustierversicherung**
 
 ![46 Christianmichel 198X198](https://static3.abbyy.com/abbyycommedia/29492/insinno-logo-forspeakers.png) 
 
-<!-- affiliate ads begin -->
-<span id="1977028">
-					<video width="80" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![46 Christianmichel 198X198](https://static5.abbyy.com/abbyycommedia/29481/46-christianmichel-198x198.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2031472/7443" target="_top" id="2031472">
-  <img src="//a.impactradius-go.com/display-ad/7443-2031472" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2031472/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Christian Michel
 
 Gründer und CEO, **insinno**
 
 ![Falkhoessler 198X198](https://static3.abbyy.com/abbyycommedia/29492/insinno-logo-forspeakers.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Falkhoessler 198X198](https://static1.abbyy.com/abbyycommedia/35556/falkhoessler-198x198.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Falk Hößler
 
@@ -88,8 +70,48 @@ Project Manager, **insinno**
 ![02 Alexandrejanicki 198X198](https://static2.abbyy.com/abbyycommedia/25101/02-alexandrejanicki-198x198.png)
 
 <!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### Alexandre Janicki
+
+Senior Enterprise Sales Manager, **ABBYY**
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### Übersicht
+
+In diesem praxisorientierten Webinar mit Marco Brandt, Leiter Marketing & Vertrieb bei der AGILA Haustierversicherung sowie Christian Michel und Falk Hößler von insinno, präsentieren wir Ihnen, wie der Einsatz von Robotern, künstlicher Intelligenz, Low Code und Cloud-Lösungen die internen Prozesse des etablierten Versicherungsunternehmens revolutioniert hat. Innerhalb von drei Monaten konnte 25% Dunkelverarbeitung von Rechnungen und Faxen erreicht werden!
+
+<!-- affiliate ads begin -->
+<span id="1982457">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### Folgende Themen erwarten Sie:
+
+* Welche Technologien braucht eine moderne und agile Versicherung?
+* „Quality Gate“ oder wie man mit schlecht fotografierten Rechnungen umgeht
+* Wie Sie von innovativen Technologien am Beispiel von AGILA profitieren können
+
+Weitere Informationen zu dieser Lösung erhalten Sie auch im Whitepaper ["Dunkelverarbeitung für Versicherungen – Robotics effektiv umsetzen" von insinno](http://eepurl.com/hfmis5 "Zum insinno-Whitepaper").
+
+<!-- affiliate ads begin -->
 <span id="1977004">
-					<video width="80" height="300" style="cursor:pointer"
+					<video width="128" height="480" style="cursor:pointer"
            poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
 	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
@@ -99,22 +121,6 @@ Project Manager, **insinno**
 </span>
 <img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-### Alexandre Janicki
-
-Senior Enterprise Sales Manager, **ABBYY**
-
-### Übersicht
-
-In diesem praxisorientierten Webinar mit Marco Brandt, Leiter Marketing & Vertrieb bei der AGILA Haustierversicherung sowie Christian Michel und Falk Hößler von insinno, präsentieren wir Ihnen, wie der Einsatz von Robotern, künstlicher Intelligenz, Low Code und Cloud-Lösungen die internen Prozesse des etablierten Versicherungsunternehmens revolutioniert hat. Innerhalb von drei Monaten konnte 25% Dunkelverarbeitung von Rechnungen und Faxen erreicht werden!
-
-### Folgende Themen erwarten Sie:
-
-* Welche Technologien braucht eine moderne und agile Versicherung?
-* „Quality Gate“ oder wie man mit schlecht fotografierten Rechnungen umgeht
-* Wie Sie von innovativen Technologien am Beispiel von AGILA profitieren können
-
-Weitere Informationen zu dieser Lösung erhalten Sie auch im Whitepaper ["Dunkelverarbeitung für Versicherungen – Robotics effektiv umsetzen" von insinno](http://eepurl.com/hfmis5 "Zum insinno-Whitepaper").
-
 ### Webinar-Aufzeichnung hier anfordern
 
 ### Get in touch with us
@@ -122,18 +128,24 @@ Weitere Informationen zu dieser Lösung erhalten Sie auch im Whitepaper ["Dunkel
 Please note that progressive profiling is used on this form to incrementally collect profile data over time.   
 All personal information collected via this method is under full scope of all provisions in our privacy policy.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123477/16836" target="_top" id="2123477">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123477" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123477/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Vielen Dank! Wir wünschen Ihnen viel Spaß mit dem Webinar.
 
 [![15 Intelligente Automatisierung Für Die Versicherungsbranche](https://static5.abbyy.com/abbyycommedia/29848/15-intelligente-automatisierung-fu-r-die-versicherungsbranche.jpg)](https://www.youtube.com/watch?v=qJezOw9ovtg) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### Haben Sie weiterführende Fragen oder möchten Sie mit uns über ein konkretes Projekt sprechen? [Kontaktieren Sie uns.](https://tools.techidaily.com/abbyy/products/)
 
 #### Please fill in this form to watch the webinar:

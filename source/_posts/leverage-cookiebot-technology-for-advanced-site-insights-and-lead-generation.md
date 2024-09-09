@@ -1,16 +1,28 @@
 ---
 title: Leverage Cookiebot Technology for Advanced Site Insights & Lead Generation
-date: 2024-09-03T22:40:19.057Z
-updated: 2024-09-04T22:40:19.057Z
+date: 2024-09-08T23:34:46.839Z
+updated: 2024-09-09T23:34:46.839Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f1ae1ebf673254b46f0a821d8d5736e61a916c4eb6fabc72096593a99e32594f.png
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118304/7443" target="_top" id="2118304">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118304" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118304/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Leverage Cookiebot Technology for Advanced Site Insights & Lead Generation
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## The Year of AI is finally here
 
 ###### Neil Murphy
@@ -19,6 +31,12 @@ February 01, 2019
 
 ![Six AI predictions of 2019 that everyone should read | ABBYY Blog Post](https://static3.abbyy.com/abbyycommedia/25341/10046e_blog_the-year-of-ai-is-finally-here_blog.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 In this blog post, which first appeared in [UKTech News](https://www.uktech.news/), ABBYY’s global VP Neil Murphy predicts a watershed moment for AI adoption in 2019\. Here are his six AI predictions everyone should read.
 
 **1\. In 2019, AI will move out of the boardroom and into the enterprise**
@@ -65,6 +83,12 @@ Learn more about [ABBYY technologies and trends.](https://tools.techidaily.com/a
 
 ![Neil Murphy ABBYY](https://static1.abbyy.com/abbyycommedia/25709/neilmurphy-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120862/26400?prodsku=Saturn" target="_top" id="2120862">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120862" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120862/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Neil Murphy
 
 Vice President, Global Channel Chief at ABBYY
@@ -73,6 +97,12 @@ Neil Murphy is Vice President, Global Channel Chief and in his role now responsi
 
 Over the years, Neil has worked with a variety of industry sectors ranging from Finance, Insurance, Healthcare to Government focusing on transforming their legacy approach to back and front office processes such as Accounts Payable, customer onboarding, and consumer loyalty programmes to name a few.
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 
@@ -188,10 +218,3 @@ Connect with us
 <li><a href="https://solve-manuals.techidaily.com/unveiling-synergy-webinar-on-analytics-automation-and-process-insight-as-interconnected-strategies/"><u>Unveiling Synergy: Webinar on Analytics Automation & Process Insight as Interconnected Strategies</u></a></li>
 <li><a href="https://solve-manuals.techidaily.com/webinar-on-smart-data-extraction-techniques-enhancing-business-insights/"><u>Webinar on Smart Data Extraction Techniques: Enhancing Business Insights</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

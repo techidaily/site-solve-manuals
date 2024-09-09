@@ -1,22 +1,40 @@
 ---
 title: ABBYY Announces Worldwide Effort to Advance Reliable and Ethical AI Technologies
-date: 2024-09-03T22:40:19.241Z
-updated: 2024-09-04T22:40:19.241Z
+date: 2024-09-08T23:34:47.027Z
+updated: 2024-09-09T23:34:47.027Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/23dc4857279699198e48a622a7713386fd30f7f47908caf6a0fe50229057f885.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Announces Worldwide Effort to Advance Reliable and Ethical AI Technologies
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123475/16836" target="_top" id="2123475">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123475" border="0" alt="https://techidaily.com" width="300" height="75"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123475/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Blue Prism Automates SBA PPP Loan Processing at Banks Saving More Than 85,000 Jobs and Helping Small Businesses Stay Afloat
 
 June 10, 2020
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123469/16836" target="_top" id="2123469">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123469" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123469/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _Proven Solution Supports Rounds of Federal Funding, Enabling Same-Day Processing of Thousands of Applications from Submissions, Bank Review, Underwriting, SBA Reporting, Approvals and Payment_
 
 [Blue Prism](http://www.blueprism.com/) has teamed-up with [Lateetud](https://www.lateetud.com/) and [ABBYY](https://tools.techidaily.com/abbyy/products/) to support the US government’s latest COVID-19 relief efforts for small businesses, by helping to automate loan applications during the two rounds of funding, $349 billion and $310 billion respectively, allocated by Congress as part of its [SBA Paycheck Protection Program (PPP)](https://www.sba.gov/). The solution, currently being used by several U.S. banks, uses Digital Workers to automate process loan applications in a matter of seconds, for same-day approvals.
@@ -143,10 +161,3 @@ Connect with us
 <li><a href="https://howto.techidaily.com/what-to-do-when-vivo-x-flip-has-black-screen-of-death-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do When Vivo X Flip Has Black Screen of Death? | Dr.fone</u></a></li>
 <li><a href="https://solve-manuals.techidaily.com/abbyy-ai-ocr-4/"><u>パーソルグループの名刺管理システムにABBYY AI OCRを実装: モバイル且つ4枚まとめて高精度読み取り</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
-  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

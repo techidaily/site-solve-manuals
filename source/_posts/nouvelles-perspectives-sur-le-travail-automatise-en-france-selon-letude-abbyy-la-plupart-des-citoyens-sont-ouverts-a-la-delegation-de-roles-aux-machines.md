@@ -1,22 +1,40 @@
 ---
 title: "Nouvelles Perspectives Sur Le Travail Automatisé en France Selon L’Étude ABBYY : La Plupart Des Citoyens Sont Ouverts À La Délegation De Rôles Aux Machines"
-date: 2024-09-03T22:40:15.408Z
-updated: 2024-09-04T22:40:15.408Z
+date: 2024-09-08T23:34:43.498Z
+updated: 2024-09-09T23:34:43.498Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4a46c3579169964c63d7bb3ef156723da1c897ffca7f03ef7871aadd312df806.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Nouvelles Perspectives Sur Le Travail Automatisé en France Selon L’Étude ABBYY : La Plupart Des Citoyens Sont Ouverts À La Délegation De Rôles Aux Machines
 
 [Actualités](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123480/16836" target="_top" id="2123480">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123480" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123480/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Étude ABBYY : plus de la moitié des Français souhaite déléguer du travail à des robots
 
 27 mars 2019
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2135475/26400" target="_top" id="2135475">
+  <img src="//a.impactradius-go.com/display-ad/26400-2135475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135475/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 * _58 % des Français souhaitent déléguer une partie de leurs tâches quotidiennes en entreprise aux robots_
 * _La participation à des réunions spécifiques, la relecture de longs documents et l’enregistrement manuel du temps de travail sont les trois tâches les moins appréciées par les Français_
 * _29 % des Français choisissent de reporter la réalisation des missions qu’ils apprécient le moins_
@@ -133,10 +151,3 @@ Connect with us
 <li><a href="https://hardware-tips.techidaily.com/unveiling-the-latest-in-technology-through-toms-eyes/"><u>Unveiling the Latest in Technology Through Tom's Eyes</u></a></li>
 <li><a href="https://solve-manuals.techidaily.com/zeitreisen-durch-digitalisierung-abbyy-verbindet-universitatsbibliothek-frankfurt-mit-der-vergangenheit/"><u>Zeitreisen Durch Digitalisierung – ABBYY Verbindet Universitätsbibliothek Frankfurt Mit Der Vergangenheit</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

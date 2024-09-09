@@ -1,22 +1,46 @@
 ---
 title: Empowering Your Website's Performance with the Cookiebot Solution for Search Engines
-date: 2024-09-03T22:40:18.892Z
-updated: 2024-09-04T22:40:18.892Z
+date: 2024-09-08T23:34:46.679Z
+updated: 2024-09-09T23:34:46.679Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4b5562ff0db20c13529d0f69be32d5c21c69778a6a352420334c0743deb0bfe7.png
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Empowering Your Website's Performance with the Cookiebot Solution for Search Engines
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Marlin Equity Partnersからの新たな投資がABBYYに意味すること
 
 6月30日, 2021
 
 ![](https://static2.abbyy.com/abbyycommedia/33048/marlin-blog-cover-1.jpg) 
 
+<!-- affiliate ads begin -->
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 5月11日に、ABBYYはテクノロジー分野にフォーカスしたグローバル投資企業である[Marlin Equity Partners](https://www.marlinequity.com/)による巨額の投資を公表。この投資により、同社はABBYYの筆頭株主となりました。この投資について、当社は次の理由から今後の活動に大きな期待を寄せています。まず、この投資は会社の成長の促進につながります。そしてABBYYが誇る高評価の世界的な革新技術であるDigital Intelligenceのプロダクトポートフォリオの歩みをさらに進めるために、必要となる資本が提供されます。
 
 5,000を超える顧客が、金融や医療、サプライチェーン、保険といったさまざまな業界で当社のソリューションを活用しています。PwC、FDA、Siemens、Deutsche Post DHL、PepsiCo、Volkswagenといった名だたるグローバル企業にABBYYソリューションをすでに利用していただいていることを光栄に思います。
@@ -27,6 +51,12 @@ thumbnail: https://thmb.techidaily.com/4b5562ff0db20c13529d0f69be32d5c21c69778a6
 
 ![two people wearing glasses smiling](https://static1.abbyy.com/abbyycommedia/32435/b-13.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115917/19272" target="_top" id="2115917">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115917" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115917/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 従業員あってこそのABBYYです。当社は、従業員の成長に必要なツールやスキルを投じ、引き続き投資していくことを計画しています。開発者から財務・営業・マーケティング担当まで、世界を舞台に[優れた人材を採用すること](https://tools.techidaily.com/abbyy/products/)もその計画の対象です。従業員が、家庭と社会のニーズでバランスを取りながらも、仕事で力を発揮できると感じられる、心をつかむ多様性に満ちた文化を醸成します。
 
 この投資にABBYYが期待を寄せる理由を、当社のパートナーや顧客に実際に確かめていただけることを願います。MarlinはこれまでABBYYが収めてきた業績に多大な価値を見いだし、頼れる成長志向のパートナーとして当社の新たな成長を導いてくれる存在です。
@@ -41,6 +71,12 @@ thumbnail: https://thmb.techidaily.com/4b5562ff0db20c13529d0f69be32d5c21c69778a6
 
 [エンタープライズ](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### いいね！、シェア、再投稿
 
 シェア 
@@ -143,10 +179,3 @@ Connect with us
 <li><a href="https://solve-manuals.techidaily.com/virtual-town-hall-webinar-on-enhancing-ap-support-services/"><u>Virtual Town Hall Webinar on Enhancing AP Support Services</u></a></li>
 <li><a href="https://howto.techidaily.com/why-your-xiaomi-civi-3-disney-100th-anniversary-edition-screen-might-be-unresponsive-and-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Your Xiaomi Civi 3 Disney 100th Anniversary Edition Screen Might be Unresponsive and How to Fix It | Dr.fone</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

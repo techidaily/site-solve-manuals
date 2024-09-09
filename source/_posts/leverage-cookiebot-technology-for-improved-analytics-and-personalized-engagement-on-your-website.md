@@ -1,7 +1,7 @@
 ---
 title: Leverage Cookiebot Technology for Improved Analytics and Personalized Engagement on Your Website
-date: 2024-09-03T22:40:19.080Z
-updated: 2024-09-04T22:40:19.080Z
+date: 2024-09-08T23:34:46.863Z
+updated: 2024-09-09T23:34:46.863Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7b8336f5215e637e754158b1429078ceab1fa3c341406711596b3493655e21bb.jpg
@@ -11,6 +11,18 @@ thumbnail: https://thmb.techidaily.com/7b8336f5215e637e754158b1429078ceab1fa3c34
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<span id="1993654">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## On Recording Phone Calls, Sharing Business Cards, and Jogging
 
 May 14, 2018
@@ -35,6 +47,18 @@ Using [TapeACall](https://itunes.apple.com/us/app/tapeacall-lite-call-recorder/i
 
 [Callwrite](https://callwrite.ru/)is a call recording service originating from Russia. To record a call, you simply need to add the service as one of the participants. A couple of minutes after the call is ended, you will get a notification saying that the audio of the call is now available to you. The audio file will be stored for 72 hours. To listen to the call again or to download it onto your device as an MP3 file, you must log in to your account select a plan, and pay for the service.
 
+<!-- affiliate ads begin -->
+<span id="1983446">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Android Tip: How to Record a Phone Call**
 
 What makes Android so versatile is the infinite number of apps on Google Play that can be used to extend its capabilities. Some manufacturers of Android-based devices have already included a call recording feature into their adaptation of the operating system. Here’s our choice of top three call recording apps.
@@ -44,10 +68,10 @@ What makes Android so versatile is the infinite number of apps on Google Play th
 ![Automatic Call Recorder app android](https://static1.abbyy.com/abbyycommedia/26259/automatic-call-recorder-android.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2030381/7443" target="_top" id="2030381">
-  <img src="//a.impactradius-go.com/display-ad/7443-2030381" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2030381/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Besides saving your calls as audio files locally, you can also save them to Dropbox or Google Drive. This is handy if you want to be able to access these files from other devices as well. You can save to 3GP, AMR or WAV.
 
@@ -62,10 +86,10 @@ Be warned: Google Voice is only available within the US. The service allows you 
 ![Cube Call Recorder ACR android](https://static1.abbyy.com/abbyycommedia/26261/acr.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Unlike the other apps in this review, [Cube Call Recorder ACR](https://play.google.com/store/apps/details?id=com.catalinagroup.callrecorder&hl=en%5FUS) will also record voice calls in Skype, Telegram, WhatsApp, Facebook Messenger, and Viber. Note that this feature may be unavailable on some devices. The most practical way to find out if your device is supported is to install the app and try it out.
 
@@ -74,10 +98,10 @@ By default, Cube Call Recorder ACR will record all calls, but you can add phone 
 Please remember to inform the other party that you’re going to record the call.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **ABBYY Tip: iMessage for BCR**
 
@@ -91,12 +115,6 @@ Did you know that you could send your business card from [BCR iOS](http://qrs.ly
 
 ![ABBYY iMessage for BCR card scanner](https://static1.abbyy.com/abbyycommedia/26262/bcr-imessage.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
-  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Now when you want to send a business card using iMessage:
 
 1. Go to the conversation, tap the App Store button next to the text box, and select BCR.
@@ -104,6 +122,12 @@ Now when you want to send a business card using iMessage:
 
 The addressee will receive your card in VCF format and will be able to save it directly to their **Contacts**. Nifty!
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **App of the week: Does Not Commute**
 
 Does Not Commute is a simple driving strategy that can be very annoying at the beginning, as you will be punished for every bad tap. However, as you get deeper into the game you will become more tolerant of other people on the road.
@@ -113,21 +137,21 @@ Your task is to map routes for several cars within a limited time (you’ll have
 ![App Does Not Commute drive car](https://static1.abbyy.com/abbyycommedia/26263/does-not-commute.png)
 
 <!-- affiliate ads begin -->
-<span id="1977028">
-					<video width="80" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 The action takes place in a small town in the 1970s, the townsfolk (i.e. the drivers) have their own quirks, strange hobbies, and skeletons in the cupboard, which you will discover as you progress in the game. Theoretically, you can get to the top level free of charge, but you’ll have to do it in just one try. Or you can pay USD 1.99 to be able to save anywhere at a checkpoint.
 
 Available on [iOS](https://itunes.apple.com/us/app/does-not-commute/id971756507?mt=8)and [Android](https://play.google.com/store/apps/details?id=com.mediocre.commute&hl=ru).
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## First-Hand Experience: Advice From a Colleague
 
 _By Sofiya Semenova, Head of Internal Communication and CSR_
@@ -135,16 +159,10 @@ _By Sofiya Semenova, Head of Internal Communication and CSR_
 ![Sofiya](https://static1.abbyy.com/abbyycommedia/26264/sofiya.jpg)
 
 <!-- affiliate ads begin -->
-<span id="2127886">
-					<video width="360" height="640" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Spring is in the air and we are all tempted to spend more time outdoors. No more excuses for staying in. Why not mix fitness with pleasure, then? Jogging may be an ideal outdoor sport for many, as there’s no initial outlay on expensive sports gear and you can jog almost anywhere you like. Perhaps the hardest thing for many is making their first steps. But it’s not that hard, really. All you need is… well, run.
 

@@ -1,24 +1,54 @@
 ---
 title: Deloitte Et ABBYY Unissent Forces Pour Transformer Les Processus Opérationnels Clientiels Par L'Automatisation
-date: 2024-09-03T22:40:16.001Z
-updated: 2024-09-04T22:40:16.001Z
+date: 2024-09-08T23:34:44.019Z
+updated: 2024-09-09T23:34:44.019Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0c6d2fd1a73159563e57dda315b30eb330741092cc6760e2a82edb3563c1b5c8.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Deloitte Et ABBYY Unissent Forces Pour Transformer Les Processus Opérationnels Clientiels Par L'Automatisation
 
 [Actualités](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<span id="1975503">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Deloitte et ABBYY s’associent pour automatiser les processus métier de leurs clients
 
 23 mars 2022
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![News Partners7](https://static2.abbyy.com/abbyycommedia/33722/news-partners7.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Le cabinet de conseil Deloitte Luxembourg et le spécialiste de l’Intelligent Automation ABBYY [s’associent](https://tools.techidaily.com/abbyy/products/) afin d’aider leurs clients à accélérer leurs processus métier et à accroître leur rentabilité. Deloitte Luxembourg enrichit son portefeuille avec les technologies de traitement intelligent des documents d’ABBYY, qui combinent des fonctionnalités avancées de traitement du langage naturel (NLP), d’apprentissage automatique (ML) et d’OCR.
 
 ABBYY propose la plateforme Process Automation professionnelle la plus avancée au monde. La solution Intelligent Document Processing (IDP) d’ABBYY fournit non seulement une reconnaissance de texte et d’image de pointe, mais aussi une technologie de conversion des documents qui peut être facilement combinée aux principales plateformes Intelligent Automation. L’outil peut traiter tout type de document – depuis des formulaires simples jusqu’à des documents complexes et non structurés –, quelle que soit la tâche – d’un seul document à un lot entier soumis à des accords de niveau de service (SLA) stricts. ABBYY aide ainsi les entreprises à mieux comprendre tous les types de données dont elles disposent, qu’elles soient structurées (comme les rapports) ou non structurées (les e-mails, par exemple).
@@ -37,37 +67,25 @@ Vous retrouves plus d’infos concernant la technologie d’ABBYY sur [cette pag
 
 Avec plus de 130 Partners et 2 300 employés, Deloitte Luxembourg est un des cabinets de conseil professionnels les plus importants, les plus solides et les plus anciens du Grand-Duché. Depuis plus de 70 ans, des équipes talentueuses servent des clients actifs dans des secteurs variés et offrent des services à forte valeur ajoutée à des clients nationaux et internationaux dans les domaines de l’audit et de l’assurance, du conseil, du conseil financier, du conseil en matière de risques, de la fiscalité et des services connexes. Deloitte Luxembourg fait partie du réseau mondial de Deloitte, qui est présent dans plus de 150 pays et territoires et sert quatre entreprises sur cinq du Fortune Global 500\. Découvrez comment les collaborateurs de Deloitte ont un impact sur [www.deloitte.com/lu](http://www.deloitte.com/lu).
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### À propos d’ABBYY
 
 ABBYY est la force motrice de l’automatisation intelligente. Nous révolutionnons la façon dont les gens travaillent et aidons les entreprises à accélérer leurs opérations en leur apportant l’intelligence qui alimente les plateformes d’automatisation. Nos solutions transforment les données d’entreprise et fournissent les informations nécessaires pour travailler plus intelligemment et plus rapidement. Basé dans les États-Unis et avec des filiales dans quinze pays, nous aidons plus de 5 000 organisations de par le monde, dont un grand nombre d’entreprises du Fortune 500, à faire des progrès au niveau de l’expérience client, la rentabilité et l’avantage concurrentiel. Pour plus d’informations, rendez-vous sur [www.abbyy.com/company/about-us](https://tools.techidaily.com/abbyy/products/) et suivez-nous sur LinkedIn, Twitter et Facebook.
 
 <!-- affiliate ads begin -->
-<span id="1495277">
-					<video width="960" height="540" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115914/19272" target="_top" id="2115914">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115914" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115914/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Contact presse
 
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118304/7443" target="_top" id="2118304">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118304" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118304/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 #### Bianca Stupp
 

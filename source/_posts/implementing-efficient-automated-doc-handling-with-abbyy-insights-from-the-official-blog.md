@@ -1,22 +1,46 @@
 ---
 title: "Implementing Efficient Automated Doc Handling with ABBYY: Insights From the Official Blog"
-date: 2024-09-03T22:40:15.339Z
-updated: 2024-09-04T22:40:15.339Z
+date: 2024-09-08T23:34:43.425Z
+updated: 2024-09-09T23:34:43.425Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/bdc516c407f1c047ce69fce10934901af5b77e56306af6bf8cabd1b35043cc3e.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1531882">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Implementing Efficient Automated Doc Handling with ABBYY: Insights From the Official Blog
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Putting Automated Document Processing Into Action
 
 December 21, 2017
 
 ![Kryon Systems AI-based solution of choice is ABBYY FlexiCapture | ABBYY Blog Post](https://static2.abbyy.com/abbyycommedia/25256/8921e_smm_kryonsystems_blog.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 As Artificial Intelligence continues to shape and accelerate the way we handle information and process data, it is also helping innovation-focused companies to use new AI-infused capabilities to improve business outcomes. One example is the Tel Aviv-based Kryon Systems, a global provider of intelligent Robotic Process Automation (RPA) solution. Kryon Systems recently decided to combine AI-powered document automation technology with its RPA solutions to create a single platform for document automation and streamline invoice and purchase order processing.
 
 Kryon Systems AI-based solution of choice is ABBYY FlexiCapture, a top-of-the-line platform for automated processing of unstructured documents. By integrating FlexiCapture into its Leo RPA platform, the company will be able to offer businesses best-in-class RPA services that include the ability to parse unstructured data for invoice and purchase order processing.
@@ -35,6 +59,18 @@ Invoices, which vary by supplier, are automatically read and processed, providin
 
 [Digital Transformation](https://tools.techidaily.com/abbyy/products/) [Artificial Intelligence (AI)](https://www.abbyy.com/blog/artificial-intelligence-ai/ "Artificial Intelligence (AI)") [Robotic Process Automation (RPA)](https://www.abbyy.com/blog/robotic-process-automation-rpa/ "Robotic Process Automation (RPA)") [Intelligent Document Processing (IDP)](https://www.abbyy.com/blog/intelligent-document-processing-idp/ "Intelligent Document Processing (IDP)") 
 
+<!-- affiliate ads begin -->
+<span id="1993654">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 
@@ -146,10 +182,3 @@ Connect with us
 <li><a href="https://screen-sharing-recording.techidaily.com/which-livestreaming-tool-wins-obs-or-bandicam/"><u>Which Livestreaming Tool Wins  OBS or Bandicam?</u></a></li>
 <li><a href="https://hardware-help.techidaily.com/your-trusted-source-for-cutting-edge-pc-and-laptop-reviews-at-toms-hardware/"><u>Your Trusted Source for Cutting-Edge PC & Laptop Reviews at Tom's Hardware</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2030373/7443" target="_top" id="2030373">
-  <img src="//a.impactradius-go.com/display-ad/7443-2030373" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2030373/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

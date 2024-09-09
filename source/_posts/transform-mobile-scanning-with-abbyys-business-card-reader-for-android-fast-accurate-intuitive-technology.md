@@ -1,22 +1,40 @@
 ---
 title: "Transform Mobile Scanning with ABBYY's Business Card Reader for Android: Fast, Accurate, Intuitive Technology"
-date: 2024-09-03T22:40:18.485Z
-updated: 2024-09-04T22:40:18.485Z
+date: 2024-09-08T23:34:46.270Z
+updated: 2024-09-09T23:34:46.270Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4b4c42d86cbc7f5900b95e8b4af00dbe97e236701df75d0c16e39e29a2174a46.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2121331/18498" target="_top" id="2121331">
+  <img src="//a.impactradius-go.com/display-ad/18498-2121331" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121331/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Transform Mobile Scanning with ABBYY's Business Card Reader for Android: Fast, Accurate, Intuitive Technology
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Business Card Reader for Android: Intelligence, Speed, Accuracy
 
 August 31, 2016
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ABBYY® released a major update for its advanced scanner and contact manager [ABBYY Business Card Reader](https://play.google.com/store/apps/details?id=com.abbyy.mobile.bcr.lite&referrer=utm%5Fsource%3Dpress-release-eng%26utm%5Fmedium%3Dpost%26utm%5Fcampaign%3Dbcr4.7) named among top business apps by [The New York Times](http://www.nytimes.com/2016/08/30/technology/personaltech/transforming-paper-business-cards-ito-digital-contacts.html?post%5Fid=1066245850155424%5F1066246506822025#%5F=%5F), [CNN](http://edition.cnn.com/2014/12/23/business/smart-business-best-apps/), [The Telegraph](http://www.telegraph.co.uk/finance/businessclub/11011490/Top-ten-must-have-apps-for-small-businesses.html), [Computer Business Review](http://www.cbronline.com/news/mobility/apps/5-business-card-apps-to-bring-your-rolodex-into-the-21st-century-4664945), [Android Headlines](http://www.androidheadlines.com/2015/01/featured-top-10-business-card-scanner-apps-android.html), etc. Now Android users can enjoy new features like autofocus and auto crop, perfect the image through manual editing and color filters, view it in the full screen mode and export their contacts to MS Excel, as well as save both sides of a business card – all that with higher processing speed.
 
 A winner of the Mobile Star Award, ABBYY BCR still allows to digitize business cards in 25 languages with unprecedented speed and accuracy. However, the updated version boasts enhanced computer vision enabling the app to “see” the business card, identify the contours, take a photo and crop the background out – completely automatically. The manual crop helps to further refine the edges while color filters and perspective correction – to sharpen and improve the image quality.
@@ -140,10 +158,3 @@ Connect with us
 <li><a href="https://solve-manuals.techidaily.com/web-page-excellence-key-strategies-for-effective-search-engine-visibility/"><u>Web Page Excellence: Key Strategies for Effective Search Engine Visibility</u></a></li>
 <li><a href="https://fake-location.techidaily.com/what-is-geo-blocking-and-how-to-bypass-it-on-vivo-y27s-drfone-by-drfone-virtual-android/"><u>What is Geo-Blocking and How to Bypass it On Vivo Y27s? | Dr.fone</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

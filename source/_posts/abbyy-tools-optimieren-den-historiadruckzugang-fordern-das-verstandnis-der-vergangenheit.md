@@ -1,7 +1,7 @@
 ---
 title: ABBYY-Tools Optimieren Den Historiadruckzugang, Fördern Das Verständnis Der Vergangenheit
-date: 2024-09-03T22:40:16.528Z
-updated: 2024-09-04T22:40:16.528Z
+date: 2024-09-08T23:34:44.503Z
+updated: 2024-09-09T23:34:44.503Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b77f4a1b111b54e2805878ed9aa3d1afc9409a9f5cc36ff257194dcf6821d1ac.jpg
@@ -13,10 +13,28 @@ thumbnail: https://thmb.techidaily.com/b77f4a1b111b54e2805878ed9aa3d1afc9409a9f5
 
 Social Work
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY hilft, den Zugang zu historischen Aufzeichnungen zu verbessern und das Geschichtsbewusstsein zu schärfen
 
 ![pathner logo](https://content.abbyy.com/-/media/project/abbyy/abbyy/logos-white/de/21633.png?h=40&iar=0&w=120)
 
+<!-- affiliate ads begin -->
+<span id="1983471">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [Zurück zu den Kundenreferenzen](https://tools.techidaily.com/abbyy/products/)
 
 ## ABBYY hilft, den Zugang zu historischen Aufzeichnungen zu verbessern und das Geschichtsbewusstsein zu schärfen
@@ -29,20 +47,8 @@ Social Work
 | Internet | [www.disnorge.no](http://www.disnorge.no/cms/) |
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-### Herausforderung
-
-Der freie Zugriff auf Datenbanken mit persönlichen Daten hat in Norwegen eine lange Tradition. Um diese Datenbanken mit Informationen zu füllen, haben ehrenamtliche DISNorge-Mitarbeiter jahrelang die Daten aus Gemeindeaufzeichnungen, Volksbefragungen und anderen öffentlichen Quellen manuell eingegeben. DIS-Hordaland wurde vor Kurzem beauftragt, eine Datenbank über alle Menschen aus Bergen zu erstellen, die zum Zeitpunkt der Regionalwahlen 1934 21 Jahre oder älter waren. Die Datenbank sollte Informationen – wie Name, Adresse und Geburtsdatum – von allen Bürgern enthalten, die dieses Kriterium erfüllten.
-
-Da die meisten Dokumente mit den relevanten Daten in Maschinenschrift oder in gedruckter![Dokumente mit einer OCR-software bearbeiten. Vergleich zwischen original Papierdokument und OCR-Ergebnisse](https://static1.abbyy.com/abbyycommedia/6045/dis-hordaland.png "Dokumente mit einer OCR-software bearbeiten. Vergleich zwischen original Papierdokument und OCR-Ergebnisse")  
-Version vorlagen, stellte DIS-Hordaland fest, dass durch den Einsatz einer Texterkennungs-  
-<!-- affiliate ads begin -->
 <span id="1975555">
-					<video width="80" height="300" style="cursor:pointer"
+					<video width="128" height="480" style="cursor:pointer"
            poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
 	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
@@ -52,16 +58,28 @@ Version vorlagen, stellte DIS-Hordaland fest, dass durch den Einsatz einer Texte
 </span>
 <img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+### Herausforderung
+
+Der freie Zugriff auf Datenbanken mit persönlichen Daten hat in Norwegen eine lange Tradition. Um diese Datenbanken mit Informationen zu füllen, haben ehrenamtliche DISNorge-Mitarbeiter jahrelang die Daten aus Gemeindeaufzeichnungen, Volksbefragungen und anderen öffentlichen Quellen manuell eingegeben. DIS-Hordaland wurde vor Kurzem beauftragt, eine Datenbank über alle Menschen aus Bergen zu erstellen, die zum Zeitpunkt der Regionalwahlen 1934 21 Jahre oder älter waren. Die Datenbank sollte Informationen – wie Name, Adresse und Geburtsdatum – von allen Bürgern enthalten, die dieses Kriterium erfüllten.
+
+Da die meisten Dokumente mit den relevanten Daten in Maschinenschrift oder in gedruckter![Dokumente mit einer OCR-software bearbeiten. Vergleich zwischen original Papierdokument und OCR-Ergebnisse](https://static1.abbyy.com/abbyycommedia/6045/dis-hordaland.png "Dokumente mit einer OCR-software bearbeiten. Vergleich zwischen original Papierdokument und OCR-Ergebnisse")  
+Version vorlagen, stellte DIS-Hordaland fest, dass durch den Einsatz einer Texterkennungs-  
+<!-- affiliate ads begin -->
+<span id="1983573">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 software (OCR) zur Umwandlung der Dokumente in editierbaren Text die ehren amtlichen Mitarbeiter viel Zeit und Ressourcen ein sparen würden. Wie Tore J. Mehl, Mitglied der DISHordaland- Geschäftsleitung erklärt: „Was, wenn wir die Daten mit Hilfe moderner Werkzeuge wie einem OCR-Programm konvertieren könnten? Wir könnten dann ganze Akten von Quelldokumenten mit weit weniger Mühe und in kürzerer Zeit als durch manuelle Verarbeitung veröffentlichen."
 
 Die Organisation formulierte einige Anforderungen: Zunächst sollte die Software komplexe Layouts in der digitalen Version beibehalten, wie bei farbigen, gescannten Schreibmaschinenseiten in DIN A4-Format mit unterschiedlichen Schriftarten. Weiter war es wichtig, dass das Programm Tabellen erkennen würde, da zahlreiche Quellinformationen in dieser Form vorlagen. Schließlich sollte die gesuchte Software editierbare Tabellenseiten erstellen, als CSV-Dateien ausgeben und direkt in die Datenbank übertragen können.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Lösung
 
 DIS-Hordaland untersuchte und testete eine Reihe von OCR-Programmen. Nach reiflicher Überlegung und überzeugt durch die vielfache Listung des Produktes in den Bestenlisten der OCR-Programme entschied sich Tore J. Mehl, eine Lizenz von ABBYY FineReader Professional Edition zu erwerben, um die Funktionen des Programms kennenzulernen. Nach weiteren Untersuchungen und Tests der Software-Funktionalitäten wählte DIS-Hordaland schließlich [ABBYY FineReader](https://tools.techidaily.com/abbyy/products/) als die geeignetste Lösung für ihre Anforderungen aus. „Das letzte Argument, das uns davon überzeugte, dass ABBYY FineReader das richtige Produkt ist, war die Zuverlässigkeit in der Umwandlung von Tabellen – was für uns geschäftsentscheidend ist, da Informationen in Tabellenform so häufig in den Quellen vorkommen. Kein anderes Tool bot eine mit ABBYY vergleichbare Tabellenverarbeitungs - funktion“, erklärt Tore J. Mehl. „Ein weiterer Vorteil war die einfache Bedienung der Software. Wir benötigten ein Programm, das unser Team ohne großes Training sofort einsetzen konnte.“
@@ -70,16 +88,10 @@ Die ehrenamtlichen Mitarbeiter des Projekts belegten einen kurzen Einführungsku
 Handhabung von ABBYY FineReader und zur Erläuterung weiterer wichtiger Aspekte des Projekts. Sie waren mit den Ergebnissen mehr als zufrieden: Die Erkennungstechnologie in ABBYY FineReader ermöglichte es ihnen, die auf Papier und in Bildern enthaltene Information auszulesen und machte das zeitaufwendige Abtippen und manuelle Formatieren so gut wie überflüssig. Der Ablauf gestaltet sich für die Mitarbeiter recht einfach: Papier - dokumente werden gescannt und in ABBYY FineReader geladen. Die Bilder werden in Text umgewandelt und, gemäß DIS-Hordalands Anforderungen, im Microsoft® Excel®-Format ausgegeben. Die Tabelle wird dann in eine Datenbank exportiert und veröffentlicht, sodass sie privaten Nutzern und Forschern auf der ganzen Welt online zur Verfügung steht.
 
 <!-- affiliate ads begin -->
-<span id="1531879">
-					<video width="540" height="960" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Ergebnis
 
@@ -87,12 +99,6 @@ Dank ABBYY FineReader sparte DIS-Hordaland signifikant Zeit und Ressourcen ein. 
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Über ABBYY und Kontaktmöglichkeiten
 
 [Zur ABBYY Unternehmensübersicht ›](https://tools.techidaily.com/abbyy/products/)
@@ -102,16 +108,10 @@ Dank ABBYY FineReader sparte DIS-Hordaland signifikant Zeit und Ressourcen ein. 
 Teilen 
 
 <!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="234" height="30" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115924/19272" target="_top" id="2115924">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115924" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115924/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Sind Sie bereit, mit einem Experten zu sprechen?
 

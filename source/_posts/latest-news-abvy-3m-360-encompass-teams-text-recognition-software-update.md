@@ -1,22 +1,46 @@
 ---
 title: "Latest News: ABVY 3M 360 Encompass Team's Text Recognition Software Update"
-date: 2024-09-03T22:40:17.041Z
-updated: 2024-09-04T22:40:17.041Z
+date: 2024-09-08T23:34:44.879Z
+updated: 2024-09-09T23:34:44.879Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e2bd7441f115d457631670c7835514cc1e1ad27ead792a165abad33ef124056a.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Latest News: ABVY 3M 360 Encompass Team's Text Recognition Software Update
 
 [Actualités](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<span id="1770526">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Le logiciel 3M 360 Encompass s’équipe de la reconnaissance de texte d’ABBYY
 
 23 mai 2017
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _Un kit de développement logiciel OCR va élargir le module de codage de 3M basé sur les données à l’hôpital_
 
 [](https://tools.techidaily.com/abbyy/products/)ABBYY, fournisseur leader de technologies et de solutions de reconnaissance de documents, de capture de données et linguistiques, annonce que le module de codage basé sur les données du logiciel 3M 360 Encompass intègrera prochainement la reconnaissance de texte des documents numérisés en tant qu’option d’extension. Pour ce faire, la division Health Information Systems de 3M utilisera la technologie OCR intégrée d’ABBYY, un acteur majeur au niveau mondial pour les technologies et les solutions de reconnaissance et de conversion de documents.
@@ -124,10 +148,3 @@ Connect with us
 <li><a href="https://solve-manuals.techidaily.com/unleashing-potential-abbyys-intelligent-solutions-for-optimized-information-management/"><u>Unleashing Potential: ABBYY's Intelligent Solutions for Optimized Information Management</u></a></li>
 <li><a href="https://solve-manuals.techidaily.com/unlocking-growth-potential-through-cookiebot-power-solutions/"><u>Unlocking Growth Potential Through Cookiebot Power Solutions</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

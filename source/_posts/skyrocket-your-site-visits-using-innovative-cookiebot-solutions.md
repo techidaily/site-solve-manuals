@@ -1,12 +1,18 @@
 ---
 title: Skyrocket Your Site Visits Using Innovative Cookiebot Solutions
-date: 2024-09-03T22:40:15.516Z
-updated: 2024-09-04T22:40:15.516Z
+date: 2024-09-08T23:34:43.593Z
+updated: 2024-09-09T23:34:43.593Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5c86eead36fe273b4ffc3fa6b58927f405a2b86a9e9fd87736937318bdb673f7.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Skyrocket Your Site Visits Using Innovative Cookiebot Solutions
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
@@ -17,6 +23,12 @@ April 19, 2016
 
 ![abbyy cloud ocr sdk | ABBYY Blog Post](https://static4.abbyy.com/abbyycommedia/28766/ocrsdk-visual-default.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115930/19272" target="_top" id="2115930">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115930" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115930/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![4208e_Solutions_Snippets_674](https://static1.abbyy.com/abbyycommedia/25818/4208e_solutions_snippets_674.jpg)
 
 [According to KPMG](https://www.kpmg.com/UK/en/IssuesAndInsights/ArticlesPublications/Documents/PDF/mobile-banking-report-2015.pdf), mobile is already the largest banking channel for the majority of banks by volume of transactions, and the number of mobile banking app users looks set to rise from 0.8bn in 2014 to 1.8bn by 2019.
@@ -42,6 +54,12 @@ Image/camera based features mentioned in the KPMG report include:
 
 | For example, payment information encoded in the form of a row of numbers printed on a payment slip can be captured automatically in a mobile banking app using OCR. Or payer information printed on the slip can be captured instead of typing. The customer does not have to worry about manual input, and the payment procedure becomes fast and easy. | [![2](https://static1.abbyy.com/abbyycommedia/25821/2.jpg)](https://www.abbyy.com/media/25821/2.jpg)                                                                                             |
 | -------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- | ------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------ |
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 | [![DL](https://static1.abbyy.com/abbyycommedia/25822/dl.jpg)](https://www.abbyy.com/media/25822/dl.jpg)                                                                                                                                                                                                                                                  | In addition, according to KPMG, the image/camera based feature sometimes means capturing account opening information from an image of the customer’s identity cards, such as a driver’s license. |
 
 OCR used in business apps should be highly-accurate, otherwise it will not decrease transaction costs or could even harm company reputation because of bad customer experience. The higher the accuracy, the better the customer experience and the higher the satisfaction. That’s why banks usually prefer to use business-level OCR, not those that are distributed for free.
@@ -67,6 +85,12 @@ In Switzerland almost any type of payment order is accompanied with a Swiss Oran
 
 [![payment_slip](https://static1.abbyy.com/abbyycommedia/25823/payment_slip.jpg)](https://www.abbyy.com/media/25823/payment%5Fslip.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 One leading European bank decided to enrich their mobile banking app, offering the chance to take a photo of such a slip and obviate manual input of payment information. Here is how it was implemented:
 
 | User just has to hold a smartphone’s camera over the encoding line at the bottom of the orange payment slip. The scanning process is completed automatically. The code is captured by ABBYY Mobile OCR Engine. The code is deciphered, and all necessary payment data is extracted from it. Payment details appear on the display. The user checks them and then executes the transfer of funds. | [![1](https://static1.abbyy.com/abbyycommedia/25824/1.jpg)](https://www.abbyy.com/media/25824/1.jpg) |
@@ -78,6 +102,12 @@ With its Mobile Banking App, Veneto Banca, one of Italy’s leading banks, offer
 
 [![IBAN](https://static1.abbyy.com/abbyycommedia/25825/iban-1.jpg)](https://www.abbyy.com/media/25825/iban-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 * Enter the amount to be transferred.
 * Tap the camera icon in the IBAN field to take a screenshot.
 * Specify the area containing the IBAN.
@@ -89,6 +119,12 @@ The cases above demonstrate how payments through the mobile banking app are made
 
 [OCR](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 
@@ -201,16 +237,3 @@ Connect with us
 <li><a href="https://solve-manuals.techidaily.com/upgrade-your-iphones-productivity-quickscanandocr-for-seamless-pdf-and-jpg-transformation-into-editable-text/"><u>Upgrade Your iPhone's Productivity: QuickScan&OCR for Seamless PDF and JPG Transformation Into Editable Text.</u></a></li>
 <li><a href="https://solve-manuals.techidaily.com/verbessern-sie-ihre-dokumentenmanagement-prozesse-mit-abbyy-und-eucon-unterstutzung/"><u>Verbessern Sie Ihre Dokumentenmanagement-Prozesse Mit ABBYY Und Eucon Unterstützung</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1982570">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

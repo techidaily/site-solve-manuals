@@ -1,16 +1,28 @@
 ---
 title: Elevating Enterprise Success Through Process Intelligence - Explore Innovations on the ABBYY Platform
-date: 2024-09-03T22:40:20.204Z
-updated: 2024-09-04T22:40:20.204Z
+date: 2024-09-08T23:34:47.942Z
+updated: 2024-09-09T23:34:47.942Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8408c21b7cbd2d9f3e166f2aa500c9f7130f2d3b305b1fab49ef5afa3945895c.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Elevating Enterprise Success Through Process Intelligence - Explore Innovations on the ABBYY Platform
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Process Intelligence: The Next Leap Forward in the Intelligent Business
 
 ###### Scott Opitz
@@ -19,6 +31,12 @@ November 14, 2019
 
 ![Process Intelligence: The Next Leap Forward in the Intelligent Business | ABBYY Blog Post](https://static4.abbyy.com/abbyycommedia/25390/11226_smm_blog_process-intelligence-the-next-leap-forward-in-business-intelligence-and-the-intelligent-business_blog_934x400.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Everything accomplished in an organization requires a series of business activities, which together comprise a process. Whether the organization is a hospital, bank, manufacturer, or any other type of business, its level of success is directly tied to how well it performs and manages its many business processes.
 
 However, today’s business intelligence (BI) and data discovery tools provide organizations with only the most basic insight into its processes – even critical business processes directly related to improving customer interactions and loyalty, building better quality products, mitigating risk, ensuring compliance and more. The key problem is BI tools generally do not provide analytics in the context of an overall business process. While BI and data discovery tools can provide point-in-time measures or key performance indicators for a given task, they cannot provide answers to such critical questions as:
@@ -54,6 +72,12 @@ By combining BI with process intelligence organizations can gain greater operati
 
 ![Scott Opitz ABBYY](https://static1.abbyy.com/abbyycommedia/25562/02a-scottopitz-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Scott Opitz
 
 Chief Technology Officer at ABBYY
@@ -64,6 +88,12 @@ A 30-year veteran of the computer industry, Scott has founded and built companie
 
 In previous positions, Scott served as Senior Vice President, Worldwide Marketing & Business Development for webMethods (now Software AG), where he was responsible for webMethods’ marketing, business development, and strategic product planning. He joined webMethods as a result of its acquisition of IntelliFrame Corporation, a provider of data integration products and the InVista integrated workflow and BPM platform that he co-founded. Scott has also held numerous executive-level positions in technology, marketing and business development roles for public and private companies.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 
@@ -164,10 +194,3 @@ Connect with us
 <li><a href="https://solve-manuals.techidaily.com/verbessern-sie-ihre-dokumentenmanagement-prozesse-mit-abbyy-und-eucon-unterstutzung/"><u>Verbessern Sie Ihre Dokumentenmanagement-Prozesse Mit ABBYY Und Eucon Unterstützung</u></a></li>
 <li><a href="https://fake-location.techidaily.com/what-is-fake-gps-location-pro-and-is-it-good-on-realme-v30-drfone-by-drfone-virtual-android/"><u>What is Fake GPS Location Pro and Is It Good On Realme V30? | Dr.fone</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

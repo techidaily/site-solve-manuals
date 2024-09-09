@@ -1,22 +1,40 @@
 ---
 title: Enhance Your Digital Campaigns Using Advanced Cookiebot-Enabled Tools
-date: 2024-09-03T22:40:16.713Z
-updated: 2024-09-04T22:40:16.713Z
+date: 2024-09-08T23:34:44.658Z
+updated: 2024-09-09T23:34:44.658Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a3b5ab34eaf3f37a9a75db4fff942183c1ae755ba8565a3523ea779e463db4b2.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Enhance Your Digital Campaigns Using Advanced Cookiebot-Enabled Tools
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY and UiPath at the Future of Finance Summit
 
 February 09, 2017
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120863/26400?prodsku=Mercury" target="_top" id="2120863">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120863" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120863/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _ABBYY and partner will showcase capture-driven business process automation solutions for shared service providers_ 
   
 ABBYY, a leading global provider of technologies and solutions to action information, will present capture-driven process automation solutions for BPOs and Shared Service Centers (SSC) at [the Future of Finance Summit](https://www.financetransformationeurope.com/ "The Future of Finance Summit, 2017") in London. This industry-leading event for CFOs, Finance Leaders and Global Process Owners addresses the most pressing topics in the industry and crafts a shared vision of the direction finance is taking. On the 15th and 16th of February, ABBYY’s experts, together with UiPath, a premium vendor of Robotic Process Automation (RPA) software, will showcase innovative and trendsetting solutions for automating Accounts Payable processes.
@@ -114,16 +132,3 @@ Connect with us
 <li><a href="https://solve-manuals.techidaily.com/optimizing-engagement-with-our-cookiebot-technology-solutions/"><u>Optimizing Engagement with Our Cookiebot Technology Solutions</u></a></li>
 <li><a href="https://facebook-video-footage.techidaily.com/viral-visionaries-hashes-that-transform-short-videos-into-hits-for-2024/"><u>Viral Visionaries  Hashes that Transform Short Videos Into Hits for 2024</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1982457">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

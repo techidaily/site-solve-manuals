@@ -1,12 +1,18 @@
 ---
 title: Enhanced Conversion Tracking with Our Advanced Cookiebot Technology
-date: 2024-09-03T22:40:18.909Z
-updated: 2024-09-04T22:40:18.909Z
+date: 2024-09-08T23:34:46.696Z
+updated: 2024-09-09T23:34:46.696Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6152b7c969d91f2eaae0be3b9bf8b8ec86f6a4683a1dd9c2aefb366c737706ad.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2128844/7443" target="_top" id="2128844">
+  <img src="//a.impactradius-go.com/display-ad/7443-2128844" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128844/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Enhanced Conversion Tracking with Our Advanced Cookiebot Technology
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
@@ -17,12 +23,24 @@ June 27, 2017
 
 ![Increasing patient satisfaction at athenahealth through innovative technology | ABBYY Blog Post](https://static1.abbyy.com/abbyycommedia/25204/increasing-patient-satisfaction-at-athenahealth-through-innovative-ehr-digital-transformation-solution.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120865/26400?prodsku=mercury" target="_top" id="2120865">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120865/26400?prodsku=mercury" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Industry leaders like athenahealth represent the real world of innovation in healthcare and patient information management. ABBYY is proud to be the technology partner helping athenahealth embrace and leverage digital transformation. Together, we are developing systems that bridge the gap between unstructured paper and personal healthcare information. Through digital transformation technologies, services, and solutions, faxed patient data no longer remains a barrier to connecting patients to their doctors, while lowering costs and providing dramatically better healthcare services between EHR and other backend systems.
 
 **Faxed patient data remains dominant**
 
 ![Faxing remains the dominant method of communication in healthcare](https://static1.abbyy.com/abbyycommedia/25205/faxing-remains-the-dominant-method-of-communication-in-healthcare.png) Despite the popular notion of “digital transformation,” the truth is that faxing remains the dominant method of communication between health plans, providers and patients.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123468/16836" target="_top" id="2123468">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123468" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123468/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 According to Fuchang Yin, staff developer at athenahealth, that isn’t expected to change any time soon.
 
 “Everyone wants to go from fax to digital, but the reality for us is that paper volume is increasing with our growth. I don’t see a revolution in the next 3-5 years, so we must continue to remain flexible and scalable.”
@@ -51,6 +69,12 @@ athenahealth has put into place systems that recognize the ongoing reliance on f
 
 [Digital Transformation](https://tools.techidaily.com/abbyy/products/) [Healthcare](https://tools.techidaily.com/abbyy/products/) [OCR](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118313/7443" target="_top" id="2118313">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118313" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118313/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 
@@ -151,10 +175,3 @@ Connect with us
 <li><a href="https://smart-video-creator.techidaily.com/updated-in-2024-pro-video-editor-convert-casual-clips-into-cinematic-masterpieces/"><u>Updated In 2024, Pro Video Editor Convert Casual Clips Into Cinematic Masterpieces</u></a></li>
 <li><a href="https://solve-manuals.techidaily.com/abbyy-ai-ocr-4/"><u>パーソルグループの名刺管理システムにABBYY AI OCRを実装: モバイル且つ4枚まとめて高精度読み取り</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2030370/7443" target="_top" id="2030370">
-  <img src="//a.impactradius-go.com/display-ad/7443-2030370" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2030370/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

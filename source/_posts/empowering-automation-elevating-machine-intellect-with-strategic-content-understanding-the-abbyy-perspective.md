@@ -1,12 +1,18 @@
 ---
 title: "Empowering Automation: Elevating Machine Intellect with Strategic Content Understanding | The ABBYY Perspective"
-date: 2024-09-03T22:40:17.547Z
-updated: 2024-09-04T22:40:17.547Z
+date: 2024-09-08T23:34:45.335Z
+updated: 2024-09-09T23:34:45.335Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5eb42b490725ed54872c9c11b47aee171fe6d79191204bcd93add24c922b6881.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2114267/17093" target="_top" id="2114267">
+  <img src="//a.impactradius-go.com/display-ad/17093-2114267" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114267/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Empowering Automation: Elevating Machine Intellect with Strategic Content Understanding | The ABBYY Perspective
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
@@ -17,6 +23,12 @@ August 23, 2018
 
 ![5 ways to make RPA robots smarter with content intelligence | ABBYY Blog Post](https://static2.abbyy.com/abbyycommedia/25309/9533e_934x400.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Earlier this month, ABBYY participated in the [Intelligent Automation Week](https://intelligentautomation.iqpc.com/) in Chicago in which I had the opportunity to moderate one of the round table discussions on content intelligence and robotic process automation (RPA). I held discussions with over 40 people on various approaches to automating content-based processes with RPA. Topics discussed ranged from the difference between basic RPA and the growing need for advancing automation around processing unstructured documents and data, to an understanding of the role of artificial intelligence (AI) in processing unstructured content.
 
 What was clear from the conversations is that organizations in the midst of piloting or scaling up their RPA operations are often finding processes they want to automate that involve unstructured content. While RPA is well suited for the automation of repetitive structured task, it falls short when it comes to extracting actionable information from unstructured documents and data. The path to implementing a zero-touch process requires the ability to understand content so that a robot can perform the required task.
@@ -59,6 +71,12 @@ _**By Bill Galusha, Director, Product Marketing, RPA & Data Capture**_
 
 [Intelligent Document Processing (IDP)](https://www.abbyy.com/blog/intelligent-document-processing-idp/ "Intelligent Document Processing (IDP)") [Digital Transformation](https://tools.techidaily.com/abbyy/products/) [Artificial Intelligence (AI)](https://www.abbyy.com/blog/artificial-intelligence-ai/ "Artificial Intelligence (AI)") [Robotic Process Automation (RPA)](https://www.abbyy.com/blog/robotic-process-automation-rpa/ "Robotic Process Automation (RPA)") [Enterprise](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 
@@ -181,10 +199,3 @@ Connect with us
 <li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-capture-your-best-moments-3-simple-video-game-recording-solutions/"><u>Updated In 2024, Capture Your Best Moments 3 Simple Video Game Recording Solutions</u></a></li>
 <li><a href="https://tech-savvy.techidaily.com/what-to-look-out-for-in-bincoin-token-trading/"><u>What to Look Out For in BinCoin Token Trading</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

@@ -1,22 +1,40 @@
 ---
 title: Automated Data Tracking with Cutting-Edge Cookiebot Technology
-date: 2024-09-03T22:40:15.769Z
-updated: 2024-09-04T22:40:15.769Z
+date: 2024-09-08T23:34:43.807Z
+updated: 2024-09-09T23:34:43.807Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5eac549bf0074d54dd4b3414ac1cd5ccda2e57524c605d3807bb2415d6b1435a.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123470/16836" target="_top" id="2123470">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123470" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123470/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Automated Data Tracking with Cutting-Edge Cookiebot Technology
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Expands Global Access to Its AI-enabling Technologies During Q4 2018
 
 February 11, 2019
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _Strategic Partnerships and Executive Appointments Position the Company for Accelerated Market Penetration of its Content IQ Solutions_
 
 During fourth quarter of 2018, ABBYY content IQ solutions and services became more widely and readily available from new strategic partners and robotic process automation (RPA) vendors’ digital marketplaces. ABBYY’s momentum in forming new partnerships and gaining more enterprise customers is attributed to organizations’ increasing deployment of RPA technologies, and the need to make the software robots smarter. Additionally, new executives were appointed to drive continued global expansion of the company’s AI-enabling technologies, and ABBYY senior executives spoke at major tech conferences about the opportunities for integrating AI capabilities into the enterprise.
@@ -211,10 +229,3 @@ Connect with us
 <li><a href="https://facebook.techidaily.com/unpacking-the-latest-facebook-interface-overhaul/"><u>Unpacking the Latest Facebook Interface Overhaul</u></a></li>
 <li><a href="https://solve-manuals.techidaily.com/zeitreisen-durch-digitalisierung-abbyy-verbindet-universitatsbibliothek-frankfurt-mit-der-vergangenheit/"><u>Zeitreisen Durch Digitalisierung – ABBYY Verbindet Universitätsbibliothek Frankfurt Mit Der Vergangenheit</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
-  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

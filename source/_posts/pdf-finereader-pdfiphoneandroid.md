@@ -1,12 +1,18 @@
 ---
 title: "スクリーンショットからPDFへ: FineReader PDFというアプリはiPhone・Androidデバイスでどのように文章をスキャンしますか?"
-date: 2024-09-03T22:40:15.446Z
-updated: 2024-09-04T22:40:15.446Z
+date: 2024-09-08T23:34:43.537Z
+updated: 2024-09-09T23:34:43.537Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b2bf4cd4c4150768a4991186ca82f84c6e82b391b455745b734da2cba3671e13.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123468/16836" target="_top" id="2123468">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123468" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123468/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## スクリーンショットからPDFへ: FineReader PDFというアプリはiPhone・Androidデバイスでどのように文章をスキャンしますか?
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
@@ -18,6 +24,12 @@ thumbnail: https://thmb.techidaily.com/b2bf4cd4c4150768a4991186ca82f84c6e82b391b
 
 ![](https://static4.abbyy.com/abbyycommedia/32738/microsoftteams-image-20.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ABBYYのスキャンアプリに新しい名前とアイコンが追加された理由を知りたいですか？ 我々ABBYYは、今回素晴らしいニュースをお伝えします。ABBYYFineScannerはモバイル用のABBYYFineReader PDF for Mobileとして、名前が変更され、対応するデスクトップ製品と統合されました！ なぜ、大きく名前が変わるのですか、そしてあなたにとって何ができるようになりますか？ 早速、本題に入りましょう。
 
 2012年にFineScannerの最初のバージョンがリリースされたとき、多くの人々がスマートフォンをスキャナーとして使用することに懐疑的でした。 それ以来、モバイルスキャンアプリが改善され、以前に比べ、はるかに使いやすくなりました。一方で従来のスキャナー需要が減りつつあるため、多くの変化があります。
@@ -55,6 +67,12 @@ Android ユーザ向け説明
 * **設定**をタップし、**クラウドストレ**ージの **設定（CONFIGURE）**をタップ下さい。  
 ![Mobile 3](https://static1.abbyy.com/abbyycommedia/32744/mobile3.png)
 * **Google Drive (FineReader)**の横の**追加**をタップ下さい。
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 * Google Driveのアカウントへサインインして下さい。
 * 自動アップロードをタップし、Google Drive (FineReader)を選択して下さい。
 * 望んでいる出力ファイルのフォーマット、サイズが選択されているか確認下さい。  
@@ -82,6 +100,12 @@ Google ドライブの中の **FineReader** フォルダを選択下さい。(�
 
 ![PC 2](https://static1.abbyy.com/abbyycommedia/32741/pc2.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120866/26400?prodsku=mars" target="_top" id="2120866">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120866/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Google ドライブの中に “**FineReader**” を見つけられない場合、上述したFineReader PDF for Mobile アプリへの設定がまだ足りていない可能性があります。
 
 FineReader PDF 15 は **FineReader**フォルダへのパスを保存し、次回からはモバイルアプリケーションのタブをクリックした際に、そのフォルダを開きます。
@@ -156,6 +180,12 @@ Connect with us
 
 ![](https://static4.abbyy.com/abbyycommedia/32738/microsoftteams-image-20.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ABBYYのスキャンアプリに新しい名前とアイコンが追加された理由を知りたいですか？ 我々ABBYYは、今回素晴らしいニュースをお伝えします。ABBYYFineScannerはモバイル用のABBYYFineReader PDF for Mobileとして、名前が変更され、対応するデスクトップ製品と統合されました！ なぜ、大きく名前が変わるのですか、そしてあなたにとって何ができるようになりますか？ 早速、本題に入りましょう。
 
 2012年にFineScannerの最初のバージョンがリリースされたとき、多くの人々がスマートフォンをスキャナーとして使用することに懐疑的でした。 それ以来、モバイルスキャンアプリが改善され、以前に比べ、はるかに使いやすくなりました。一方で従来のスキャナー需要が減りつつあるため、多くの変化があります。
@@ -175,6 +205,12 @@ iOS ユーザ向け説明
 * **クラウドストレージ** を選択し、**Google Drive (FineReader)**をタップして下さい。  
 ![Mobile 1](https://static1.abbyy.com/abbyycommedia/32746/mobile1.png)
 * Google アカウントへサインインして下さい。
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115925/19272" target="_top" id="2115925">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115925" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115925/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 * **自動アップロード先：**をタップして**Google Drive (FineReader)**を選択下さい。
 * 望んでいる出力ファイルのフォーマット、サイズが選択されているか確認下さい。  
 ![Mobile 2](https://static1.abbyy.com/abbyycommedia/32745/mobile2.png)
@@ -193,6 +229,12 @@ Android ユーザ向け説明
 * **設定**をタップし、**クラウドストレ**ージの **設定（CONFIGURE）**をタップ下さい。  
 ![Mobile 3](https://static1.abbyy.com/abbyycommedia/32744/mobile3.png)
 * **Google Drive (FineReader)**の横の**追加**をタップ下さい。
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2114267/17093" target="_top" id="2114267">
+  <img src="//a.impactradius-go.com/display-ad/17093-2114267" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114267/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 * Google Driveのアカウントへサインインして下さい。
 * 自動アップロードをタップし、Google Drive (FineReader)を選択して下さい。
 * 望んでいる出力ファイルのフォーマット、サイズが選択されているか確認下さい。  
@@ -220,12 +262,24 @@ Google ドライブの中の **FineReader** フォルダを選択下さい。(�
 
 ![PC 2](https://static1.abbyy.com/abbyycommedia/32741/pc2.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Google ドライブの中に “**FineReader**” を見つけられない場合、上述したFineReader PDF for Mobile アプリへの設定がまだ足りていない可能性があります。
 
 FineReader PDF 15 は **FineReader**フォルダへのパスを保存し、次回からはモバイルアプリケーションのタブをクリックした際に、そのフォルダを開きます。
 
 ![ABBYY FineReader PDF for Mobile](https://static1.abbyy.com/abbyycommedia/32903/finereader-screenshot-2-jp.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 FineReader PDF for Mobile アプリでスキャン作成したファイルで作業を続けるには、そのファイルをクリックして下さい。
 
 PDF ファイルはPDFエディタで開かれます。そしてレビューしたり、フルテキスト検索を実行したり、テキストを修正したり、パスワードをかけたりすることが可能です。JPG イメージファイルはOCRエディタで開かれます。そして、編集可能なテキストへ変更することが可能です。PDFやその他サポートされているフォーマットでファイルを保存することが可能です。
@@ -243,10 +297,10 @@ PDF ファイルはPDFエディタで開かれます。そしてレビューし�
 [モバイル](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
-  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### いいね！、シェア、再投稿
 

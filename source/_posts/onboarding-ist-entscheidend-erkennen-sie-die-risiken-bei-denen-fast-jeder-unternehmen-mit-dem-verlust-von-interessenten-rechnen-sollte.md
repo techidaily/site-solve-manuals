@@ -1,7 +1,7 @@
 ---
 title: "Onboarding Ist Entscheidend: Erkennen Sie Die Risiken, Bei Denen Fast Jeder Unternehmen Mit Dem Verlust Von Interessenten Rechnen Sollte."
-date: 2024-09-03T22:40:17.731Z
-updated: 2024-09-04T22:40:17.731Z
+date: 2024-09-08T23:34:45.508Z
+updated: 2024-09-09T23:34:45.508Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e0be33554f7e808cbb9defb5e44d8742371f9f0a41b00b3f13329dba336fbddc.png
@@ -17,8 +17,20 @@ thumbnail: https://thmb.techidaily.com/e0be33554f7e808cbb9defb5e44d8742371f9f0a4
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![News Colleagues3](https://static1.abbyy.com/abbyycommedia/33750/news-colleagues3.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 _Zeitaufwändige und komplexe Prozesse als Hauptgründe für hohe Abbruchraten_
 
 Eine aktuelle Studie des auf intelligente Automatisierung spezialisierten Unternehmens ABBYY deckt auf, dass erschreckende 94% der deutschen Unternehmen beim Kunden-Onboarding eine Form des Abbruchs erleben – einige sogar bis zu 40% und mehr. Ein ineffizientes digitales Onboarding - also die Online-Anmeldung für ein Konto oder eine Dienstleistung - kann dazu führen, dass Unternehmen einen Interessenten verlieren, bevor er überhaupt Kunde wird, was zu Umsatzeinbußen in Milliardenhöhe führt. Gerade in der aktuellen geopolitischen Situation, die eine Rezession und eine anhaltend hohe Inflation mit sich gebracht hat, können sich Unternehmen das nicht mehr leisten. Die Ergebnisse der Studie verdeutlichen, wie wichtig es ist, dass Onboarding-Prozesse effizient, intuitiv und mit dem richtigen Maß an sowohl persönlicher Kommunikation als auch intelligenter Automatisierung gestaltet werden müssen, um den bestmöglichen Erfolg zu erzielen.
@@ -31,20 +43,14 @@ Dies wirkt sich nicht nur auf den Umsatz aus, sondern auch auf die Meinung der K
 
 ![infographic-onboarding-survey-de](https://static1.abbyy.com/abbyycommedia/36367/infographic-onboarding-survey-de.jpg?width=900&height=1242)
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Obwohl sich die Unternehmen der negativen Folgen eines schlechten Onboardings bewusst sind, wie zum Beispiel versäumte Geschäftschancen (32%), das Verlieren potenzieller Kunden an die Konkurrenz (33%) oder Schwierigkeiten bei der Gewinnung neuer Kunden (29%), nehmen sie dies stillschweigend in Kauf. Zwei von drei Befragten halten den Onboarding-Prozess zwar für sehr wichtig (45%) oder immerhin einigermaßen wichtig (21%), aber es besteht bei vielen noch ein großer Verbesserungsbedarf beim tatsächlichen Prozess.
 
-<!-- affiliate ads begin -->
-<span id="1982499">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Den richtigen Mix aus Technologie und menschlicher Interaktion schaffen
 
 Derzeit sind eine Kombination aus Self-Service und persönlichem Onboarding (45%) und ein komplett persönliches Onboarding in der Filiale (29%) die bevorzugten Methoden für das Onboarding neuer Kunden. Die meisten Unternehmen nutzen dabei eine Mischung aus automatisierter und menschlicher Interaktion für den Prozess, nur 8% haben bisher einen vollständig automatisierten Prozess eingeführt. Vier von zehn Befragten arbeiten in einer Organisation mit einem zu 75% automatisierten Onboarding-Prozess.
@@ -62,21 +68,15 @@ _Markoss Martina, VP Next Generation Platforms bei ABBYY_
 
 Der neue ABBYY State of Intelligent Automation Report gibt Ihnen weitere Einblicke in die Treiber und Herausforderungen des Onboardings und zeigt, wie Sie die Erwartungen Ihrer Kunden besser erfüllen können. Lesen Sie den ausführlichen [Report hier](https://tools.techidaily.com/abbyy/products/).
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Über die Studie
 
 Diese Studie wurde von Sapio Research im September 2022 im Auftrag von ABBYY durchgeführt. Die Umfrage wurde unter 1.623 Entscheidungsträgern in Großbritannien, den USA, Frankreich, Deutschland und Japan durchgeführt.
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
-  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Über ABBYY
 
@@ -89,32 +89,20 @@ ABBYY ist ein globales Unternehmen mit Sitz in den USA und Niederlassungen in 14
 ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeichen von ABBYY Software Ltd. Alle anderen Warenzeichen sind Eigentum ihrer jeweiligen Inhaber. 
 
 <!-- affiliate ads begin -->
-<span id="1531879">
-					<video width="540" height="960" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### ABBYY Pressekontakt
 
 ![02E Eva Mariahufschmitt](https://static4.abbyy.com/abbyycommedia/23663/02e-eva-mariahufschmitt.png)
 
 <!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="234" height="30" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120866/26400?prodsku=mars" target="_top" id="2120866">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120866/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 #### Eva-Maria Hufschmitt
 

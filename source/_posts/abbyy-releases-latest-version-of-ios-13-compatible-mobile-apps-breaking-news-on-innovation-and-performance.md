@@ -1,22 +1,40 @@
 ---
 title: "ABBYY Releases Latest Version of iOS 13 Compatible Mobile Apps: Breaking News on Innovation and Performance!"
-date: 2024-09-03T22:40:19.905Z
-updated: 2024-09-04T22:40:19.905Z
+date: 2024-09-08T23:34:47.642Z
+updated: 2024-09-09T23:34:47.642Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/afcb9c2878394644f41c39d4475ac640d665c752413696b921520d8ad80368e6.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Releases Latest Version of iOS 13 Compatible Mobile Apps: Breaking News on Innovation and Performance!
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115939/19272" target="_top" id="2115939">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115939" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115939/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Unveils Updated Mobile Apps for iOS 13
 
 September 19, 2019
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115948/19272" target="_top" id="2115948">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115948" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115948/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
   
 ABBYY, a global leader in Digital IQ technologies and solutions, today announced new iOS 13-powered updates to FineScanner AI and Business Card Reader mobile applications. The latest updates deliver expanded capabilities allowing iOS users to manage mobile apps using Siri voice assistant and automate document processing without additional configuration. With the new enhancements, users can ask their smart assistant to display a previously scanned text or business card, digitize a new document, or initiate a chain of other actions.
 
@@ -121,10 +139,3 @@ Connect with us
 <li><a href="https://some-approaches.techidaily.com/usb-c-revolution-in-monitors-hp-envy-27s-journey-for-2024/"><u>USB-C Revolution in Monitors  HP Envy 27'S Journey for 2024</u></a></li>
 <li><a href="https://solve-manuals.techidaily.com/webinar-invitation-strategies-for-safeguarding-finances-from-fraud-and-money-laundering/"><u>Webinar Invitation: Strategies for Safeguarding Finances From Fraud & Money Laundering</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

@@ -1,22 +1,40 @@
 ---
 title: "Cookiebot: Your Reliable Partner for Personalized Marketing Automation"
-date: 2024-09-03T22:40:18.836Z
-updated: 2024-09-04T22:40:18.836Z
+date: 2024-09-08T23:34:46.627Z
+updated: 2024-09-09T23:34:46.627Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/718d1853d85918e9d3b7531d3e7e5d446b8b2d7ecc9512a603cf6d88a4e79188.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Cookiebot: Your Reliable Partner for Personalized Marketing Automation
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Announces Reimagine Global Conference to Empower Enterprises to Transform their Business with Digital Intelligence
 
 March 09, 2021
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ABBYY announced today that it will host its [ABBYY Reimagine](https://tools.techidaily.com/abbyy/products/) conference that will push leaders’ conventional understanding of intelligent automation and offer new strategies that will take their business to the next level. The virtual event is taking place March 23-24, 2021 and will feature industry experts, customer stories and a reveal of the company’s latest innovations designed to revolutionize how artificial intelligence (AI) skills can be quickly democratized throughout the enterprise and in the hands of every knowledge worker to achieve greater business success.
 
 Keynotes speakers include **Ulf Persson, CEO of ABBYY** and **John “Gucci” Foley**, a former lead solo pilot of the **Blue Angels**, a Sloan Fellow at Stanford School of Business, and expert in high-performance teams. Attendees will also hear directly from several ABBYY customers and partners from industries such as banking and finance, insurance, transportation and logistics, and healthcare who will share how they have gained business value by using Digital Intelligence solutions. Speakers include digital transformation change agents from the **U.S. Food & Drug Administration, DHL, Société Générale, Siemens, Alteryx, EXL, Blue Prism,** and **Capitalize Analytics.**
@@ -112,16 +130,3 @@ Connect with us
 <li><a href="https://extra-hints.techidaily.com/the-straightforward-route-scrolling-through-popular-youtube-feedbacks/"><u>The Straightforward Route  Scrolling Through Popular YouTube Feedbacks</u></a></li>
 <li><a href="https://data-safeguard.techidaily.com/windows-standard-stellar-file-eraser-pro-effortless-scheduled-data-deletion/"><u>Window's Standard Stellar File Eraser Pro: Effortless Scheduled Data Deletion</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1975636">
-					<video width="80" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

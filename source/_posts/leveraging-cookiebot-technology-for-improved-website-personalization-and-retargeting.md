@@ -1,22 +1,46 @@
 ---
 title: Leveraging Cookiebot Technology for Improved Website Personalization and Retargeting
-date: 2024-09-03T22:40:16.208Z
-updated: 2024-09-04T22:40:16.208Z
+date: 2024-09-08T23:34:44.233Z
+updated: 2024-09-09T23:34:44.233Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d27bd20369a0206f3a047b7bb4f9e0b9ec6c2aca32544460f90baebbc95c9231.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Leveraging Cookiebot Technology for Improved Website Personalization and Retargeting
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Studie zeigt: Diskrepanz zwischen leitenden Führungskräften und Managern bedroht erfolgreiche digitale Transformation
 
 8\. Juni 2021
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<span id="2135471">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 72% der leitenden Führungskräfte in Deutschland sind zuversichtlich, dass ihr Unternehmen digital gut vorbereitet ist. Bei den Managern sind es hingegen mit 61% deutlich weniger, die dem zustimmen, so eine neue globale Studie von ABBYY, einem Unternehmen für Digital Intelligence. Auch sagen 37% der befragten Manager in Deutschland, dass sie sich trotz der Verfügbarkeit von neuen Technologien mit Beeinträchtigungen bei der digitalen Transformation konfrontiert sehen. Bei den Führungskräften sind es hingegen nur 28%, die das genauso sehen. Die deutliche Diskrepanz innerhalb der Unternehmen zeigt einen Trend hin zu vertanen Investitionen und verpassten Chancen.
 
 Trotz des zunehmenden Einsatzes von No-Code/Low-Code Plattformen, nutzen diese beispielsweise nur 12% der Manager in Deutschland für ihre aktuellen Projekte der digitalen Transformation. Diese Plattformen würden es ihnen ermöglichen, auf schnelle Weise eigene Lösungsmöglichkeiten bei Problemen entwickeln zu können, ohne dabei auf eine manuelle Programmierung angewiesen sein zu müssen. Darüber hinaus wenden nur 30% der Manager Process Mining-Tools an, die ihnen dabei helfen würden, Automatisierungsmöglichkeiten zu erkennen und die Ursachen von Engpässen und Verzögerungen bei Unternehmensprozessen rasch aufzudecken. Auf den oberen Ebenen liegt der Zugang teilweise deutlich höher und global nutzt sogar rund die Hälfte (48%) der befragten leitenden Führungskräfte Process Mining-Technologien.
@@ -50,6 +74,12 @@ Diese unterschiedliche Wahrnehmung zwischen der obersten Führungsebene eines Un
 
 ![Infografik - Studie über die digitale Transformation | ABBYY](https://static1.abbyy.com/abbyycommedia/33195/infographics-outlook-on-digital-transformation-de.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Methodik**
 
 Diese Studie wurde von Sapio Research im April und Mai 2021 durchgeführt und von ABBYY in Auftrag gegeben. Es wurden 1.220 IT-Entscheider in Unternehmen mit über 1.000 Mitarbeitern in Großbritannien, den USA, Frankreich, Deutschland und Japan zu den durch die Corona-Pandemie entstandenen Auswirkungen auf digitale Transformationsprojekte, den Hindernissen, denen Unternehmen dabei gegenüberstehen und der Rolle, die Automatisierungstechnologien spielen, befragt.
@@ -139,16 +169,3 @@ Vernetzen Sie sich mit uns
 <li><a href="https://sim-unlock.techidaily.com/what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-oneplus-ace-2-pro-device-by-drfone-android/"><u>What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On OnePlus Ace 2 Pro Device</u></a></li>
 <li><a href="https://solve-manuals.techidaily.com/pdf-finereader-pdfiphoneandroid/"><u>スクリーンショットからPDFへ: FineReader PDFというアプリはiPhone・Androidデバイスでどのように文章をスキャンしますか?</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1977004">
-					<video width="80" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

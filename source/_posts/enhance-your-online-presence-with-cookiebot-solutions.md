@@ -1,22 +1,40 @@
 ---
 title: Enhance Your Online Presence with Cookiebot Solutions
-date: 2024-09-03T22:40:18.337Z
-updated: 2024-09-04T22:40:18.337Z
+date: 2024-09-08T23:34:46.124Z
+updated: 2024-09-09T23:34:46.124Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3153de74f0140829de221d87f3024edf0be402597c10c002cec7499f13b2deb2.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Enhance Your Online Presence with Cookiebot Solutions
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123471/16836" target="_top" id="2123471">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123471" border="0" alt="https://techidaily.com" width="234" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123471/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY and Bizagi Join Forces to Deliver Intelligent Automation Solutions to Enterprises Striving to Accelerate Digital Transformation
 
 November 17, 2020
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118313/7443" target="_top" id="2118313">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118313" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118313/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _Joint customers worldwide in financial services, transportation and logistics, and public sector benefit from leveraging Digital Intelligence with Process Automation_
 
 ABBYY and [Bizagi](http://www.bizagi.com/ "Bizagi") have formed a strategic alliance stemming from challenges organizations face to maintain business continuity and meet customers’ needs as they pivot operations in a new socially distant and virtual environment. The companies have already transformed several organizations’ disrupted manual businesses processes including onboarding, processing of loans, and accounts payable.
@@ -134,10 +152,3 @@ Connect with us
 <li><a href="https://buynow-info.techidaily.com/vanguard-voyager-full-featured-hefty-stand-explored/"><u>Vanguard Voyager: Full-Featured, Hefty Stand Explored</u></a></li>
 <li><a href="https://solve-manuals.techidaily.com/webinar-recap-strategies-to-minimize-risks-in-libor-agreements/"><u>Webinar Recap: Strategies to Minimize Risks in LIBOR Agreements</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

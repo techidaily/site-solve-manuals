@@ -1,26 +1,50 @@
 ---
 title: "Neil Murphy: Lead Revenue Strategist at ABBYY"
-date: 2024-09-03T22:40:16.222Z
-updated: 2024-09-04T22:40:16.222Z
+date: 2024-09-08T23:34:44.248Z
+updated: 2024-09-09T23:34:44.248Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/75ed7dc872027e37ee776fcbd41ee515ad71f0c8336694d98304c7450ff8c427.png
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123477/16836" target="_top" id="2123477">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123477" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123477/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Neil Murphy: Lead Revenue Strategist at ABBYY
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115926/19272" target="_top" id="2115926">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115926" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115926/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Neil Murphy
 
 Chief Revenue Officer
 
 ![Neil Murphy](https://content.abbyy.com/-/media/project/abbyy/abbyy/company/management/headshots/cards-headshots/1486x836-neil-murphy.jpg?h=836&iar=0&w=1486)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### Neil Murphy is Chief Revenue Officer and is responsible for leading ABBYY’s go-to-market strategy while helping global enterprises accelerate business value from their AI and intelligent automation initiatives.
 
 Neil's deep experience working with data capture, cognitive understanding and process automation technologies derives from a multitude of strategic roles at leading organisations such as Kodak Alaris and now ABBYY. While at Kodak Alaris, Neil was responsible for the start-up and development of AI Foundry in EMEA, a technology start-up within Kodak Alaris focused on the AI and RPA markets.
 
 Over the years, Neil has worked with a variety of industry sectors ranging from Finance, Insurance, Healthcare to Government focusing on transforming their legacy approach to back and front office processes such as Accounts Payable, customer onboarding, and consumer loyalty programmes to name a few.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Ready to speak with an expert?
 
 [Schedule a demo](https://tools.techidaily.com/abbyy/products/)[Get in touch](https://tools.techidaily.com/abbyy/products/)
@@ -102,10 +126,3 @@ Over the years, Neil has worked with a variety of industry sectors ranging from 
 <li><a href="https://fake-location.techidaily.com/will-ispoofer-update-on-realme-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>Will iSpoofer update On Realme 12 Pro+ 5G | Dr.fone</u></a></li>
 <li><a href="https://solve-manuals.techidaily.com/abbyy-ai-ocr-4/"><u>パーソルグループの名刺管理システムにABBYY AI OCRを実装: モバイル且つ4枚まとめて高精度読み取り</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

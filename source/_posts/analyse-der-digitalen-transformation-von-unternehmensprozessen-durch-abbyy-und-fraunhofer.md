@@ -1,16 +1,28 @@
 ---
 title: Analyse Der Digitalen Transformation Von Unternehmensprozessen Durch ABBYY Und Fraunhofer
-date: 2024-09-03T22:40:15.747Z
-updated: 2024-09-04T22:40:15.747Z
+date: 2024-09-08T23:34:43.788Z
+updated: 2024-09-09T23:34:43.788Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3940086541c823408b7e3893cd4adcfe04714cf8a1d0ceb2c3d06364d867bc68.png
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Analyse Der Digitalen Transformation Von Unternehmensprozessen Durch ABBYY Und Fraunhofer
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Studie von ABBYY und Fraunhofer untersucht Prozessdigitalisierung in Unternehmen
 
 20\. Oktober 2021
@@ -19,6 +31,12 @@ thumbnail: https://thmb.techidaily.com/3940086541c823408b7e3893cd4adcfe04714cf8a
 
 ![News Digitaltransformation 1](https://static1.abbyy.com/abbyycommedia/33488/news-digitaltransformation-1.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Die meisten Unternehmen sind mit ihren Geschäftsprozessen noch nicht vollumfänglich zufrieden und sehen deutliches Verbesserungspotenzial. Entsprechend ist es für Unternehmen unausweichlich, diese Prozesse durch moderne Prozesstechnologien stärker zu digitalisieren. Das hat ABBYY, ein Unternehmen für Digital Intelligence, in einer gemeinsamen Studie mit dem Fraunhofer-Institut für Angewandte Informationstechnik FIT herausgefunden.
 
 Die Studie _„Prozessdigitalisierung für das „New Normal“ – Branchenübergreifende Studie zu Herausforderungen und Chancen der Prozessoptimierung“_ untersucht den aktuellen Stand digitalisierter Geschäftsprozesse in deutschen Unternehmen und analysiert das Potenzial, das moderne Prozesstechnologien in diesem Zusammenhang bieten. Im Rahmen der Studie wurden Unternehmen der Branchen Produktion und Logistik sowie Versicherungen und Banken befragt. Außerdem wird ein aktueller Überblick gegeben, wie stark moderne Prozesstechnologien bereits im Einsatz sind und welche Barrieren Unternehmen daran hindern, ihre Geschäftsprozesse weiter zu digitalisieren und verstärkt Prozesstechnologien einzusetzen.
@@ -45,15 +63,21 @@ Prof. Maximilian Röglinger, Inhaber des Lehrstuhls für Wirtschaftsinformatik u
 
 Die gesamten Studienergebnisse sowie weiterführende Informationen erhalten Sie unter: <https://digital.abbyy.com/fraunhofer-studie.html>
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Über Fraunhofer FIT
 
 Als Partner für Digitalisierung, Industrie 4.0 und das Internet der Dinge entwickelt das Fraunhofer-Institut für Angewandte Informationstechnik FIT seit knapp 40 Jahren IT-Lösungen, die auf Menschen zugeschnitten sind und sich nahtlos in Unternehmensprozesse einfügen. Als Innovationstreiber bietet es nicht nur Orientierung, sondern gestaltet auch den digitalen Wandel in Wirtschaft, Umwelt und Gesellschaft. Die Projektgruppe Wirtschaftsinformatik des Fraunhofer FIT hat sich als international anerkanntes Forschungszentrum an der Schnittstelle von Finanzmanagement, Informationsmanagement und Wirtschaftsinformatik etabliert. Derzeit arbeiten wir insbesondere in den Geschäftsbereichen Digital Disruption, Digital Business und Digital Transformation. Die Grundsätze unserer Forschung sind Innovation, Interdisziplinarität und Ganzheitlichkeit. Darauf basierend wurde gemeinsam mit der Abteilung Data Science und Künstliche Intelligenz des Fraunhofer FIT das [Center for Process Intelligence](https://cpi.fit.fraunhofer.de/) (CPI) gegründet, welches ganzheitliche Beratungsleistungen im Bereich der datengetriebenen Prozessanalyse, Prozessmodellierung und Prozessanalyse für die Industrie anbietet.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528703/16446" target="_top" id="1528703">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528703" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528703/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Über ABBYY
 
@@ -62,27 +86,15 @@ ABBYY ermöglicht es, mit seiner Digital Intelligence Plattform die gesamten Ges
 ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeichen von ABBYY Software Ltd. Alle anderen Warenzeichen sind Eigentum ihrer jeweiligen Inhaber.
 
 <!-- affiliate ads begin -->
-<span id="1498635">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Pressekontakt:
 
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### Bianca Stupp
 
 **ABBYY**

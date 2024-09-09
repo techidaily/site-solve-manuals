@@ -1,12 +1,18 @@
 ---
 title: "Optimizing with Cookiebot: Smart Website Analytics and Personalization Tools"
-date: 2024-09-03T22:40:17.805Z
-updated: 2024-09-04T22:40:17.805Z
+date: 2024-09-08T23:34:45.582Z
+updated: 2024-09-09T23:34:45.582Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/bfe527075b76486c457bb40593f28ebdf4420fa39a7d079da9e7faa5dde71ba1.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Optimizing with Cookiebot: Smart Website Analytics and Personalization Tools
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
@@ -17,6 +23,18 @@ February 04, 2019
 
 ![](https://static1.abbyy.com/abbyycommedia/26700/mobile-monday-66.jpg) 
 
+<!-- affiliate ads begin -->
+<span id="1936838">
+					<video width="374" height="48" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Today’s issue is the last [of our emoji newsletter](https://tools.techidaily.com/abbyy/products/). You’ll learn how to add memojis into FaceTime and how to send AR Emojis on Android. We will also tell you about FineScanner as a research tool and train your dog.
 
 ## iOS Tip: Using Memojis and Animojis in FaceTime Calls
@@ -31,6 +49,12 @@ Of course, before you can use a [memoji](https://support.apple.com/en-us/HT20898
 
 ![facetime with memojis](https://static1.abbyy.com/abbyycommedia/26701/facetime1.jpg) Memojis can also be modified by applying different filters. There’s a Comic Book filter, for example, which can morph your alter ego into a cartoon character.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![memoji effects](https://static1.abbyy.com/abbyycommedia/26702/memoji-effects.jpg)
 
 To apply a filter and add your memoji into iMessage:
@@ -54,10 +78,10 @@ After you create an AR emoji, your phone will automatically generate GIFs featur
 P.S. For more useful tips on using emojis, see the previous issues of this newsletter [here](https://tools.techidaily.com/abbyy/products/) and [here](https://tools.techidaily.com/abbyy/products/).
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **ABBYY Tip: Using FineScanner in Research Projects**
 
@@ -68,53 +92,41 @@ FineScanner successfully captured 600+ pages of printed tables, and all of the p
 ![abbyy finescanner](https://static1.abbyy.com/abbyycommedia/26704/fs1.jpg) Original photo
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006946/19272" target="_top" id="2006946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006946" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ![abbyy finescanner scanning documents](https://static1.abbyy.com/abbyycommedia/28714/fs2.png) Captured data in Excel
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868499/19272" target="_top" id="1868499">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868499" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2135473/26400" target="_top" id="2135473">
+  <img src="//a.impactradius-go.com/display-ad/26400-2135473" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868499/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135473/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 For a detailed step-by-step description of the data capture stage of the project, please see [this page](https://www.meredithpaker.com/updates/digitizingdata).
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **App of the Week: Dogo**
 
 Naturally, you can take your puppy to a dog school, but lots of dog owners choose to train their four-legged pets themselves. [Dogo](https://dogo.pro/) is a mobile app intended to help you with training your dog. The app creates a daily training programme adapted specifically to your pet’s progress, providing you with lots of tips and advice on how to teach your puppy to respond to its name, to offer you its paw, to sit, to roll over, and do lots of other tricks. The app offers detailed step-by-step instructions for teaching your dog each new trick or command. ![train dogs](https://static1.abbyy.com/abbyycommedia/26706/dogo-en.png) ![excirsises for dogs on a smartphone](https://static1.abbyy.com/abbyycommedia/26707/dogo-en2.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 You can then film your dog doing a new trick and submit the video via the app to get additional advice from dog training professionals.
 
 ![good dog](https://static1.abbyy.com/abbyycommedia/26708/dogo-en3.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2031472/7443" target="_top" id="2031472">
-  <img src="//a.impactradius-go.com/display-ad/7443-2031472" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2031472/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 The app is available on [iOS](https://itunes.apple.com/ru/app/id1153294767) and [Android](https://play.google.com/store/apps/details?id=app.dogo.com.dogo%5Fandroid). That’s all from us for today. See you next Monday!
 
 P.S. You can find the previous issue of this newsletter here.
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115949/19272" target="_top" id="2115949">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115949" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115949/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

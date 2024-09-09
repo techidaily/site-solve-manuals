@@ -1,22 +1,46 @@
 ---
 title: "Die Zukunft Der Automatisierten Buchhaltung: Schlüsselelemente Aus Der Jahrestagung 2023"
-date: 2024-09-03T22:40:17.527Z
-updated: 2024-09-04T22:40:17.527Z
+date: 2024-09-08T23:34:45.316Z
+updated: 2024-09-09T23:34:45.316Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ece2bc720a8bffcaadf07cecfb821d8b916ae290e3a31814b743ae86fbbcc5dd.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123480/16836" target="_top" id="2123480">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123480" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123480/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Die Zukunft Der Automatisierten Buchhaltung: Schlüsselelemente Aus Der Jahrestagung 2023
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<span id="1328683">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 2\. Jahrestagung Automatisierte Rechnungsverarbeitung - End-to-End-Lösungen zur Automatisierung der Kreditorenbuchhaltung mit ABBYY
 
 20\. September 2017
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ABBYY, ein führender und globaler Anbieter von Technologien und Lösungen für den effektiven Einsatz von Informationen in Organisationen, präsentiert sich dieses Jahr auf der Jahrestagung Automatisierte Rechnungsverarbeitung. Im Kölner Novotel City Hotel zeigt ABBYY vom 27\. – 29\. September 2017 neue Ansatzpunkte, wie die Prozesse der Kreditorenbuchhaltung durchgängig automatisiert werden können. Auf der Veranstaltung teilt die ABBYY Europe GmbH Erfahrungen aus Großprojekten zur digitalen Transformation der Kreditorenbuchhaltung und zeigt im Vortrag „End-to-End Prozessautomatisierung in der Kreditorenbuchhaltung“ auf, wie die Kosten für die Verarbeitung pro Rechnung nahezu halbiert werden können.
 
 „Die Erfassung und Bearbeitung eingehender Rechnungen bietet immer noch viel Optimierungs- und Einsparungspotenzial. Daten werden zum Teil nach wie vor von Hand erfasst und gebucht.“, sagt der Veranstalter Marcus Evans. „Wir sind froh, mit ABBYY einen führenden Experten für die Prozessautomatisierung in der Kreditorenbuchhaltung als Sponsor gewonnen zu haben und freuen uns auf interessante Einblicke eines erfahrenen Lösungsanbieters."
@@ -123,16 +147,3 @@ Vernetzen Sie sich mit uns
 <li><a href="https://solve-manuals.techidaily.com/unlocking-advanced-features-with-cookiebot-technology-integration/"><u>Unlocking Advanced Features with Cookiebot Technology Integration</u></a></li>
 <li><a href="https://solve-manuals.techidaily.com/zeitreisen-durch-digitalisierung-abbyy-verbindet-universitatsbibliothek-frankfurt-mit-der-vergangenheit/"><u>Zeitreisen Durch Digitalisierung – ABBYY Verbindet Universitätsbibliothek Frankfurt Mit Der Vergangenheit</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1983553">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

@@ -1,22 +1,40 @@
 ---
 title: Unlocking Growth Potential Through Cookiebot Power Solutions
-date: 2024-09-03T22:40:15.619Z
-updated: 2024-09-04T22:40:15.619Z
+date: 2024-09-08T23:34:43.682Z
+updated: 2024-09-09T23:34:43.682Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3f251edfe87940db023c8b9c0c8cf809bbc15f1b02387807fe3914c9b67e4de7.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Unlocking Growth Potential Through Cookiebot Power Solutions
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Appoints Anthony Macciola to Chief Innovation Officer
 
 October 18, 2017
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2128844/7443" target="_top" id="2128844">
+  <img src="//a.impactradius-go.com/display-ad/7443-2128844" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128844/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ABBYY, a global provider of intelligent capture solutions to improve business outcomes, today announced the appointment of Anthony Macciola as Chief Innovation Officer. In this newly-created role, Macciola will drive innovation and lead the development of new product and service concepts as part of ABBYY’s market-focused vision and strategy.
 
 Anthony is recognized as a thought leader and primary innovator of products, solutions, and technologies for the intelligent capture, RPA, BPM, BI and mobile markets. His vast technical and market knowledge related to AI, machine learning, and text analytics – areas where ABBYY is actively developing – will be a massive benefit for our customers and partners,” says **Ulf Persson**, CEO of ABBYY.
@@ -120,10 +138,3 @@ Connect with us
 <li><a href="https://solve-manuals.techidaily.com/understanding-web-pages-key-elements-and-optimization-strategies/"><u>Understanding Web Pages: Key Elements and Optimization Strategies</u></a></li>
 <li><a href="https://solve-manuals.techidaily.com/webinar-invitation-strategies-for-safeguarding-finances-from-fraud-and-money-laundering/"><u>Webinar Invitation: Strategies for Safeguarding Finances From Fraud & Money Laundering</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

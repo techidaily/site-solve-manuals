@@ -1,22 +1,40 @@
 ---
 title: ABBYY Study Shows Finance Professionals Uphold Regulations More Than Public Servants - Exclusive Insights
-date: 2024-09-03T22:40:17.952Z
-updated: 2024-09-04T22:40:17.952Z
+date: 2024-09-08T23:34:45.731Z
+updated: 2024-09-09T23:34:45.731Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4718cfe78df90fc96fd0823cd6a47f148478c5d534b3bf1b20e29d9f9fc07b91.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115943/19272" target="_top" id="2115943">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115943" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115943/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Study Shows Finance Professionals Uphold Regulations More Than Public Servants - Exclusive Insights
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123465/16836" target="_top" id="2123465">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123465" border="0" alt="https://techidaily.com" width="80" height="31"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123465/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY survey reveals financial services staff most likely to play by the rules – unlike government workers
 
 July 15, 2020
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _**Banking, government and insurance industries vary in how they adhere to business processes, but seek help with process mining technologies**_
 
   
@@ -26,6 +44,18 @@ Staff in the banking and financial services (FS) industry are three times more l
 
 ![infographic - playing by the rules](https://static1.abbyy.com/abbyycommedia/29009/11982_infographics_process-mining_abbyy-survey_eng_300dpi.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1374819">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
   
 Fortunately, FS leaders believe their staff are well-motivated to follow processes and rules. Only 12% of staff don’t have the motivation in banking and FS, and as few as 8% in insurance. Overall, approximately 9 in 10 bosses (89%) in both banking, FS and insurance said processes are “rigorously” or “mostly” followed.
 
@@ -33,12 +63,24 @@ Conversely, a quarter (25%) of government leaders say their employees aren’t m
 
 ![table 1: following processes](https://static1.abbyy.com/abbyycommedia/29016/table-pr-07-17-en-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2121331/18498" target="_top" id="2121331">
+  <img src="//a.impactradius-go.com/display-ad/18498-2121331" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121331/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 _Figure 1\. How well do you think business processes are followed in your organization?_
 
 When financial services employees do break the rules, it’s often to provide better customer service – 62% of insurance leaders have confidence that their employees do so to meet the needs of customers, and 50% of banking and FS bosses agree. This suggests financial services staff are extremely customer-driven, and willing to bend the rules when it’s better for customers.
 
 ![table 2: issues and rule-breaking](https://static1.abbyy.com/abbyycommedia/29017/table-pr-07-17-en-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 _Figure 2\. Why do you believe employees don’t always follow processes strictly? Tick all that apply._
 
 Orcutt continued, “The survey suggests the importance of gaining visibility to business processes as they actually behave, identify variances and identifying how they can better meet current customer needs is an essential first step in achieving digital transformation. This is especially critical for financial services companies facing unprecedented pressure due to a perfect storm of maintaining business continuity during a pandemic, technological disruption and evolving customer expectations that impacted call center operations. This can be achieved using innovative [Process Intelligence](https://tools.techidaily.com/abbyy/products/) solutions.” 
@@ -112,10 +154,3 @@ Connect with us
 <li><a href="https://solve-manuals.techidaily.com/unlocking-growth-potential-through-cookiebot-power-solutions/"><u>Unlocking Growth Potential Through Cookiebot Power Solutions</u></a></li>
 <li><a href="https://win11.techidaily.com/windows-activation-the-hidden-traps-in-inexpensive-keys/"><u>Windows Activation: The Hidden Traps in Inexpensive Keys</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

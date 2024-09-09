@@ -1,22 +1,40 @@
 ---
 title: Enhancing Record Accuracy at PwC Through ABBYY's Cutting-Edge Document Processing Systems
-date: 2024-09-03T22:40:20.253Z
-updated: 2024-09-04T22:40:20.253Z
+date: 2024-09-08T23:34:47.991Z
+updated: 2024-09-09T23:34:47.991Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/992704407ab581931890c09cce338091c04f10f6ec09034fcef1854347c08c6c.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Enhancing Record Accuracy at PwC Through ABBYY's Cutting-Edge Document Processing Systems
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115913/19272" target="_top" id="2115913">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115913" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115913/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## PwC Processes Primary Documents with ABBYY Software Solutions
 
 January 26, 2017
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 PwC, a global network of auditing and consulting firms has completed [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) implementation to simplify processing primary financial documentation. This solution will enable auditors to manage their time even more efficiently when tackling high-priority, important tasks and significantly simplify data entry from the clients’ primary documents into the register.
 
 PwC clients in Russia represent over 2,000 companies, 202 of which are in the Expert 400 rating. Audit requires processing large volumes of supporting documents and reconciliating the data therein contained with the information in the accounting system. Previously the primary documents’ data had to be uploaded into the system manually. Moreover, our employees had to analyze each document, find necessary information and type it into the register.
@@ -90,16 +108,3 @@ Connect with us
 <li><a href="https://solve-manuals.techidaily.com/optimizing-with-cookiebot-smart-website-analytics-and-personalization-tools/"><u>Optimizing with Cookiebot: Smart Website Analytics and Personalization Tools</u></a></li>
 <li><a href="https://data-safeguard.techidaily.com/1721202651597-step-by-step-guide-on-using-bitraser-for-complete-enterprise-data-sanitization-watch-now/"><u>Step-by-Step Guide on Using BitRaser for Complete Enterprise Data Sanitization - Watch Now!</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1374819">
-					<video width="125" height="125" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

@@ -1,22 +1,40 @@
 ---
 title: "New Features and Renaming: From ABBYY Recognition Server to ABBYY FineReader Server"
-date: 2024-09-03T22:40:20.292Z
-updated: 2024-09-04T22:40:20.292Z
+date: 2024-09-08T23:34:48.031Z
+updated: 2024-09-09T23:34:48.031Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/74ac13432c01dd5c17161c9b4a52f81e0b445cdf2ff78bc2a59c4da0244a5a39.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## New Features and Renaming: From ABBYY Recognition Server to ABBYY FineReader Server
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Recognition Server erhält umfassendes Update und neuen Namen: ABBYY FineReader Server
 
 26\. November 2018
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115942/19272" target="_top" id="2115942">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115942" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115942/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _Der serverbasierte OCR-Dienst wird in die FineReader-Produktfamilie integriert, um alle Produkte und Lösungen für die Dokumentenerfassung und Konvertierung unter einem Dach zu vereinen_
 
 ABBYY®, ein globaler Anbieter von Lösungen und Services für Content Intelligence, gab heute bekannt, dass Recognition Server, ABBYYs leistungsstärkster serverbasierter Dienst für optische Zeichenerkennung, nun unter dem Namen ABBYY FineReader Server verkauft wird. Ziel dieser Initiative ist es, das gesamte ABBYY OCR- und PDF-Konvertierungsangebot unter der gemeinsamen Marke FineReader zu konsolidieren, um Kunden und Partnern die Suche nach einer geeigneten Lösung im umfassenden Produktportfolio des Unternehmens zu erleichtern.
@@ -140,10 +158,3 @@ Vernetzen Sie sich mit uns
 <li><a href="https://android-pokemon-go.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-oneplus-open-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On OnePlus Open? | Dr.fone</u></a></li>
 <li><a href="https://solve-manuals.techidaily.com/webinar-on-smart-data-extraction-techniques-enhancing-business-insights/"><u>Webinar on Smart Data Extraction Techniques: Enhancing Business Insights</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

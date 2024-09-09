@@ -1,16 +1,28 @@
 ---
 title: "Customized Audience Tracking with Cookiebot: Enhance Your Website's Engagement"
-date: 2024-09-03T22:40:18.222Z
-updated: 2024-09-04T22:40:18.222Z
+date: 2024-09-08T23:34:46.008Z
+updated: 2024-09-09T23:34:46.008Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/bc4c1fafbeb0a4b8e3066f1ca761f451b6c08fbe8e8ce84b7a7a9649ff05ac95.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Customized Audience Tracking with Cookiebot: Enhance Your Website's Engagement
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 新型コロナウィルス（新データ）：悪い業務プロセスの従業員への影響
 
 ###### Bruce Orcutt
@@ -19,6 +31,12 @@ thumbnail: https://thmb.techidaily.com/bc4c1fafbeb0a4b8e3066f1ca761f451b6c08fbe8
 
 ![Blog Cover Image | ABBYY Blog Post](https://static1.abbyy.com/abbyycommedia/30442/12447_blog-cover-image_848х444_3.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115939/19272" target="_top" id="2115939">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115939" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115939/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 新型コロナウィルスが職場に与える影響については、多くのことを耳にしました。在宅勤務への移行、健康と安全を心配する従業員への感情的な犠牲、学齢期の子供たちの遠隔教育のやりくりなどです。 そして、新しい日常のルーチンに落ち着くと、職場で別の課題が明らかになりました。それは「悪い業務プロセス」です。
 
 主に、金融サービス、保険、運輸、小売などの顧客から送信または対応された情報に大きく依存している業界で働いている場合には、既にそれを経験したことがあるかもしれません。 新型コロナウィルス感染拡大が原因で最初に中断したのは、手動の紙ベースの非常に複雑な業務プロセスでした。 銀行での顧客の新規口座開設申込、国、自治体からの助成金、支援ローンへの申込、保険会社での請求管理、小売顧客からの問い合わせ、保証請求の処理–これらの重要な日常業務は大幅に遅延し、従業員と顧客双方にとって不満がたまる形となりました。
@@ -29,6 +47,12 @@ thumbnail: https://thmb.techidaily.com/bc4c1fafbeb0a4b8e3066f1ca761f451b6c08fbe8
 
 驚いたのは、職場の課題に対するもう1つの主要な要因がプロセスであったことです。 効率性、コンプライアンス、そして、より良いビジネス成果を促進するために業務プロセスが用意されていることには、ほとんどの人が同意します。しかしながら、回答者のほぼ半数（48％）が、業務プロセスが仕事をより困難にした、つまり不十分であると非難し、それを理由に4人に1人が仕事を辞めたいと考えています。 別の36％は、プロセスが時間を無駄にし、プロセスを使えなくしたと述べています。
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### では、プロセスは従業員の仕事にどのように悪影響を及ぼしますか？ そして、これに対処するために何ができるでしょうか？
 
 答えは、多くの組織が、人々がシステム、アプリケーションと対話しながら異常値のイベントを処理するような方法ではなく、どうプロセスが流れるべきかの考えに基づいてプロセスを開発することにあります。 業務内の複数のプロセスを分析し、業務オペレーションと業務プロセスのデジタルプロセスモデル（「デジタルツイン」）を提供できる[プロセスインテリジェンス](https://tools.techidaily.com/abbyy/products/)を活用して、ABBYYはこの問題を解決します。
@@ -61,15 +85,21 @@ thumbnail: https://thmb.techidaily.com/bc4c1fafbeb0a4b8e3066f1ca761f451b6c08fbe8
 
 ![Bruce Orcutt ABBYY](https://static5.abbyy.com/abbyycommedia/25719/bruceorcutt-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Bruce Orcutt
 
 Vice President of Product Marketing at ABBYY
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### いいね！、シェア、再投稿
 
