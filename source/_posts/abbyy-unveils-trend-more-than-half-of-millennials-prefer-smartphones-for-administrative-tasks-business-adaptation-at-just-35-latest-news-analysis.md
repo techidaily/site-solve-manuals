@@ -1,46 +1,22 @@
 ---
 title: "ABBYY Unveils Trend: More Than Half of Millennials Prefer Smartphones for Administrative Tasks; Business Adaptation at Just 35%% - Latest News Analysis"
-date: 2024-09-08T23:34:43.714Z
-updated: 2024-09-09T23:34:43.714Z
+date: 2024-09-14T00:38:05.032Z
+updated: 2024-09-14T22:31:09.347Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6d8730f2a77f7bacc79151a55ebc1a6b3c6364485074d0b800543a32a08c9abf.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY Unveils Trend: More Than Half of Millennials Prefer Smartphones for Administrative Tasks; Business Adaptation at Just 35% - Latest News Analysis
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<span id="1304647">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Over half of millennials want to use mobile for admin, with only 35% of businesses catching on
 
 February 25, 2019
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### _Organisations struggling to digitise as 46% of employees find pen and paper simpler to use_
 
 Workers haven't realised the advantages of mobile, with 91% still preferring to use a desktop or laptop for administrative tasks, as revealed by research commissioned by [ABBYY®,](https://tools.techidaily.com/abbyy/products/) the global provider of content IQ solutions.
@@ -91,8 +67,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -102,54 +76,19 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-perfecting-your-presence-mastery-of-title-and-tag-use-on-youtube/"><u>[New] 2024 Approved  Perfecting Your Presence  Mastery of Title and Tag Use on YouTube</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-unlocking-fb-content-windows-plus-mac-methods/"><u>[New] 2024 Approved  Unlocking FB Content  Windows + Mac Methods</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-critical-analysis-the-true-value-of-instas-selfie-confirmation-for-2024/"><u>[New] Critical Analysis  The True Value of Insta's Selfie Confirmation for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-a-shadows-perspective-instagram-story-discovery-with-zero-identity-disclosure-pc-android-iphone/"><u>[Updated] 2024 Approved  A Shadow's Perspective  Instagram Story Discovery with Zero Identity Disclosure [PC, Android, iPhone]</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-circulation-craft-expert/"><u>[Updated] Circulation Craft Expert</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-critical-review-of-best-screen-capture-tools-in-linux-for-2024/"><u>[Updated] Critical Review of Best Screen Capture Tools in Linux for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-quick-and-easy-guide-to-exquisite-collage-artistry/"><u>[Updated] Quick & Easy Guide to Exquisite Collage Artistry</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-the-enhancements-in-vegaspro-with-its-2019-release/"><u>[Updated] The Enhancements in VegasPro with Its 2019 Release</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/abbyy-releases-latest-version-of-ios-13-compatible-mobile-apps-breaking-news-on-innovation-and-performance/"><u>ABBYY Releases Latest Version of iOS 13 Compatible Mobile Apps: Breaking News on Innovation and Performance!</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/achieve-better-insights-without-compromising-on-data-security-discover-our-automated-tracking-technology/"><u>Achieve Better Insights without Compromising on Data Security: Discover Our Automated Tracking Technology</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/automated-conversion-tracking-with-advanced-analytics-by-cookiebot/"><u>Automated Conversion Tracking with Advanced Analytics by Cookiebot</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/boost-your-online-presence-using-cookiebot-technology-tailored-analytics-and-targeting-solutions/"><u>Boost Your Online Presence Using Cookiebot Technology - Tailored Analytics & Targeting Solutions</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/boost-your-sites-performance-with-the-robust-features-of-cookiebot-technology/"><u>Boost Your Site's Performance with the Robust Features of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/boost-your-website-with-advanced-tracking-the-power-of-cookiebot-technology/"><u>Boost Your Website with Advanced Tracking: The Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/comprehensive-security-report-understanding-organizational-safeguards/"><u>Comprehensive Security Report: Understanding Organizational Safeguards</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/comprehensive-step-by-step-tutorial-on-preparing-datasets-for-artificnial-intelligence/"><u>Comprehensive Step-by-Step Tutorial on Preparing Datasets for Artificnial Intelligence</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-personalization-enhancing-your-sites-user-experience/"><u>Cookiebot-Driven Personalization: Enhancing Your Site's User Experience</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-enhanced-experience-optimize-your-website-with-advanced-tracking-solutions/"><u>Cookiebot-Enhanced Experience: Optimize Your Website with Advanced Tracking Solutions</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-enhanced-optimize-your-website-with-cutting-edge-analytics-tools/"><u>Cookiebot-Enhanced: Optimize Your Website with Cutting-Edge Analytics Tools</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebots-magic-touch-in-enhancing-your-websites-visibility-unveiling-the-secrets-behind-successful-seo/"><u>Cookiebot's Magic Touch in Enhancing Your Website's Visibility - Unveiling the Secrets Behind Successful SEO!</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/driven-with-advanced-ai-the-modern-solution-of-cookiebot/"><u>Driven with Advanced AI: The Modern Solution of Cookiebot</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/effortless-docbook-digitization-for-iphones-using-ocr-technology-try-the-power-of-finereader/"><u>Effortless Doc/Book Digitization for iPhones Using OCR Technology - Try the Power of FineReader!</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/elevate-site-traffic-with-advanced-cookiebot-driven-seo-techniques/"><u>Elevate Site Traffic with Advanced Cookiebot-Driven SEO Techniques</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/elevating-enterprise-success-through-process-intelligence-explore-innovations-on-the-abbyy-platform/"><u>Elevating Enterprise Success Through Process Intelligence - Explore Innovations on the ABBYY Platform</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/enhance-user-experience-with-advanced-cookiebot-tracking-technology/"><u>Enhance User Experience with Advanced Cookiebot Tracking Technology</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/enhance-your-website-with-our-advanced-cookiebot-driven-solutions/"><u>Enhance Your Website with Our Advanced Cookiebot-Driven Solutions</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-whatsapp-chat-history-from-iphone-11-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How To Recover Whatsapp Chat History From iPhone 11 | Stellar</u></a></li>
-<li><a href="https://review-topics.techidaily.com/identify-some-outdated-your-drivers-with-windows-device-manager-in-windows-11-and-10-by-drivereasy-guide/"><u>Identify some outdated your drivers with Windows Device Manager in Windows 11 & 10</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-discover-the-best-free-animated-logo-design-software/"><u>In 2024, Discover the Best Free Animated Logo Design Software</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-google-play-location-on-honor-v-purse-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Google Play Location On Honor V Purse | Dr.fone</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-top-5-itel-p55-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>In 2024, Top 5 Itel P55 Bypass FRP Tools for PC That Actually Work</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/kivoton-g2000-audio-troubleshooting-fixing-unresponsive-microphone-problems/"><u>Kivoton G2000 Audio Troubleshooting: Fixing Unresponsive Microphone Problems</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/mastering-the-digital-arena-winning-strategies-against-online-native-banking-services-an-abbyy-guide/"><u>Mastering the Digital Arena: Winning Strategies Against Online-Native Banking Services - An ABBYY Guide</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/methods-to-transfer-from-apple-iphone-13-pro-to-android-drfone-by-drfone-transfer-from-ios/"><u>Methods to Transfer from Apple iPhone 13 Pro to Android | Dr.fone</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/neue-ara-fur-abbyy-industrieveteran-robert-youngjohns-wird-als-geschaftsfuhrer-eingesetzt/"><u>Neue Ära Für ABBYY: Industrieveteran Robert Youngjohns Wird Als Geschäftsführer Eingesetzt</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/nouvelles-perspectives-sur-le-travail-automatise-en-france-selon-letude-abbyy-la-plupart-des-citoyens-sont-ouverts-a-la-delegation-de-roles-aux-machines/"><u>Nouvelles Perspectives Sur Le Travail Automatisé en France Selon L’Étude ABBYY : La Plupart Des Citoyens Sont Ouverts À La Délegation De Rôles Aux Machines</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/optimieren-sie-ihr-marktpraferenz-in-der-finanzbranche-mit-abbyy-checklist/"><u>Optimieren Sie Ihr Marktpräferenz in Der Finanzbranche Mit ABBYY Checklist</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/pioneering-digital-evolutions-mastering-accounts-receivable-with-abbyys-innovative-solutions/"><u>Pioneering Digital Evolutions: Mastering Accounts Receivable with ABBYY's Innovative Solutions</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/revive-your-colors-effective-ways-to-tackle-the-grayscale-problem-in-windows-10/"><u>Revive Your Colors: Effective Ways to Tackle the Grayscale Problem in Windows 10</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/significant-milestones-reached-by-abbyy-in-the-2019-fiscal-years-third-phase/"><u>Significant Milestones Reached by ABBYY in the 2019 Fiscal Year's Third Phase</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/skyrocket-your-site-visits-using-innovative-cookiebot-solutions/"><u>Skyrocket Your Site Visits Using Innovative Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/streamlining-revenue-cycles-and-cutting-down-on-denials-insights-from-an-abbyy-specialist-on-remote-work-efficiency/"><u>Streamlining Revenue Cycles and Cutting Down on Denials: Insights From an ABBYY Specialist on Remote Work Efficiency</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/the-art-of-effortless-document-management-and-boosting-workouts-discover-universal-clipboard-techniques-and-in-depth-guide-to-indoor-cycling-tips-from-the-a10/"><u>The Art of Effortless Document Management and Boosting Workouts: Discover Universal Clipboard Techniques & In-Depth Guide to Indoor Cycling | Tips From the ABBYY Blog</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/the-next-era-in-banking-predictions-for-the-rise-of-smart-banks-powered-by-digital-intelligence-perspectives-by-abbyy-experts/"><u>The Next Era in Banking: Predictions for the Rise of Smart Banks Powered by Digital Intelligence - Perspectives by ABBYY Experts</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/top-imei-unlokers-for-your-itel-p55plus-phone-by-drfone-android/"><u>Top IMEI Unlokers for Your Itel P55+ Phone</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/understanding-virtual-realitys-basic-words/"><u>Understanding Virtual Reality's Basic Words</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/unleashing-potential-abbyys-intelligent-solutions-for-optimized-information-management/"><u>Unleashing Potential: ABBYY's Intelligent Solutions for Optimized Information Management</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/unlocking-growth-potential-through-cookiebot-power-solutions/"><u>Unlocking Growth Potential Through Cookiebot Power Solutions</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-translate-live-video-making-it-possible-with-the-best-tool/"><u>Updated Translate Live Video Making It Possible With The Best Tool</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/pdf-finereader-pdfiphoneandroid/"><u>スクリーンショットからPDFへ: FineReader PDFというアプリはiPhone・Androidデバイスでどのように文章をスキャンしますか?</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-elevate-your-visual-content-perfectly-place-icons-and-emojis-on-instagram/"><u>[New] In 2024, Elevate Your Visual Content Perfectly Place Icons & Emojis on Instagram</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/budget-conscious-obs-tweaks-and-tricks-for-2024/"><u>Budget-Conscious OBS Tweaks and Tricks for 2024</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/enhance-your-digital-experience-with-memoji-animation-in-facetime-advanced-research-scanners-and-effective-dog-training-tips-discover-whats-new-on-abbyy-blo12/"><u>Enhance Your Digital Experience with Memoji Animation in FaceTime, Advanced Research Scanners, and Effective Dog Training Tips – Discover What's New on ABBYY Blog</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/enhancing-user-experience-through-advanced-cookiebot-powered-insights/"><u>Enhancing User Experience Through Advanced Cookiebot-Powered Insights</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/erreichen-von-it-stabilitat-mit-hilfe-der-gleichgewichtstechnik-erkunden-sie-zoom/"><u>Erreichen Von IT-Stabilität Mit Hilfe Der Gleichgewichtstechnik - Erkunden Sie Zoom!</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/get-your-free-html5-media-converter-tool-quickly-change-any-video-into-mp4-ogg-or-webm-format-for-web-use/"><u>Get Your Free HTML5 Media Converter Tool - Quickly Change Any Video Into MP4, OGG or WebM Format for Web Use</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-become-a-reel-pro-in-30-days-or-less/"><u>In 2024, Become a Reel Pro in 30 Days or Less</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

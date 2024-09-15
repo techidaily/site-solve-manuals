@@ -1,46 +1,22 @@
 ---
 title: "Innovating Finance: How France's Premier Bank Transforms with Digitalization Using ABBYY FlexiCapture Technology"
-date: 2024-09-08T23:34:47.406Z
-updated: 2024-09-09T23:34:47.406Z
+date: 2024-09-09T18:23:39.322Z
+updated: 2024-09-14T16:47:22.779Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b357c4b8f72776975451a46d642e42d569af6d435c0d587f7372c46c2b7924bd.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115933/19272" target="_top" id="2115933">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115933" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115933/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Innovating Finance: How France's Premier Bank Transforms with Digitalization Using ABBYY FlexiCapture Technology
 
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
 
 Financial Services | Credit Application Processing
 
-<!-- affiliate ads begin -->
-<span id="1834903">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Leading French Bank Goes Digital with a Document Processing Solution Based on ABBYY FlexiCapture
 
 ![pathner logo](https://content.abbyy.com/-/media/project/abbyy/abbyy/logos-white/abbyy.png?h=40&iar=0&w=120)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
 
 ## Leading French Bank Goes Digital with a Document Processing Solution Based on ABBYY FlexiCapture
@@ -109,38 +85,14 @@ The introduction of this integrated solution enables the credit department at Ca
 
 [![FlexiCapture](https://static2.abbyy.com/abbyycommedia/21380/4-flexicapture.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123481/16836" target="_top" id="2123481">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123481" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123481/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![Banking and Finance](https://static4.abbyy.com/abbyycommedia/14358/8-banking-and-finance.jpg)](https://tools.techidaily.com/abbyy/products/) [Banking and Finance](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![PDF Version](https://static2.abbyy.com/abbyycommedia/15357/cs-caisse-360x162-2.jpg)](https://static5.abbyy.com/abbyycommedia/5095/cs-caisse-epargne%5Fbanking%5Fe.pdf "PDF version") [PDF version](https://static5.abbyy.com/abbyycommedia/5095/cs-caisse-epargne%5Fbanking%5Fe.pdf "PDF version") 
 
-<!-- affiliate ads begin -->
-<span id="1976998">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [read more](https://static5.abbyy.com/abbyycommedia/5095/cs-caisse-epargne%5Fbanking%5Fe.pdf "PDF version") 
 
 ###### Like, share or repost
@@ -159,8 +111,6 @@ We'd love to help you along your automation journey.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -170,52 +120,27 @@ We'd love to help you along your automation journey.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-best-youtube-live-streaming-software-and-hardware-you-should-know/"><u>[New] 2024 Approved  Best YouTube Live Streaming Software and Hardware You Should Know</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-essential-tips-for-gameplay-screen-shotting-on-playstation-4/"><u>[New] Essential Tips for Gameplay Screen Shotting on PlayStation 4</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-making-fb-video-accessible-on-household-tvs/"><u>[New] In 2024, Making Fb Video Accessible on Household TVs</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-exploring-apowersofts-pc-screen-snap-recorder/"><u>[Updated] Exploring Apowersoft's PC Screen Snap Recorder</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-how-can-you-make-outstanding-youtube-outro-for-2024/"><u>[Updated] How Can You Make Outstanding YouTube Outro for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-microsofts-vision-of-tomorrow-with-hololens-exploration/"><u>[Updated] Microsoft’s Vision of Tomorrow With HoloLens Exploration</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-unboxing-freex-streamer-pro-for-webcams-for-2024/"><u>[Updated] Unboxing FreeX Streamer Pro for Webcams for 2024</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/1-automated-conversion-tracking-enhanced-with-cookiebot-technology/"><u>1. Automated Conversion Tracking: Enhanced with Cookiebot Technology</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-developing-optimal-canon-time-lapse-artistry/"><u>2024 Approved  Developing Optimal Canon Time-Lapse Artistry</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-sonic-scenes-from-still-shots/"><u>2024 Approved  Sonic Scenes From Still Shots</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/1724313623358-abbyy-flexicapture/"><u>高付加価値への転換:ABBYY FlexiCapture®による請求書プロセス改革とデジタル技術活用</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/abbyy-launches-cutting-edge-research-facility-in-india/"><u>ABBYY Launches Cutting-Edge Research Facility in India</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/ai-driven-triumph-abbyy-achieves-60-revenue-surge-accolades-from-idc-marketscape/"><u>AI-Driven Triumph: ABBYY Achieves 60%% Revenue Surge - Accolades From IDC MarketScape</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/automated-consent-management-how-cookiebot-streamlines-compliance/"><u>Automated Consent Management: How Cookiebot Streamlines Compliance</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/automation-projects-aiming-to-reduce-employee-burnout-study-insights/"><u>Automation Projects Aiming to Reduce Employee Burnout - Study Insights</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/award-winning-abbyy-dominates-2024-gartner-magic-quadrant-for-process-mining-software/"><u>Award-Winning ABBYY Dominates 2024 Gartner Magic Quadrant for Process Mining Software</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/boost-your-shipping-efficiency-access-our-essential-downloaded-checklist-now/"><u>Boost Your Shipping Efficiency: Access Our Essential Downloaded Checklist Now!</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/boost-your-traffic-with-cookiebots-advanced-tracking-solutions/"><u>Boost Your Traffic with Cookiebot's Advanced Tracking Solutions</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/bypassing-google-account-with-vnrom-bypass-for-nokia-c32-by-drfone-android/"><u>Bypassing Google Account With vnROM Bypass For Nokia C32</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/convert-your-scanned-documents-and-books-into-editable-text-with-iphone-scanner-app/"><u>Convert Your Scanned Documents & Books Into Editable Text with iPhone Scanner App</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-fueled-solutions-enhancing-user-experience-with-smart-data-tracking/"><u>Cookiebot-Fueled Solutions: Enhancing User Experience with Smart Data Tracking</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-the-essential-ai-driven-tool-enhancing-your-websites-seo/"><u>Cookiebot: The Essential AI-Driven Tool Enhancing Your Website's SEO</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-your-key-to-effective-online-user-tracking-and-personalization/"><u>Cookiebot: Your Key to Effective Online User Tracking and Personalization</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-pictures-from-gionee-f3-pro-by-fonelab-android-recover-pictures/"><u>Easy steps to recover deleted pictures from Gionee F3 Pro.</u></a></li>
-<li><a href="https://win11.techidaily.com/elevating-your-winning-streak-with-fps-techniques/"><u>Elevating Your Winning Streak with FPS Techniques</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/enhanced-user-experience-with-our-automated-marketing-solutions/"><u>Enhanced User Experience with Our Automated Marketing Solutions</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/exploring-growth-opportunities-for-roboyo-and-abbyy-in-the-evolving-field-of-digital-intelligence/"><u>Exploring Growth Opportunities for Roboyo & ABBYY in the Evolving Field of Digital Intelligence</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-change-lock-screen-wallpaper-on-honor-magic-6-by-drfone-android/"><u>How to Change Lock Screen Wallpaper on Honor Magic 6</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-reset-a-locked-honor-magic-5-pro-phone-by-drfone-android/"><u>How to Reset a Locked Honor Magic 5 Pro Phone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-spy-on-text-messages-from-computer-and-xiaomi-13-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How to Spy on Text Messages from Computer & Xiaomi 13 Ultra | Dr.fone</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/in-2024-streamlining-online-recording-of-webcamplusscreen/"><u>In 2024, Streamlining Online Recording of Webcam+Screen</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-swift-channels-growth-optimizing-viewership-with-collaborative-videos/"><u>In 2024, Swift Channels Growth  Optimizing Viewership with Collaborative Videos</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-techniques-in-producing-accelerated-video-narratives/"><u>In 2024, Techniques in Producing Accelerated Video Narratives</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/in-2024-youtube-earning-blueprint-achieving-bank-balances/"><u>In 2024, YouTube Earning Blueprint  Achieving Bank Balances</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/leading-identity-provider-applications-in-the-usa-europe-and-asia-pacific-regions/"><u>Leading Identity Provider Applications in the USA, Europe, and Asia-Pacific Regions</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/leveraging-artificeinvoice-automation-the-ultimate-guide-to-using-ai-in-electronic-invoicing/"><u>Leveraging Artificeinvoice Automation: The Ultimate Guide to Using AI in Electronic Invoicing</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/mastering-supply-chain-durability-incorporating-process-insights-into-your-strategy-with-abbyy-industry-leaders/"><u>Mastering Supply Chain Durability: Incorporating Process Insights Into Your Strategy with ABBYY Industry Leaders</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/optimized-with-advanced-cookiebot-technology/"><u>Optimized with Advanced Cookiebot Technology</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/slash-expenses-in-newspaper-digitization-dl-consultings-use-of-abbyy-software/"><u>Slash Expenses in Newspaper Digitization: DL Consulting's Use of ABBYY® Software</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/the-ultimate-guide-how-to-bypass-swipe-screen-to-unlock-on-oppo-reno-9a-device-by-drfone-android/"><u>The Ultimate Guide How to Bypass Swipe Screen to Unlock on Oppo Reno 9A Device</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/top-5-factors-behind-chatgpts-unprecedented-rise-as-a-global-phenomenon/"><u>Top 5 Factors Behind ChatGPT's Unprecedented Rise as a Global Phenomenon</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/top-priorities-when-shopping-for-televisions/"><u>Top Priorities When Shopping for Televisions</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/transform-mobile-scanning-with-abbyys-business-card-reader-for-android-fast-accurate-intuitive-technology/"><u>Transform Mobile Scanning with ABBYY's Business Card Reader for Android: Fast, Accurate, Intuitive Technology</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/transform-your-business-save-time-and-money-with-our-superior-paperless-solutions-and-world-class-ocr-tools-for-smb-success/"><u>Transform Your Business: Save Time & Money with Our Superior Paperless Solutions and World-Class OCR Tools for SMB Success</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/unleashing-potential-with-cookiebot-technology-for-websites/"><u>Unleashing Potential with Cookiebot Technology for Websites</u></a></li>
-<li><a href="https://extra-information.techidaily.com/unlock-the-power-of-design-in-audio-branding/"><u>Unlock the Power of Design in Audio Branding</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/unlocking-the-potential-6-insights-on-how-snapchats-my-ai-transcends-beyond-fun/"><u>Unlocking the Potential: 6 Insights on How Snapchat's My AI Transcends Beyond Fun</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/webinar-recap-strategies-to-minimize-risks-in-libor-agreements/"><u>Webinar Recap: Strategies to Minimize Risks in LIBOR Agreements</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-effective-use-of-zoom-on-your-chrome-based-device/"><u>[New] In 2024, Effective Use of Zoom on Your Chrome-Based Device</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-prolific-productions-top-10-text-techniques-to-captivate-viewers/"><u>[New] Prolific Productions Top 10 Text Techniques to Captivate Viewers</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-the-ultimate-guide-to-choosing-the-most-effective-9-multimedia-devices-ios-android/"><u>[New] The Ultimate Guide to Choosing the Most Effective 9 Multimedia Devices (iOS, Android)</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-unlocking-secrets-your-complete-overview-of-stardew-and-ginger-isle/"><u>[Updated] In 2024, Unlocking Secrets Your Complete Overview of Stardew and Ginger Isle</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1-david-yang-visionary-behind-abbyy-leading-with-strategic-insight-as-board-chairman/"><u>1. David Yang: Visionary Behind ABBYY, Leading with Strategic Insight as Board Chairman</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-best-yt-storytellers-for-enthralling-viewing-experience/"><u>2024 Approved Best YT Storytellers for Enthralling Viewing Experience</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-the-best-of-the-best-androids-top-8-group-chatters/"><u>2024 Approved The Best of the Best Android's Top 8 Group Chatters</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/boost-your-computers-space-on-windows-using-these-free-tools/"><u>Boost Your Computer's Space on Windows Using These Free Tools</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/optimize-supply-chains-now-harnessing-the-benefits-of-ai-automation/"><u>Optimize Supply Chains Now: Harnessing the Benefits of AI Automation</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/optimizing-your-legal-paperwork-5-key-tips-using-abbyy-tech/"><u>Optimizing Your Legal Paperwork: 5 Key Tips Using ABBYY Tech</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/seamless-pdf-conversion-and-text-extraction-using-abbyys-powerful-ocr-software-development-kit/"><u>Seamless PDF Conversion & Text Extraction Using ABBYY's Powerful OCR Software Development Kit</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/techtarget-predicts-soaring-rise-workforce-of-software-robots-to-surge-by-half-in-coming-years/"><u>TechTarget Predicts Soaring Rise: Workforce of Software Robots to Surge by Half in Coming Years</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/top-ranked-transpo-cost-control-firm-accelerates-bill-approvals-via-intelligent-data-systems/"><u>Top-Ranked Transpo Cost Control Firm Accelerates Bill Approvals via Intelligent Data Systems</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/unlocking-advanced-features-with-cookiebot-technology-integration/"><u>Unlocking Advanced Features with Cookiebot Technology Integration</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/zeitreisen-durch-digitalisierung-abbyy-verbindet-universitatsbibliothek-frankfurt-mit-der-vergangenheit/"><u>Zeitreisen Durch Digitalisierung – ABBYY Verbindet Universitätsbibliothek Frankfurt Mit Der Vergangenheit</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

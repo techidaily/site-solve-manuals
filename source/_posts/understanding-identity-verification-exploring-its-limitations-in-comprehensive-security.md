@@ -1,7 +1,7 @@
 ---
 title: "Understanding Identity Verification: Exploring Its Limitations in Comprehensive Security"
-date: 2024-09-08T23:34:47.536Z
-updated: 2024-09-09T23:34:47.536Z
+date: 2024-09-08T16:07:18.767Z
+updated: 2024-09-14T19:10:41.014Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8e945962e22da7cc13548b0273df3ba622849bedca30e5d0f04cb4a458929e39.jpg
@@ -33,12 +33,6 @@ One of the critical aspects of online services involving sensitive data—such a
 
 A common misperception of identity proofing equates it with another common online security concept, _identity authentication_. Authentication is the use of a combination of credentials—generally a username and password—to gain access to a resource. However, before users can be assigned credentials, especially for access to sensitive resources, they must first verify who they are through identity proofing.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How does identity proofing work?
 
 The NIST identifies [three steps that make up the identity proofing process](https://pages.nist.gov/800-63-3/sp800-63a.html#sec5):
@@ -51,12 +45,6 @@ The NIST identifies [three steps that make up the identity proofing process](htt
 
 Manual approaches to this detailed process can be time-consuming, tedious, and at high risk for error. Fortunately, today’s identity proofing systems can leverage automation and AI to carry out each step without the need for human intervention in most cases.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## What’s the difference between identity proofing and identity affirmation … and why do we need both? 
 
 While identity proofing is a vital capability for organizations looking to secure their processes, there is more to the story. Sophisticated scammers are capable of creating realistic documentation that may even trick some verification systems, even though the human being they describe is purely fictional. This is why businesses need identity affirmation alongside traditional identity proofing. 
@@ -65,12 +53,6 @@ Identity affirmation, [according to Gartner](https://www.gartner.com/en/document
 
 When businesses leverage identity proofing and identity affirmation in tandem, they can enjoy a high level of confidence that the users they interact with really are who they say they are.
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Is there a “one-stop shop” for identity proofing and affirmation capabilities?
 
 While many vendors offer identity proofing and affirmation tools, few actually deliver the full slate of required functions. When ABBYY developers designed our solution, we made sure to include a full slate of capabilities for you, including
@@ -83,11 +65,12 @@ While many vendors offer identity proofing and affirmation tools, few actually d
 * Process intelligence and mining to identify opportunities for process improvement
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115943/19272" target="_top" id="2115943">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115943" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115943/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## What are common use cases for identity proofing?
 
 While fraud can happen in nearly any industry, sectors with a high frequency of high-risk transactions stand to derive the greatest benefit from AI-driven identity proofing solutions. Here’s a brief sampling of how businesses in various industries are putting identity proofing to use: 
@@ -120,17 +103,18 @@ While fraud can happen in nearly any industry, sectors with a high frequency of 
 
 ![abbyy proof of identity](https://static1.abbyy.com/abbyycommedia/36104/poi-gif-4_using-poi-1.gif?width=847&height=477)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Over the course of just a few years, the volume and complexity of online transactions has grown exponentially, both for better and for worse. Fortunately, identity proofing and affirmation solutions can help businesses continue to meet consumers’ demands for efficient, convenient services while also staying one step ahead of fraudulent actors.
 
 Not only can you minimize the risk of fraud—and the corresponding costs in terms of money and reputation—but you can also earn and build upon the trust of your customers, building relationships that can support business goals for years to come.
 
 Learn about ABBYY's comprehensive identity proofing solution. [ABBYY Proof of Identity](https://tools.techidaily.com/abbyy/products/) does it all. 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### ABBYY Proof of Identity
 
@@ -140,18 +124,6 @@ Easy for your customers. Secure for your business.
 
 [Artificial Intelligence (AI)](https://www.abbyy.com/blog/artificial-intelligence-ai/ "Artificial Intelligence (AI)") [Customer Experience](https://tools.techidaily.com/abbyy/products/) [Customer Onboarding](https://tools.techidaily.com/abbyy/products/) [Data Privacy](https://tools.techidaily.com/abbyy/products/) [Digital Transformation](https://tools.techidaily.com/abbyy/products/) [Enterprise](https://tools.techidaily.com/abbyy/products/) [Financial Services](https://tools.techidaily.com/abbyy/products/) [Government](https://tools.techidaily.com/abbyy/products/) [Healthcare](https://tools.techidaily.com/abbyy/products/) [Intelligent Automation](https://tools.techidaily.com/abbyy/products/) [Intelligent Document Processing (IDP)](https://www.abbyy.com/blog/intelligent-document-processing-idp/ "Intelligent Document Processing (IDP)") [Insurance](https://tools.techidaily.com/abbyy/products/) [Legal](https://tools.techidaily.com/abbyy/products/) [Mobile](https://tools.techidaily.com/abbyy/products/) [Robotic Process Automation (RPA)](https://www.abbyy.com/blog/robotic-process-automation-rpa/ "Robotic Process Automation (RPA)") [Transportation & Logistics](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<span id="1265663">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 
@@ -206,8 +178,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -217,42 +187,19 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/updated-5-must-know-strategies-for-effective-team-video-calls/"><u>[Updated] 5 Must-Know Strategies for Effective Team Video Calls</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-clipcrafter-window-edition-for-2024/"><u>[Updated] ClipCrafter Window Edition for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-in-2024-harnessing-look-up-tables-luts-to-achieve-stunning-visuals/"><u>[Updated] In 2024, Harnessing Look-Up Tables (LUTs) to Achieve Stunning Visuals</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-the-secret-technique-for-instantaneous-deletion-of-youtube-discussions/"><u>[Updated] In 2024, The Secret Technique for Instantaneous Deletion of Youtube Discussions</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-peeking-into-pixel-performance-a-complete-guide-to-measuring-views-and-income-on-youtube/"><u>[Updated] Peeking Into Pixel Performance  A Complete Guide to Measuring Views and Income on YouTube</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-premium-after-effects-text-enhancements/"><u>[Updated] Premium After Effects Text Enhancements</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/2024-approved-timelapse-excellence-iphones-quick-guide/"><u>2024 Approved  Timelapse Excellence  IPhone's Quick Guide</u></a></li>
-<li><a href="https://howto.techidaily.com/8-solutions-to-solve-youtube-app-crashing-on-sony-xperia-5-v-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Solutions to Solve YouTube App Crashing on Sony Xperia 5 V | Dr.fone</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/automated-traffic-management-with-the-advanced-capabilities-of-cookiebot/"><u>Automated Traffic Management with the Advanced Capabilities of Cookiebot</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/automation-insights-robotics-employment-and-advanced-text-analysis-on-the-abbeyb-log/"><u>Automation Insights - Robotics, Employment & Advanced Text Analysis on the ABBEYB Log</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/becoming-a-video-marketing-vanguard-on-facebook-with-these-20-methods-for-2024/"><u>Becoming a Video Marketing Vanguard on Facebook with These 20 Methods for 2024</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/boosting-site-engagement-with-advanced-cookiebot-tracking-solutions/"><u>Boosting Site Engagement with Advanced Cookiebot Tracking Solutions</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/comparing-rpa-and-ipa-understanding-their-distinctive-features/"><u>Comparing RPA and IPA: Understanding Their Distinctive Features</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-solutions-enhancing-digital-experiences/"><u>Cookiebot-Driven Solutions: Enhancing Digital Experiences</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-marketing-tools-for-advanced-user-tracking-and-analysis/"><u>Cookiebot-Enabled Marketing Tools for Advanced User Tracking and Analysis</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-optimize-your-sites-performance-with-advanced-tracking-technology/"><u>Cookiebot-Enabled: Optimize Your Site's Performance with Advanced Tracking Technology</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-enhanced-user-experience-smart-marketing-with-advanced-analytics/"><u>Cookiebot-Enhanced User Experience: Smart Marketing with Advanced Analytics</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-fueled-customized-experiences-enhancing-user-engagement/"><u>Cookiebot-Fueled Customized Experiences: Enhancing User Engagement</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/digitales-spiegelbild-fur-unternehmensablaufe-einfuhrungsbuch-abbey-linie/"><u>Digitales Spiegelbild Für Unternehmensabläufe: Einführungsbuch – ABBEY-Linie</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/driven-with-cookiebot-technology/"><u>Driven with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/elevate-employee-integration-and-profits-the-power-of-bai-for-superior-onboarding-results/"><u>Elevate Employee Integration & Profits: The Power of BAI for Superior Onboarding Results</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/enhanced-targeting-with-the-power-of-cookiebot-technology/"><u>Enhanced Targeting with the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/enhancing-voice-assistant-interactions-through-advanced-vocal-recognition-training-insights-by-abbyy-blog/"><u>Enhancing Voice Assistant Interactions Through Advanced Vocal Recognition Training | Insights by ABBYY Blog</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/enhancing-web-analytics-with-cookiebot-technology/"><u>Enhancing Web Analytics with Cookiebot Technology</u></a></li>
-<li><a href="https://fox-that.techidaily.com/fix-common-smartphone-faults-with-a-simple-restart-strategy/"><u>Fix Common Smartphone Faults with a Simple Restart Strategy</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/harness-the-power-of-cookiebot-for-enhanced-search-engine-performance/"><u>Harness the Power of Cookiebot for Enhanced Search Engine Performance</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-fix-unfortunately-contacts-has-stopped-error-on-motorola-moto-g13-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Unfortunately, Contacts Has Stopped Error on Motorola Moto G13 | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-leave-a-life360-group-on-htc-u23-pro-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How To Leave a Life360 Group On HTC U23 Pro Without Anyone Knowing? | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-uncovering-the-most-recent-facebook-changes/"><u>In 2024, Uncovering the Most Recent Facebook Changes</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/innovating-finance-how-frances-premier-bank-transforms-with-digitalization-using-abbyy-flexicapture-technology/"><u>Innovating Finance: How France's Premier Bank Transforms with Digitalization Using ABBYY FlexiCapture Technology</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/insurtech-evolution-insights-expert-interview-with-forrester/"><u>InsurTech Evolution Insights: Expert Interview with Forrester</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/leverage-cookiebot-technology-for-enhanced-online-advertising-success/"><u>Leverage Cookiebot Technology for Enhanced Online Advertising Success</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/mastering-efficiency-through-the-integration-of-process-mining-techniques-and-robotic-process-automation/"><u>Mastering Efficiency Through the Integration of Process Mining Techniques and Robotic Process Automation</u></a></li>
-<li><a href="https://ai-video-editing.techidaily.com/new-2024-approved-wondering-how-to-create-a-stunning-intro-video-with-kinemaster-here-are-the-simple-steps-to-use-kinemaster-to-design-your-intro-video-in-s/"><u>New 2024 Approved Wondering How to Create a Stunning Intro Video with KineMaster? Here Are the Simple Steps to Use KineMaster to Design Your Intro Video in Simple Steps</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/new-expert-techniques-for-isolating-singers-from-visual-media-for-2024/"><u>New Expert Techniques for Isolating Singers From Visual Media for 2024</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/the-most-effective-ways-to-bypass-iphone-12-activation-lock-by-drfone-ios/"><u>The Most Effective Ways to Bypass iPhone 12 Activation Lock</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/unleash-your-time-potential-with-gratuitous-clock-tools/"><u>Unleash Your Time Potential with Gratuitous Clock Tools</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/unveiling-the-process-of-making-a-twitter-account-for-2024/"><u>Unveiling the Process of Making a Twitter Account for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-photo-finesse-leading-edits-for-social-media-savvy-for-2024/"><u>[New] Photo Finesse Leading Edits for Social Media Savvy for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-professional-panoramic-vision-leading-360-cameras-of-2023/"><u>2024 Approved Professional Panoramic Vision Leading 360° Cameras of 2023</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-top-7-mac-compatible-videos-viewers/"><u>2024 Approved Top 7 Mac-Compatible Videos Viewers</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/abbyy-revamps-sales-department-by-promoting-joe-rayfield-to-vice-presidency/"><u>ABBYY Revamps Sales Department by Promoting Joe Rayfield to Vice Presidency</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/abbyy-unveils-trend-more-than-half-of-millennials-prefer-smartphones-for-administrative-tasks-business-adaptation-at-just-35-latest-news-analysis/"><u>ABBYY Unveils Trend: More Than Half of Millennials Prefer Smartphones for Administrative Tasks; Business Adaptation at Just 35% - Latest News Analysis</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/1723212085191-fixing-the-quick-fix-engineering-qfe-issue-resolve-windows-update-error-code-0x80070002/"><u>Fixing the Quick Fix Engineering (QFE) Issue: Resolve Windows Update Error Code 0X80070002</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-xiaomi-redmi-note-12-proplus-5g-to-new-android-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos from Xiaomi Redmi Note 12 Pro+ 5G to New Android? | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-can-we-bypass-vivo-y27-5g-frp-by-drfone-android/"><u>In 2024, How Can We Bypass Vivo Y27 5G FRP?</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-in-2024-flip-rotate-and-spin-the-ultimate-guide-to-online-video-rotators/"><u>New In 2024, Flip, Rotate, and Spin The Ultimate Guide to Online Video Rotators</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/the-power-of-collaborative-innovation-discovering-the-benefits-of-embracing-hackathon-culture/"><u>The Power of Collaborative Innovation: Discovering the Benefits of Embracing Hackathon Culture</u></a></li>
+<li><a href="https://win11.techidaily.com/top-8-methods-for-converting-mov-files-into-wav-format-a-comprehensive-guide/"><u>Top 8 Methods for Converting MOV Files Into WAV Format: A Comprehensive Guide</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/transforming-supply-chain-efficiency-through-ai-powered-digitally-integrated-transportation-solutions-perspectives-from-abbyy-experts/"><u>Transforming Supply Chain Efficiency Through AI-Powered, Digitally Integrated Transportation Solutions - Perspectives From ABBYY Experts</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/understanding-web-pages-key-elements-and-optimization-strategies/"><u>Understanding Web Pages: Key Elements and Optimization Strategies</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/webinar-invitation-strategies-for-safeguarding-finances-from-fraud-and-money-laundering/"><u>Webinar Invitation: Strategies for Safeguarding Finances From Fraud & Money Laundering</u></a></li>
 </ul></div>
+

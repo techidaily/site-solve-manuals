@@ -1,40 +1,22 @@
 ---
 title: Torsten Malchow Takes on Role of Senior VP for Worldwide Enterprise Sales at ABBYY
-date: 2024-09-08T23:34:47.504Z
-updated: 2024-09-09T23:34:47.504Z
+date: 2024-09-11T19:35:57.439Z
+updated: 2024-09-14T17:42:44.958Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f20754be61be25378c16e65b62ab87943c4b43cc2d7005b2adb1f8ded04dff01.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Torsten Malchow Takes on Role of Senior VP for Worldwide Enterprise Sales at ABBYY
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY beruft Torsten Malchow zum neuen Vice President, Head of Global Enterprise Sales
 
 12\. September 2018
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120866/26400?prodsku=mars" target="_top" id="2120866">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120866" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120866/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### _Malchow soll mit seiner Erfahrung den Verkauf von Content-Intelligence-Lösungen noch stärker vorantreiben_
 
 ABBYY®, ein globaler Anbieter von Lösungen und Services für Content Intelligence, besetzt mit Torsten Malchow die Position des Vice President, Head of Global Enterprise Sales neu. Er soll die Entwicklung und Umsetzung der Verkaufsstrategie vorantreiben und ABBYYs Präsenz in spezifischen Industriezweigen und Regionen ausweiten.
@@ -88,8 +70,6 @@ Vernetzen Sie sich mit uns
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -99,37 +79,26 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-essential-guide-to-top-12-free-and-paid-gaming-introduction-creators/"><u>[New] 2024 Approved  Essential Guide to Top 12 Free and Paid Gaming Introduction Creators</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/-comprehensive-walkthrough-for-embedding-youtube-plays-in-web-design-for-2024/"><u>[New] A Comprehensive Walkthrough for Embedding YouTube Plays in Web Design for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-calculating-viewing-time-for-a-20mb-video/"><u>[New] Calculating Viewing Time for a 20Mb Video</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-essential-rules-of-engagement-on-youtube-for-2024/"><u>[New] Essential Rules of Engagement on YouTube for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-the-wealth-of-mr-beast/"><u>[New] In 2024, The Wealth of Mr. Beast</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-pros-best-top-8-tripods-excelling-at-4k-video-capture/"><u>[New] Pro's Best  Top 8 Tripods Excelling at 4K Video Capture</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-the-symbiotic-relationship-between-cities-and-ecology-for-2024/"><u>[Updated] The Symbiotic Relationship Between Cities and Ecology for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-transforming-mundane-images-with-music-on-instagram-for-2024/"><u>[Updated] Transforming Mundane Images with Music on Instagram for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2023-how-to-fix-live-video-interrupted-on-facebook-for-2024/"><u>2023 | How to Fix Live Video Interrupted on Facebook for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-embrace-mematic-your-personal-digital-diary/"><u>2024 Approved  Embrace Mematic  Your Personal Digital Diary</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-review-of-huawei-p10s-multimedia-features-and-functionality/"><u>2024 Approved  Review of Huawei P10’s Multimedia Features & Functionality</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/abbyy-releases-latest-version-of-ios-13-compatible-mobile-apps-breaking-news-on-innovation-and-performance/"><u>ABBYY Releases Latest Version of iOS 13 Compatible Mobile Apps: Breaking News on Innovation and Performance!</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/achieve-better-insights-without-compromising-on-data-security-discover-our-automated-tracking-technology/"><u>Achieve Better Insights without Compromising on Data Security: Discover Our Automated Tracking Technology</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/automated-conversion-tracking-with-advanced-analytics-by-cookiebot/"><u>Automated Conversion Tracking with Advanced Analytics by Cookiebot</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/boost-your-online-presence-using-cookiebot-technology-tailored-analytics-and-targeting-solutions/"><u>Boost Your Online Presence Using Cookiebot Technology - Tailored Analytics & Targeting Solutions</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/boost-your-sites-performance-with-the-robust-features-of-cookiebot-technology/"><u>Boost Your Site's Performance with the Robust Features of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/boost-your-website-with-advanced-tracking-the-power-of-cookiebot-technology/"><u>Boost Your Website with Advanced Tracking: The Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/comprehensive-security-report-understanding-organizational-safeguards/"><u>Comprehensive Security Report: Understanding Organizational Safeguards</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/comprehensive-step-by-step-tutorial-on-preparing-datasets-for-artificnial-intelligence/"><u>Comprehensive Step-by-Step Tutorial on Preparing Datasets for Artificnial Intelligence</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-personalization-enhancing-your-sites-user-experience/"><u>Cookiebot-Driven Personalization: Enhancing Your Site's User Experience</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-zte-axon-40-lite-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On ZTE Axon 40 Lite? | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/how-to-reset-motorola-moto-g14-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Motorola Moto G14 without Losing Data | Dr.fone</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/optimieren-sie-ihr-marktpraferenz-in-der-finanzbranche-mit-abbyy-checklist/"><u>Optimieren Sie Ihr Marktpräferenz in Der Finanzbranche Mit ABBYY Checklist</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/pioneering-digital-evolutions-mastering-accounts-receivable-with-abbyys-innovative-solutions/"><u>Pioneering Digital Evolutions: Mastering Accounts Receivable with ABBYY's Innovative Solutions</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/s-hottest-iphone-apps-user-favorites-and-critic-picks-for-2024/"><u>S Hottest iPhone Apps User Favorites and Critic Picks for 2024</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/significant-milestones-reached-by-abbyy-in-the-2019-fiscal-years-third-phase/"><u>Significant Milestones Reached by ABBYY in the 2019 Fiscal Year's Third Phase</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/skyrocket-your-site-visits-using-innovative-cookiebot-solutions/"><u>Skyrocket Your Site Visits Using Innovative Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/streamlining-revenue-cycles-and-cutting-down-on-denials-insights-from-an-abbyy-specialist-on-remote-work-efficiency/"><u>Streamlining Revenue Cycles and Cutting Down on Denials: Insights From an ABBYY Specialist on Remote Work Efficiency</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/the-art-of-effortless-document-management-and-boosting-workouts-discover-universal-clipboard-techniques-and-in-depth-guide-to-indoor-cycling-tips-from-the-a10/"><u>The Art of Effortless Document Management and Boosting Workouts: Discover Universal Clipboard Techniques & In-Depth Guide to Indoor Cycling | Tips From the ABBYY Blog</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/the-next-era-in-banking-predictions-for-the-rise-of-smart-banks-powered-by-digital-intelligence-perspectives-by-abbyy-experts/"><u>The Next Era in Banking: Predictions for the Rise of Smart Banks Powered by Digital Intelligence - Perspectives by ABBYY Experts</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/unleashing-potential-abbyys-intelligent-solutions-for-optimized-information-management/"><u>Unleashing Potential: ABBYY's Intelligent Solutions for Optimized Information Management</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/unlocking-growth-potential-through-cookiebot-power-solutions/"><u>Unlocking Growth Potential Through Cookiebot Power Solutions</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/pdf-finereader-pdfiphoneandroid/"><u>スクリーンショットからPDFへ: FineReader PDFというアプリはiPhone・Androidデバイスでどのように文章をスキャンしますか?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ut-to-perfection-top-video-editors-for-youtubers-for-2024/"><u>[New] Cut to Perfection Top Video Editors for YouTubers for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-learn-how-to-change-number-on-tiktok-with-working-methods/"><u>[New] Learn How to Change Number on TikTok with Working Methods</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-secrets-to-exposing-videos-in-the-news-feed/"><u>[Updated] In 2024, Secrets to Exposing Videos in the News Feed</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/capturing-the-live-best-obs-screen-recorders-reviewed-for-2024/"><u>Capturing the Live Best OBS Screen Recorders Reviewed for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/decoding-cloud-service-price-structures/"><u>Decoding Cloud Service Price Structures</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/exclusive-gathering-of-top-tier-no-fee-vectr-and-illustration-sources/"><u>Exclusive Gathering of Top-Tier No-Fee Vectr and Illustration Sources</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/idpidp-revolutionary-victories-in-investment-decision-processes/"><u>IDP革命帷幄，IDP斐然！ - Revolutionary Victories in Investment Decision Processes!</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/innovative-synergy-strengthening-the-purposeful-ai-collaboration-between-abbyy-and-novelis/"><u>Innovative Synergy: Strengthening the Purposeful AI Collaboration Between ABBYY & Novelis</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/integrating-ai-into-your-business-top-7-strategies-from-the-abbyy-expertise/"><u>Integrating AI Into Your Business: Top 7 Strategies From the ABBYY Expertise</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/konstantin-anisimovich-visionary-leader-and-co-creator-of-innovative-enterprise/"><u>Konstantin Anisimovich: Visionary Leader & Co-Creator of Innovative Enterprise</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/latest-enhancements-in-ocr-technology-insights-from-the-abbyy-experts/"><u>Latest Enhancements in OCR Technology: Insights From the ABBYY Experts</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/latest-news-abvy-3m-360-encompass-teams-text-recognition-software-update/"><u>Latest News: ABVY 3M 360 Encompass Team's Text Recognition Software Update</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-2024-approved-the-ultimate-mac-video-editor-adobe-premiere-pro-for-pros/"><u>Updated 2024 Approved The Ultimate Mac Video Editor Adobe Premiere Pro for Pros</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/why-is-ipogo-not-working-on-honor-x50-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Honor X50? Fixed | Dr.fone</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115936/19272" target="_top" id="2115936">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115936" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115936/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

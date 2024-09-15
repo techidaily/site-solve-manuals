@@ -1,46 +1,22 @@
 ---
 title: "ABBYY Holt Zwei: Zwei Qualifizierte Experten Ersetzen Die Aktuellen Führungskräfte"
-date: 2024-09-08T23:34:44.470Z
-updated: 2024-09-09T23:34:44.470Z
+date: 2024-09-14T00:16:41.971Z
+updated: 2024-09-14T23:28:28.903Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/50acc7360c65e3c0e7572721fe570e1447b70b4904a2355f462da407f5c561fa.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY Holt Zwei: Zwei Qualifizierte Experten Ersetzen Die Aktuellen Führungskräfte
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<span id="701707">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY holt zwei neue IT-Koryphäen in den Vorstand
 
 21\. September 2020
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### _Aileen Allkins und Anubhav Saxena kommen zu ABBYY nach Erfolgskurs bei Microsoft und Automation Anywhere_ 
 
 ABBYY, globaler Anbieter von Technologien und Unternehmenslösungen für Digital Intelligence, hat Aileen Allkins in seinen Vorstand berufen und Anubhav Saxena als Beiratsmitglied aufgenommen. Bereits im April wurde der renommierte Tech-Veteran Robert Youngjohns zum Vorstandsvorsitzenden ernannt, der die Wachstumsstrategie von ABBYY vorantreiben soll. Allkins und Saxena werden nun maßgeblich dazu beitragen, die Kundenbindung zu transformieren, weitere strategische Partnerschaften aufzubauen und Produktinnovationen voranzutreiben, um die Position als Marktführer zu etablieren.
@@ -79,8 +55,6 @@ Vernetzen Sie sich mit uns
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -90,64 +64,27 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-the-perfect-loop-technique-for-all-your-youtube-favorites/"><u>[New] 2024 Approved  The Perfect Loop Technique for All Your YouTube Favorites</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-conquer-job-interviews-with-confidence-and-excellence/"><u>[New] Conquer Job Interviews with Confidence & Excellence</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-best-buy-top-10-gaming-gpus-for-high-quality-online-viewing/"><u>[New] In 2024, Best Buy  Top 10 Gaming GPUs for High-Quality Online Viewing</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-in-2024-soaring-strengths-top-10-industrial-drones/"><u>[New] In 2024, Soaring Strengths  Top 10 Industrial Drones</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-the-pathway-to-preserving-instagram-content-via-desktop-platforms/"><u>[New] In 2024, The Pathway to Preserving Instagram Content via Desktop Platforms</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-strategies-to-successfully-pin-on-snapchat/"><u>[New] Strategies to Successfully Pin on Snapchat</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-essential-guide-for-youtube-video-clips/"><u>[Updated] 2024 Approved  Essential Guide for YouTube Video Clips</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-conquer-ez-grabber-in-minutes-download-and-setup-made-simple-for-2024/"><u>[Updated] Conquer EZ Grabber in Minutes  Download & Setup Made Simple for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-dynamic-animated-and-personalized-filmora-subscribe-button-for-youtube-for-2024/"><u>[Updated] Dynamic, Animated, and Personalized  Filmora Subscribe Button for YouTube for 2024</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/1-automated-conversion-tracking-enhanced-with-cookiebot-technology/"><u>1. Automated Conversion Tracking: Enhanced with Cookiebot Technology</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-from-creation-to-consumption-igtv-vs-youtube-explained-for-you/"><u>2024 Approved  From Creation to Consumption  IGTV Vs. YouTube Explained for You</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-get-facebook-links-fetched-top-8-free-tools-for-23/"><u>2024 Approved  Get Facebook Links Fetched  Top 8 Free Tools for '23</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-harnessing-your-cameras-power-for-live-online-content-on-personal-computers/"><u>2024 Approved  Harnessing Your Camera's Power for Live Online Content on Personal Computers</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-instructions-on-integrating-audio-into-unboxings/"><u>2024 Approved  Instructions on Integrating Audio Into Unboxings</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/1724313623358-abbyy-flexicapture/"><u>高付加価値への転換:ABBYY FlexiCapture®による請求書プロセス改革とデジタル技術活用</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/abbyy-launches-cutting-edge-research-facility-in-india/"><u>ABBYY Launches Cutting-Edge Research Facility in India</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/ai-driven-triumph-abbyy-achieves-60-revenue-surge-accolades-from-idc-marketscape/"><u>AI-Driven Triumph: ABBYY Achieves 60%% Revenue Surge - Accolades From IDC MarketScape</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/automated-consent-management-how-cookiebot-streamlines-compliance/"><u>Automated Consent Management: How Cookiebot Streamlines Compliance</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/automation-projects-aiming-to-reduce-employee-burnout-study-insights/"><u>Automation Projects Aiming to Reduce Employee Burnout - Study Insights</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/award-winning-abbyy-dominates-2024-gartner-magic-quadrant-for-process-mining-software/"><u>Award-Winning ABBYY Dominates 2024 Gartner Magic Quadrant for Process Mining Software</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/boost-your-shipping-efficiency-access-our-essential-downloaded-checklist-now/"><u>Boost Your Shipping Efficiency: Access Our Essential Downloaded Checklist Now!</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/boost-your-traffic-with-cookiebots-advanced-tracking-solutions/"><u>Boost Your Traffic with Cookiebot's Advanced Tracking Solutions</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/convert-your-scanned-documents-and-books-into-editable-text-with-iphone-scanner-app/"><u>Convert Your Scanned Documents & Books Into Editable Text with iPhone Scanner App</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-fueled-solutions-enhancing-user-experience-with-smart-data-tracking/"><u>Cookiebot-Fueled Solutions: Enhancing User Experience with Smart Data Tracking</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-the-essential-ai-driven-tool-enhancing-your-websites-seo/"><u>Cookiebot: The Essential AI-Driven Tool Enhancing Your Website's SEO</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-your-key-to-effective-online-user-tracking-and-personalization/"><u>Cookiebot: Your Key to Effective Online User Tracking and Personalization</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/customized-tracking-and-analytics-with-cookiebot-technology/"><u>Customized Tracking & Analytics with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/drive-your-sites-traffic-with-effective-cookiebot-technology/"><u>Drive Your Site's Traffic with Effective Cookiebot Technology</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/effective-strategies-to-lower-dwms-heavy-gpu-load-in-windows-10-and-windows-11-environments/"><u>Effective Strategies to Lower DWM's Heavy GPU Load in Windows 10 and Windows 11 Environments</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/elevate-site-engagement-using-the-advanced-capabilities-of-cookiebot-technology/"><u>Elevate Site Engagement Using the Advanced Capabilities of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/elevate-site-functionality-using-cookiebot-technology-boosting-user-engagement-and-seo-success/"><u>Elevate Site Functionality Using Cookiebot Technology: Boosting User Engagement and SEO Success</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/elevate-your-marketing-roi-using-the-advanced-capabilities-of-cookiebot/"><u>Elevate Your Marketing ROI Using the Advanced Capabilities of Cookiebot</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/enhance-your-online-presence-with-cookiebot-solutions/"><u>Enhance Your Online Presence with Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/enhanced-user-experience-with-our-automated-marketing-solutions/"><u>Enhanced User Experience with Our Automated Marketing Solutions</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-facebooks-archive-of-memories/"><u>Exploring Facebook's Archive of Memories</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/exploring-growth-opportunities-for-roboyo-and-abbyy-in-the-evolving-field-of-digital-intelligence/"><u>Exploring Growth Opportunities for Roboyo & ABBYY in the Evolving Field of Digital Intelligence</u></a></li>
-<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-oppowithwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Oppowith/without a PC</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/hits-and-tags-mastering-the-language-of-virality-in-youtube-shorts/"><u>Hits & Tags  Mastering the Language of Virality in YouTube Shorts</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-deal-with-the-realme-c67-5g-screen-black-but-still-works-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Deal With the Realme C67 5G Screen Black But Still Works? | Dr.fone</u></a></li>
-<li><a href="https://program-issues.techidaily.com/how-to-stop-dreamlight-valley-from-crashing-on-your-computer-a-step-by-step-fix/"><u>How to Stop Dreamlight Valley From Crashing on Your Computer - A Step-by-Step Fix</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-do-i-stop-someone-from-tracking-my-xiaomi-redmi-note-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How Do I Stop Someone From Tracking My Xiaomi Redmi Note 12 Pro+ 5G? | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-vivo-y100t-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Vivo Y100t? | Dr.fone</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-from-honor-magic5-ultimate-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock from Honor Magic5 Ultimate Devices</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-how-to-transfer-playlists-between-music-services/"><u>In 2024, How to Transfer Playlists Between Music Services</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/leading-identity-provider-applications-in-the-usa-europe-and-asia-pacific-regions/"><u>Leading Identity Provider Applications in the USA, Europe, and Asia-Pacific Regions</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/leveraging-artificeinvoice-automation-the-ultimate-guide-to-using-ai-in-electronic-invoicing/"><u>Leveraging Artificeinvoice Automation: The Ultimate Guide to Using AI in Electronic Invoicing</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/mastering-supply-chain-durability-incorporating-process-insights-into-your-strategy-with-abbyy-industry-leaders/"><u>Mastering Supply Chain Durability: Incorporating Process Insights Into Your Strategy with ABBYY Industry Leaders</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/optimized-with-advanced-cookiebot-technology/"><u>Optimized with Advanced Cookiebot Technology</u></a></li>
-<li><a href="https://techidaily.com/repair-video-tool-repair-all-your-damaged-video-files-of-samsung-galaxy-a54-5g-on-mac-by-stellar-video-repair-mobile-video-repair/"><u>Repair Video Tool - Repair all your damaged video files of Samsung Galaxy A54 5G on Mac</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/slash-expenses-in-newspaper-digitization-dl-consultings-use-of-abbyy-software/"><u>Slash Expenses in Newspaper Digitization: DL Consulting's Use of ABBYY® Software</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/the-easiest-fix-on-how-to-livestream-a-podcast/"><u>The Easiest Fix on How to Livestream a Podcast</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/transform-mobile-scanning-with-abbyys-business-card-reader-for-android-fast-accurate-intuitive-technology/"><u>Transform Mobile Scanning with ABBYY's Business Card Reader for Android: Fast, Accurate, Intuitive Technology</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/transform-your-business-save-time-and-money-with-our-superior-paperless-solutions-and-world-class-ocr-tools-for-smb-success/"><u>Transform Your Business: Save Time & Money with Our Superior Paperless Solutions and World-Class OCR Tools for SMB Success</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/forming-slides-with-external-video-integration/"><u>Transforming Slides with External Video Integration</u></a></li>
-<li><a href="https://fox-that.techidaily.com/troubleshooting-tips-for-fixing-not-provisioned-mm-error-with-sim-card/"><u>Troubleshooting Tips for Fixing Not Provisioned MM Error with SIM Card</u></a></li>
-<li><a href="https://common-error.techidaily.com/ultimate-guide-fixing-your-laptop-screen-when-its-accidentally-rotated/"><u>Ultimate Guide: Fixing Your Laptop Screen When It's Accidentally Rotated</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unfolding-narratives-in-a-modern-photo-framed-display/"><u>Unfolding Narratives in a Modern Photo Framed Display</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/unleashing-potential-with-cookiebot-technology-for-websites/"><u>Unleashing Potential with Cookiebot Technology for Websites</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/updated-essential-techniques-for-striking-podcast-cover-designs-your-step-by-step-guide-for-2024/"><u>Updated Essential Techniques for Striking Podcast Cover Designs Your Step-by-Step Guide for 2024</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/webinar-recap-strategies-to-minimize-risks-in-libor-agreements/"><u>Webinar Recap: Strategies to Minimize Risks in LIBOR Agreements</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-swift-to-stillness-the-art-of-timelapse-with-a-galaxy/"><u>[New] 2024 Approved Swift to Stillness The Art of Timelapse with a Galaxy</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-circle-designers-toolkit/"><u>[New] Circle Designer's Toolkit</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-a-comparative-analysis-of-youtubes-ownership-vs-cc-licenses/"><u>[Updated] In 2024, A Comparative Analysis of Youtube's Ownership Vs. CC Licenses</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-premium-software-for-photo-to-video-projects/"><u>[Updated] Premium Software for Photo-to-Video Projects</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/clearview-recorder-xtreme-win10/"><u>ClearView Recorder Xtreme (Win10)</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/como-transformar-tu-dvd-en-un-archivo-divx-guia-paso-a-paso-de-2023/"><u>Como Transformar Tu DVD en Un Archivo DivX: Guía Paso a Paso De 2023</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/effective-methods-for-converting-hevc-files-into-high-quality-mp4-format/"><u>Effective Methods for Converting HEVC Files Into High-Quality MP4 Format</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/enhance-digital-engagement-with-our-expertise-in-cookiebot-technology-solutions/"><u>Enhance Digital Engagement with Our Expertise in Cookiebot Technology Solutions</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/enhanced-traffic-with-automated-tracking-the-benefits-of-using-cookiebot/"><u>Enhanced Traffic with Automated Tracking: The Benefits of Using Cookiebot</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-novice-to-expert-conquering-business-vernacular/"><u>From Novice to Expert: Conquering Business Vernacular</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/harness-the-power-of-cookiebot-for-superior-site-analytics-and-personalization/"><u>Harness the Power of Cookiebot for Superior Site Analytics and Personalization</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-tech-analysis-elite-parrot-ar-drone-20/"><u>In 2024, Tech Analysis Elite Parrot AR Drone 2.0</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/iphone-document-scanning-and-conversion-convert-pdf-jpg-files-into-editable-text-with-finereader-app/"><u>IPhone Document Scanning & Conversion: Convert PDF, JPG Files Into Editable Text with FineReader App</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/leverage-advanced-web-scraping-with-cookiebot-integration-solutions/"><u>Leverage Advanced Web Scraping with Cookiebot Integration Solutions</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/leveraging-abbyys-expertise-ashling-partners-accelerates-automation-with-elite-program-membership-and-smart-content-insights/"><u>Leveraging ABBYY's Expertise: Ashling Partners Accelerates Automation with Elite Program Membership and Smart Content Insights</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

@@ -1,42 +1,24 @@
 ---
 title: "Slash Expenses in Newspaper Digitization: DL Consulting's Use of ABBYY® Software"
-date: 2024-09-08T23:34:46.252Z
-updated: 2024-09-09T23:34:46.252Z
+date: 2024-09-12T18:30:48.422Z
+updated: 2024-09-14T17:02:59.268Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3269c858221e8ab75b91d65fc2cbdc3bf0d972fb510d01ae54b3ad8d22470d02.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Slash Expenses in Newspaper Digitization: DL Consulting's Use of ABBYY® Software
 
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
 
 Other | Digital Archiving
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## DL Consulting is cutting the cost on digitizing the news with ABBYY®
 
 ![pathner logo](https://content.abbyy.com/-/media/project/abbyy/abbyy/logos-white/abbyy.png?h=40&iar=0&w=120)
 
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## DL Consulting is cutting the cost on digitizing the news with ABBYY®
 
 Other | Digital Archiving 
@@ -112,34 +94,10 @@ The Veridian solution utilizing ABBYY Recognition Server has been built entirely
 
 [![ABBYY Recognition Server has rebranded as ABBYY FineReader Server](https://static4.abbyy.com/abbyycommedia/20638/11-frs-casepreview.jpg)](https://tools.techidaily.com/abbyy/products/) ") [ABBYY Recognition Server (now FineReader Server)](https://tools.techidaily.com/abbyy/products/) ") 
 
-<!-- affiliate ads begin -->
-<span id="2135472">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [read more](https://tools.techidaily.com/abbyy/products/) ") 
 
 [![5-Document-Archiving](https://static1.abbyy.com/abbyycommedia/14355/5-document-archiving.jpg)](https://tools.techidaily.com/abbyy/products/) [Document Archiving](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<span id="1983551">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![4208e_Images_CS_DL-Consulting362x162](https://static4.abbyy.com/abbyycommedia/15252/4208e_images_cs_dl-consulting362x162.png)](https://static2.abbyy.com/abbyycommedia/15188/case-studies-dl-consulting-education-digital-archiving-en.pdf "PDF version") [PDF version](https://static2.abbyy.com/abbyycommedia/15188/case-studies-dl-consulting-education-digital-archiving-en.pdf "PDF version") 
@@ -154,12 +112,6 @@ Share  True ?  : ""
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2128844/7443" target="_top" id="2128844">
-  <img src="//a.impactradius-go.com/display-ad/7443-2128844" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128844/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.
@@ -172,8 +124,6 @@ We'd love to help you along your automation journey.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -183,60 +133,26 @@ We'd love to help you along your automation journey.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-homemade-guide-to-google-vr-headset-construction-for-2024/"><u>[New] Homemade Guide to Google VR Headset Construction for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-unveiling-effective-sales-methods/"><u>[New] Unveiling Effective Sales Methods</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-unveiling-first-episode-footage-examination/"><u>[New] Unveiling First-Episode Footage Examination</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-exclusive-list-best-online-video-to-mp3-tools/"><u>[Updated] 2024 Approved  Exclusive List  Best Online Video to Mp3 Tools</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-frame-your-cinematic-tales-three-paths-for-instagram-borders/"><u>[Updated] 2024 Approved  Frame Your Cinematic Tales  Three Paths for Instagram Borders</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-from-concept-to-cinematic-the-art-of-creating-memorable-tiktoks-with-templates/"><u>[Updated] 2024 Approved  From Concept to Cinematic  The Art of Creating Memorable TikToks with Templates</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-locating-live-broadcasts-and-shared-films-on-fb/"><u>[Updated] 2024 Approved  Locating Live Broadcasts and Shared Films on FB</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-unlocking-social-connections-facetime-tutorials-for-android/"><u>[Updated] 2024 Approved  Unlocking Social Connections  Facetime Tutorials for Android</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-a-newcomers-primer-to-av1-codecs/"><u>[Updated] In 2024, A Newcomer’s Primer to AV1 Codecs</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-making-money-fast-the-pathway-to-success-in-youtube-shorts/"><u>[Updated] Making Money Fast  The Pathway to Success in YouTube Shorts</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-youtube-tunes-heres-how-to-download-safely-and-free/"><u>[Updated] Youtube Tunes? Here's How to Download Safely & Free</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-mastering-youtube-conversion-the-ultimate-4k-guide/"><u>2024 Approved  Mastering YouTube Conversion  The Ultimate 4K Guide</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/3-solutions-to-hard-reset-motorola-moto-g14-phone-using-pc-drfone-by-drfone-reset-android-reset-android/"><u>3 Solutions to Hard Reset Motorola Moto G14 Phone Using PC | Dr.fone</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/automated-with-cookiebot-enhancing-user-experience-through-smart-marketing-tools/"><u>Automated with Cookiebot: Enhancing User Experience Through Smart Marketing Tools</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/complete-transformation-manchester-uni-healthcares-revolutionary-shift-to-full-automation-of-invoicing-and-minimizing-payment-hazards/"><u>Complete Transformation: Manchester Uni Healthcare's Revolutionary Shift to Full-Automation of Invoicing & Minimizing Payment Hazards</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-technology-fuels-advanced-web-personalization/"><u>Cookiebot Technology Fuels Advanced Web Personalization</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-analytics-and-optimization-solutions/"><u>Cookiebot-Driven Analytics and Optimization Solutions</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-analytics-optimizing-your-websites-performance/"><u>Cookiebot-Driven Analytics: Optimizing Your Website's Performance</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-solutions-for-optimal-website-analytics-and-personalization/"><u>Cookiebot-Driven Solutions for Optimal Website Analytics and Personalization</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-personalization-enhancing-user-experience-and-engagement/"><u>Cookiebot-Enabled Personalization: Enhancing User Experience and Engagement</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-site-optimization-boosting-your-seo-success/"><u>Cookiebot-Enabled Site Optimization: Boosting Your SEO Success</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-user-tracking-and-conversion-optimization/"><u>Cookiebot-Enabled User Tracking and Conversion Optimization</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-enhancing-your-websites-data-collection/"><u>Cookiebot-Enabled: Enhancing Your Website's Data Collection</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-enhanced-enhance-your-websites-user-experience-with-personalized-content/"><u>Cookiebot-Enhanced: Enhance Your Website's User Experience with Personalized Content</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-enhanced-optimized-site-performance/"><u>Cookiebot-Enhanced: Optimized Site Performance</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-revolutionizing-personalization-and-analytics-in-digital-marketing/"><u>Cookiebot: Revolutionizing Personalization and Analytics in Digital Marketing</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-your-reliable-partner-for-personalized-marketing-automation/"><u>Cookiebot: Your Reliable Partner for Personalized Marketing Automation</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/customized-ad-targeting-with-cookiebot-the-powerhouse-of-personalization/"><u>Customized Ad Targeting with Cookiebot: The Powerhouse of Personalization</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/effiziente-prufung-und-analyse-von-fehlerarmen-einreichen-mit-abbyy-software-tools/"><u>Effiziente Prüfung Und Analyse Von Fehlerarmen Einreichen Mit ABBYY Software Tools</u></a></li>
-<li><a href="https://win-blog.techidaily.com/effortless-solution-for-preventing-assassins-creed-odyssey-from-crashing-on-your-pc/"><u>Effortless Solution for Preventing Assassin's Creed Odyssey From Crashing on Your PC</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/empowering-your-websites-performance-with-the-cookiebot-solution-for-search-engines/"><u>Empowering Your Website's Performance with the Cookiebot Solution for Search Engines</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/enhanced-conversion-tracking-with-our-advanced-cookiebot-technology/"><u>Enhanced Conversion Tracking with Our Advanced Cookiebot Technology</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/enhanced-personalization-with-our-cookiebot-enabled-solutions/"><u>Enhanced Personalization with Our Cookiebot-Enabled Solutions</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/enhanced-traffic-and-personalization-with-cookiebot-technology/"><u>Enhanced Traffic and Personalization with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/enhancing-user-engagement-with-cookiebot-technology/"><u>Enhancing User Engagement with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/expert-advice-on-ap-automation-in-depth-qanda-sessions-with-industry-leaders/"><u>Expert Advice on AP Automation: In-Depth Q&A Sessions with Industry Leaders</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/exploring-task-mining-enhancing-your-approach-to-workplace-efficiency-insights-from-the-abbyy-blog/"><u>Exploring Task Mining: Enhancing Your Approach to Workplace Efficiency - Insights From the ABBYY Blog</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/harnessing-the-power-of-cookiebot-for-optimized-user-engagement/"><u>Harnessing the Power of Cookiebot for Optimized User Engagement</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-lock-on-iphone-8-plus-by-drfone-ios/"><u>How to Bypass iCloud Lock on iPhone 8 Plus</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-samsung-galaxy-m54-5g-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>How to Unlock Samsung Galaxy M54 5G Phone Pattern Lock without Factory Reset</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-full-guide-to-fix-itoolab-anygo-not-working-on-honor-x8b-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Fix iToolab AnyGO Not Working On Honor X8b | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>In 2024, iPogo will be the new iSpoofer On Apple iPhone 15? | Dr.fone</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-the-blueprint-for-obtaining-free-visual-aids/"><u>In 2024, The Blueprint for Obtaining Free Visual Aids</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-top-10-lightroom-alternatives-free-and-paid-filmora/"><u>In 2024, Top 10 Lightroom Alternatives [Free & Paid] | Filmora</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/leverage-cookiebot-technology-for-advanced-site-insights-and-lead-generation/"><u>Leverage Cookiebot Technology for Advanced Site Insights & Lead Generation</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/leverage-cookiebot-technology-for-improved-analytics-and-personalized-engagement-on-your-website/"><u>Leverage Cookiebot Technology for Improved Analytics and Personalized Engagement on Your Website</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/maximizing-impact-with-instagrams-top-marketing-tactics/"><u>Maximizing Impact with Instagram's Top Marketing Tactics</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/melodic-content-and-legalities-on-insta-for-2024/"><u>Melodic Content and Legalities on Insta for 2024</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/neue-leitungswelle-bei-abbeyy-holt-zwei-berufung-von-it-fachleuten-ins-board-of-directors/"><u>Neue Leitungswelle Bei ABBEYY Holt Zwei: Berufung Von IT-Fachleuten Ins Board of Directors</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-top-online-video-editing-tools-for-vertical-content/"><u>New 2024 Approved Top Online Video Editing Tools for Vertical Content</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/new-avi-video-editing-on-a-budget-top-5-free-options-for-2024/"><u>New AVI Video Editing on a Budget Top 5 Free Options for 2024</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/smart-automation-losungen-fur-die-versicherungswirtschaft/"><u>Smart Automation Lösungen Für Die Versicherungswirtschaft</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/sonos-roam-review/"><u>Sonos Roam Review</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/step-by-step-guide-to-mastering-streamlabs-obs-usage/"><u>Step-by-Step Guide to Mastering Streamlabs OBS Usage</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719579736864-the-best-way-to-study-portuguese-6-tips-that-will-work-wonders/"><u>The Best Way to Study Portuguese – 6 Tips That Will Work Wonders</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-in-2024-best-10-free-video-translators-to-mitigate-translation-risks/"><u>Updated In 2024, Best 10 Free Video Translators to Mitigate Translation Risks</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-auto-captioned-mastery-enhancing-visual-narratives/"><u>[New] In 2024, Auto-Captioned Mastery Enhancing Visual Narratives</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-top-25-social-stars-essential-instagram-icons/"><u>[New] Top 25 Social Stars Essential Instagram Icons</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-dive-deep-accessing-facebooks-story-vault/"><u>[Updated] Dive Deep Accessing Facebook's Story Vault</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-securing-continuous-frame-playback-in-live-broadcasts/"><u>[Updated] Securing Continuous Frame Playback in Live Broadcasts</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-zoom-into-your-workspace-learn-screen-casting-via-ezvide/"><u>2024 Approved Zoom Into Your Workspace Learn Screen Casting via EZvide</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-the-advanced-tool-behind-exceptional-personalization-and-targeting/"><u>Cookiebot: The Advanced Tool Behind Exceptional Personalization and Targeting</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/customized-audience-tracking-with-cookiebot-enhance-your-websites-engagement/"><u>Customized Audience Tracking with Cookiebot: Enhance Your Website's Engagement</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/discover-the-ultimate-document-conversion-tool-with-abbyy-finereader-14-your-go-to-pdf-and-scan-handler/"><u>Discover the Ultimate Document Conversion Tool with ABBYY FineReader 14 – Your Go-To PDF & Scan Handler!</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/drive-more-visitors-with-cookiebot-technology-a-revolutionary-seo-solution/"><u>Drive More Visitors with Cookiebot Technology – A Revolutionary SEO Solution!</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/drive-your-sites-traffic-with-effective-cookiebot-technology/"><u>Drive Your Site's Traffic with Effective Cookiebot Technology</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/easy-guide-to-realme-v30t-frp-bypass-with-best-methods-by-drfone-android/"><u>Easy Guide to Realme V30T FRP Bypass With Best Methods</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/elite-selections-5-fast-screen-recorders/"><u>Elite Selections 5 Fast Screen Recorders</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-xiaomi-civi-3-drfone-by-drfone-virtual-android/"><u>In 2024, Planning to Use a Pokemon Go Joystick on Xiaomi Civi 3? | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/troubleshooting-the-notorious-xbox-one-no-signal-glitch-tips-and-tricks/"><u>Troubleshooting the Notorious Xbox One ‘No Signal’ Glitch – Tips & Tricks</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Continuous Learning
-date: 2024-09-08T23:34:43.351Z
-updated: 2024-09-09T23:34:43.351Z
+date: 2024-09-09T17:58:08.441Z
+updated: 2024-09-14T23:21:27.505Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/af9c45bcb0e197000016d357a0225b4459ab82775eecec8c840974260c0eb2b8.jpg
@@ -11,32 +11,14 @@ thumbnail: https://thmb.techidaily.com/af9c45bcb0e197000016d357a0225b4459ab82775
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY Appoints Gabrielle Lukianchuk as Chief Marketing Officer to Accelerate Growth
 
 August 23, 2022
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Gabriela Lukianchuck](https://static1.abbyy.com/abbyycommedia/35915/gabriela-lukianchuck.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Brand and market accelerator Gabrielle Lukianchuk joins [ABBYY](https://tools.techidaily.com/abbyy/products/) as its new Chief Marketing Officer. Throughout her 25-year career, Lukianchuk has been a pioneer in leading transformative approaches to marketing centered on the customer. Her intentional storytelling approach on a global scale has enabled GTM strategies with measured business impact at technology organizations such as ConvergeOne, Fiserv, ACI Worldwide and CA Technologies/Broadcom. As a member of ABBYY’s executive management team, Gabrielle will lead the global marketing function to accelerate the growth of the company’s market leadership in the [intelligent process automation](https://tools.techidaily.com/abbyy/products/) (IPA) market.
 
 Gabrielle and her team will be pivotal as we complete our transition to the IPA market. Our ambition to be a leader in this market requires effective market communication and a brand that reflects ABBYY’s innovation and top-quality products. Crucially, Gabrielle will focus on further tightening collaboration with our customers as we help them achieve their intelligent automation goals.  
@@ -51,18 +33,6 @@ _Gabrielle Lukianchuk, Chief Marketing Officer at ABBYY._
 
 Lukianchuk holds a Master of Business Administration, in Marketing, from California Lutheran University and a Bachelor of Arts in Music from California State University, Los Angeles. She is a passionate supporter of women's leadership in technology and diversity.
 
-<!-- affiliate ads begin -->
-<span id="1374819">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### About ABBYY
 
 ABBYY powers intelligent automation. We reimagine the way people work and how companies accelerate business by delivering the intelligence that fuels automation platforms. Our solutions transform enterprise data and empower you with the insights you need to work smarter and faster. 
@@ -73,22 +43,10 @@ ABBYY is a US-based global company with offices in 15 countries. For more inform
 
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies and may not be used without consent of its respective owners.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Editorial Contact
 
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### Gina Ray, APR
 
 _Director of Global Public Relations_
@@ -104,8 +62,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -115,44 +71,27 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-regain-access-to-confidential-snapshots/"><u>[New] 2024 Approved  Regain Access to Confidential Snapshots</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/15-best-photovideo-downloader-tools-for-instagram/"><u>15 Best Photo/Video Downloader Tools for Instagram</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-expert-advice-on-efficient-webp-images-transition-to-jpeg/"><u>2024 Approved  Expert Advice on Efficient WebP Images Transition to JPEG</u></a></li>
-<li><a href="https://howto.techidaily.com/4-solutions-to-fix-unfortunately-your-app-has-stopped-error-on-oppo-a58-4g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Solutions to Fix Unfortunately Your App Has Stopped Error on Oppo A58 4G | Dr.fone</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/maiaabbyy-flexicaptureai-ocr-abbyy/"><u>人工知能文字認識の新時代:株式会社MAIAがABBYY FlexiCapture用に最適化したAI-OCR学習キット - ABBYYニュース</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/abbyy-revamps-sales-department-by-promoting-joe-rayfield-to-vice-presidency/"><u>ABBYY Revamps Sales Department by Promoting Joe Rayfield to Vice Presidency</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/abbyy-unveils-trend-more-than-half-of-millennials-prefer-smartphones-for-administrative-tasks-business-adaptation-at-just-35-latest-news-analysis/"><u>ABBYY Unveils Trend: More Than Half of Millennials Prefer Smartphones for Administrative Tasks; Business Adaptation at Just 35%% - Latest News Analysis</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/abbyys-q3-2018-insights-reveal-surge-in-demand-for-advanced-document-analysis/"><u>ABBYY's Q3 2018 Insights Reveal Surge in Demand for Advanced Document Analysis</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/adaptability/"><u>Adaptability</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/advanced-personalization-through-cookiebot-integration-transform-your-site/"><u>Advanced Personalization Through Cookiebot Integration – Transform Your Site!</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/analyse-der-digitalen-transformation-von-unternehmensprozessen-durch-abbyy-und-fraunhofer/"><u>Analyse Der Digitalen Transformation Von Unternehmensprozessen Durch ABBYY Und Fraunhofer</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/automated-data-tracking-with-cutting-edge-cookiebot-technology/"><u>Automated Data Tracking with Cutting-Edge Cookiebot Technology</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/automatisierte-rechnungsbearbeitung-bei-pepsico-mit-hilfe-von-abbyy-software/"><u>Automatisierte Rechnungsbearbeitung Bei PepsiCo Mit Hilfe Von ABBYY Software</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/charting-the-path-of-auto-advancement-in-insurtech-an-idc-visual-guide/"><u>Charting the Path of Auto-Advancement in InsurTech: An IDC Visual Guide</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/convert-pdfs-and-jpgs-of-documentsbooks-into-editable-text-scan-ocr-and-read-effortlessly-on-iphone-with-finereader-app/"><u>Convert PDFs & JPGs of Documents/Books Into Editable Text: Scan, OCR, and Read Effortlessly on iPhone with FineReader App</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/exploring-abbyys-cutting-edge-solutions-for-enhanced-digital-intelligence-highlights-of-the-reimagine-conference-as-featured-on-our-official-blog/"><u>Exploring ABBYY's Cutting-Edge Solutions for Enhanced Digital Intelligence – Highlights of the Reimagine Conference as Featured on Our Official Blog</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/exploring-personal-hotspots-and-band-tours-unveiling-the-impact-with-abbyy/"><u>Exploring Personal Hotspots & Band Tours: Unveiling the Impact with ABBYY</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/exploring-the-efficiency-of-cookiebot-in-digital-marketing-strategies/"><u>Exploring the Efficiency of Cookiebot in Digital Marketing Strategies</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/future-proof-your-finance-institution-essential-digital-tactics-and-strategies-featuring-abbyy-industry-experts/"><u>Future-Proof Your Finance Institution: Essential Digital Tactics & Strategies, Featuring ABBYY Industry Experts</u></a></li>
-<li><a href="https://techtrends.techidaily.com/guide-linking-your-samsung-wireless-in-ear-buds-with-your-pc/"><u>Guide: Linking Your Samsung Wireless In-Ear Buds with Your PC</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/idpidp-revolutionary-victories-in-investment-decision-processes/"><u>IDP革命帷幄，IDP斐然！ - Revolutionary Victories in Investment Decision Processes!</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-jumpstart-your-social-media-success-instagrams-top-9-hacks/"><u>In 2024, Jumpstart Your Social Media Success  Instagram's Top 9 Hacks</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/innovative-synergy-strengthening-the-purposeful-ai-collaboration-between-abbyy-and-novelis/"><u>Innovative Synergy: Strengthening the Purposeful AI Collaboration Between ABBYY & Novelis</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/integrating-ai-into-your-business-top-7-strategies-from-the-abbyy-expertise/"><u>Integrating AI Into Your Business: Top 7 Strategies From the ABBYY Expertise</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/konstantin-anisimovich-visionary-leader-and-co-creator-of-innovative-enterprise/"><u>Konstantin Anisimovich: Visionary Leader & Co-Creator of Innovative Enterprise</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/latest-enhancements-in-ocr-technology-insights-from-the-abbyy-experts/"><u>Latest Enhancements in OCR Technology: Insights From the ABBYY Experts</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/latest-news-abvy-3m-360-encompass-teams-text-recognition-software-update/"><u>Latest News: ABVY 3M 360 Encompass Team's Text Recognition Software Update</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/marlin-equitys-investment-in-abbyy-official-announcement-and-press-statement/"><u>Marlin Equity's Investment in ABBYY: Official Announcement & Press Statement</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/optimizing-engagement-with-our-cookiebot-technology-solutions/"><u>Optimizing Engagement with Our Cookiebot Technology Solutions</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/optimizing-user-journeys-with-the-help-of-cookiebot-technology/"><u>Optimizing User Journeys with the Help of Cookiebot Technology</u></a></li>
-<li><a href="https://program-issues.techidaily.com/resolved-persistent-pc-shutdowns-when-playing-rogue-company-troubleshooting-steps/"><u>Resolved: Persistent PC Shutdowns When Playing Rogue Company – Troubleshooting Steps</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/revolutionize-your-website-with-advanced-automation-powered-by-the-cutting-edge-cookiebot-system/"><u>Revolutionize Your Website with Advanced Automation: Powered by the Cutting-Edge Cookiebot System</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/revolutionizing-large-scale-housing-operations-streamlined-invoice-handling-through-abbyys-advanced-technology/"><u>Revolutionizing Large-Scale Housing Operations: Streamlined Invoice Handling Through ABBYY's Advanced Technology</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/smooth-operations-boosting-memory-allocation-to-minecraft-for-2024/"><u>Smooth Operations  Boosting Memory Allocation to Minecraft for 2024</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/the-power-of-collaborative-innovation-discovering-the-benefits-of-embracing-hackathon-culture/"><u>The Power of Collaborative Innovation: Discovering the Benefits of Embracing Hackathon Culture</u></a></li>
-<li><a href="https://change-location.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-xiaomi-redmi-a2plus-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Xiaomi Redmi A2+ | Dr.fone</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/transforming-supply-chain-efficiency-through-ai-powered-digitally-integrated-transportation-solutions-perspectives-from-abbyy-experts/"><u>Transforming Supply Chain Efficiency Through AI-Powered, Digitally Integrated Transportation Solutions - Perspectives From ABBYY Experts</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/unable-to-locate-canon-pixma-mp620-drivers-on-win10/"><u>Unable to Locate Canon Pixma MP620 Drivers on WIN10</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/understanding-web-pages-key-elements-and-optimization-strategies/"><u>Understanding Web Pages: Key Elements and Optimization Strategies</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/webinar-invitation-strategies-for-safeguarding-finances-from-fraud-and-money-laundering/"><u>Webinar Invitation: Strategies for Safeguarding Finances From Fraud & Money Laundering</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-maximize-your-green-screen-potential-with-these-top-8-download-sites/"><u>[New] In 2024, Maximize Your Green Screen Potential with These Top 8 Download Sites</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-crafting-artful-iphone-snaps-master-these-top-10-design-tactics/"><u>[Updated] 2024 Approved Crafting Artful iPhone Snaps - Master These Top 10 Design Tactics</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-compact-video-summary-key-insights-unveiled/"><u>[Updated] In 2024, Compact Video Summary Key Insights Unveiled</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-a-comprehensive-guide-to-building-facebook-slideshow-mastery/"><u>2024 Approved A Comprehensive Guide to Building Facebook Slideshow Mastery</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/chatgpts-evolution-an-omen-for-search-engines/"><u>ChatGPT's Evolution: An Omen for Search Engines?</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/enhance-your-online-presence-with-cookiebot-solutions/"><u>Enhance Your Online Presence with Cookiebot Solutions</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/enhanced-user-experience-with-our-automated-marketing-solutions/"><u>Enhanced User Experience with Our Automated Marketing Solutions</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/exploring-growth-opportunities-for-roboyo-and-abbyy-in-the-evolving-field-of-digital-intelligence/"><u>Exploring Growth Opportunities for Roboyo & ABBYY in the Evolving Field of Digital Intelligence</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-it-honor-magic-vs-2-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix It Honor Magic Vs 2 Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-for-beginners-the-top-8-versatile-cameras-under-400/"><u>In 2024, For Beginners The Top 8 Versatile Cameras Under $400</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-professional-mix-techniques-for-crossfading-sounds-with-audacity/"><u>In 2024, Professional Mix Techniques for Crossfading Sounds with Audacity</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/leading-identity-provider-applications-in-the-usa-europe-and-asia-pacific-regions/"><u>Leading Identity Provider Applications in the USA, Europe, and Asia-Pacific Regions</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/leveraging-artificeinvoice-automation-the-ultimate-guide-to-using-ai-in-electronic-invoicing/"><u>Leveraging Artificeinvoice Automation: The Ultimate Guide to Using AI in Electronic Invoicing</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/mastering-supply-chain-durability-incorporating-process-insights-into-your-strategy-with-abbyy-industry-leaders/"><u>Mastering Supply Chain Durability: Incorporating Process Insights Into Your Strategy with ABBYY Industry Leaders</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/top-11-windows-11-secrets-unveiled-for-2024/"><u>Top 11 Windows 11 Secrets Unveiled for 2024</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115919/19272" target="_top" id="2115919">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115919" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115919/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

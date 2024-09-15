@@ -1,18 +1,12 @@
 ---
 title: Ninety Percent of Businesses Miss Out on Prospective Buyers Due to Inadequate Online Onboarding Experiences
-date: 2024-09-08T23:34:48.048Z
-updated: 2024-09-09T23:34:48.048Z
+date: 2024-09-07T18:13:41.199Z
+updated: 2024-09-14T18:27:38.726Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a929b0d993c705dcd1293af7219e5e597567df393d17dd26d0130a00b3701a6a.JPG
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Ninety Percent of Businesses Miss Out on Prospective Buyers Due to Inadequate Online Onboarding Experiences
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
@@ -23,20 +17,8 @@ November 15, 2022
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123474/16836" target="_top" id="2123474">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123474" border="0" alt="https://techidaily.com" width="300" height="50"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123474/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![News Colleagues3](https://static1.abbyy.com/abbyycommedia/33750/news-colleagues3.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115929/19272" target="_top" id="2115929">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115929" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115929/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 * Engagement and customer experience make up 52% of the reasons customers leave in the first 90 days
 * Respondents believe if the abandonment rate was reduced by 50%, it would increase customer acquisition by 29% and increase revenue by 26%
 * More than a third (34%) still plan to include human interaction during the digital onboarding process
@@ -71,12 +53,6 @@ All of these issues have a significant impact on revenue with:
   
 ![Infographic-onboarding-survey-global](https://static1.abbyy.com/abbyycommedia/36315/infographic-onboarding-survey-global.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Solving the issue: The fine balance between technology and human interaction
 
   
@@ -95,12 +71,6 @@ _Gabrielle Lukianchuk, Chief Marketing Officer at ABBYY_
 
 Get more insights into onboarding drivers and pain points and discover a better way to meet customer expectations in the new ABBYY State of Intelligent Automation Report by [downloading here](https://tools.techidaily.com/abbyy/products/).
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Methodology
 
 This research was conducted by Sapio Research in September 2022 on behalf of ABBYY. The survey was conducted among 1,623 decision makers across the UK, US, France, Germany, and Japan on why onboarding processes need to change and what businesses need to do to address customer pain points – by activating the right mix of the human factor alongside automation.
@@ -116,14 +86,22 @@ ABBYY is a US-based global company with offices in 15 countries. For more inform
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies and may not be used without consent of its respective owners.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115950/19272" target="_top" id="2115950">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115950" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115950/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Editorial Contact
 
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Gina Ray, APR
 
@@ -139,8 +117,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -150,42 +126,20 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-comprehensive-study-gecatas-game-record-functionality-for-2024/"><u>[New] Comprehensive Study  Gecata's Game Record Functionality for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-mastermind-knowledge-capture-via-mematics-app/"><u>[New] Mastermind Knowledge Capture via Mematic's App</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-vector-fundamentals-unpacked-for-novices-categories-and-software-for-2024/"><u>[New] Vector Fundamentals Unpacked for Novices, Categories & Software for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-windows-wonders-top-9-tools-to-capture-and-save-animated-gif-art/"><u>[Updated] 2024 Approved  Windows Wonders  Top 9 Tools to Capture and Save Animated GIF Art</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-explore-and-compare-apps-via-az-recorder/"><u>[Updated] Explore & Compare Apps via AZ Recorder</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-immersive-film-vr-in-modern-theaters/"><u>[Updated] Immersive Film  VR in Modern Theaters</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-smartest-3d-apps-available-on-android/"><u>2024 Approved  Smartest 3D Apps Available on Android</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/best-anti-tracker-software-for-itel-a60-drfone-by-drfone-virtual-android/"><u>Best Anti Tracker Software For Itel A60 | Dr.fone</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/boost-your-sites-traffic-with-cookiebot-the-smart-way/"><u>Boost Your Site's Traffic with Cookiebot - The Smart Way</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/boosting-efficiency-in-rhenus-logistics-through-abbyy-intelligent-document-processor/"><u>Boosting Efficiency in Rhenus Logistics Through ABBYY Intelligent Document Processor</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/brit-english-for-beginners-easier-ways-to-learn/"><u>Brit English for Beginners: Easier Ways to Learn</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/comprehensive-analysis-on-ai-driven-customer-onboarding-key-trends-challenges-and-strategies/"><u>Comprehensive Analysis on AI-Driven Customer Onboarding: Key Trends, Challenges & Strategies</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/conquer-audio-production-a-comprehensible-guide-to-podcast-editing-for-2024/"><u>Conquer Audio Production  A Comprehensible Guide to Podcast Editing for 2024</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/continuous-learning/"><u>Continuous Learning</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-enhance-your-sites-data-collection-with-our-advanced-tracking-solutions/"><u>Cookiebot-Enabled: Enhance Your Site's Data Collection with Our Advanced Tracking Solutions</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/enhance-user-experience-with-our-cookiebot-integration-services/"><u>Enhance User Experience with Our Cookiebot Integration Services</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/enhancing-business-efficiency-through-abbyy-signatures-strategic-collaborations-in-process-intelligence/"><u>Enhancing Business Efficiency Through ABBYY Signature's Strategic Collaborations in Process Intelligence</u></a></li>
-<li><a href="https://android-frp.techidaily.com/how-can-we-bypass-motorola-moto-g13-frp-by-drfone-android/"><u>How Can We Bypass Motorola Moto G13 FRP?</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/how-to-capture-and-save-your-beloved-hulu-seasons-quickly-and-conveniently-for-2024/"><u>How To Capture & Save Your Beloved Hulu Seasons Quickly & Conveniently for 2024</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-show-wi-fi-password-on-samsung-galaxy-a54-5g-by-drfone-android/"><u>How to Show Wi-Fi Password on Samsung Galaxy A54 5G</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/implementing-efficient-automated-doc-handling-with-abbyy-insights-from-the-official-blog/"><u>Implementing Efficient Automated Doc Handling with ABBYY: Insights From the Official Blog</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-a-deep-dive-into-youtube-content-ownership-laws/"><u>In 2024, A Deep Dive Into YouTube Content Ownership Laws</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-income-patterns-in-the-podcast-industry/"><u>In 2024, Income Patterns in the Podcast Industry</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-the-premier-manual-for-subtitle-precision-via-web-resources/"><u>In 2024, The Premier Manual for Subtitle Precision via Web Resources</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-geo-blocking-and-how-to-bypass-it-on-realme-gt-3-drfone-by-drfone-virtual-android/"><u>In 2024, What is Geo-Blocking and How to Bypass it On Realme GT 3? | Dr.fone</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/leverage-cookiebot-technology-for-improved-user-experience-and-seo-on-your-site/"><u>Leverage Cookiebot Technology for Improved User Experience & SEO on Your Site</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/mastering-the-digital-arena-winning-strategies-against-online-native-banking-services-an-abbyy-guide/"><u>Mastering the Digital Arena: Winning Strategies Against Online-Native Banking Services - An ABBYY Guide</u></a></li>
-<li><a href="https://video-capture.techidaily.com/maximize-communication-video-conferencing-tips-for-android/"><u>Maximize Communication  Video Conferencing Tips for Android</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/neue-ara-fur-abbyy-industrieveteran-robert-youngjohns-wird-als-geschaftsfuhrer-eingesetzt/"><u>Neue Ära Für ABBYY: Industrieveteran Robert Youngjohns Wird Als Geschäftsführer Eingesetzt</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/nouvelles-perspectives-sur-le-travail-automatise-en-france-selon-letude-abbyy-la-plupart-des-citoyens-sont-ouverts-a-la-delegation-de-roles-aux-machines/"><u>Nouvelles Perspectives Sur Le Travail Automatisé en France Selon L’Étude ABBYY : La Plupart Des Citoyens Sont Ouverts À La Délegation De Rôles Aux Machines</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/optimieren-sie-ihr-marktpraferenz-in-der-finanzbranche-mit-abbyy-checklist/"><u>Optimieren Sie Ihr Marktpräferenz in Der Finanzbranche Mit ABBYY Checklist</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/pioneering-digital-evolutions-mastering-accounts-receivable-with-abbyys-innovative-solutions/"><u>Pioneering Digital Evolutions: Mastering Accounts Receivable with ABBYY's Innovative Solutions</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/significant-milestones-reached-by-abbyy-in-the-2019-fiscal-years-third-phase/"><u>Significant Milestones Reached by ABBYY in the 2019 Fiscal Year's Third Phase</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/skyrocket-your-site-visits-using-innovative-cookiebot-solutions/"><u>Skyrocket Your Site Visits Using Innovative Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/streamlining-revenue-cycles-and-cutting-down-on-denials-insights-from-an-abbyy-specialist-on-remote-work-efficiency/"><u>Streamlining Revenue Cycles and Cutting Down on Denials: Insights From an ABBYY Specialist on Remote Work Efficiency</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/the-art-of-effortless-document-management-and-boosting-workouts-discover-universal-clipboard-techniques-and-in-depth-guide-to-indoor-cycling-tips-from-the-a10/"><u>The Art of Effortless Document Management and Boosting Workouts: Discover Universal Clipboard Techniques & In-Depth Guide to Indoor Cycling | Tips From the ABBYY Blog</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/unlocking-insta-authenticity-your-selfie-verification-journey/"><u>Unlocking Insta Authenticity  Your Selfie Verification Journey</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/pdf-finereader-pdfiphoneandroid/"><u>スクリーンショットからPDFへ: FineReader PDFというアプリはiPhone・Androidデバイスでどのように文章をスキャンしますか?</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-inside-acid-pro-benchmarking-alternatives/"><u>[New] Inside ACID Pro Benchmarking Alternatives</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-accelerate-your-video-content-creation/"><u>[Updated] Accelerate Your Video Content Creation</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-diversify-laptop-editing-with-alternatives-to-inshot/"><u>[Updated] Diversify Laptop Editing with Alternatives to Inshot</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-personalization-enhancing-user-experience-and-engagement/"><u>Cookiebot-Enabled Personalization: Enhancing User Experience and Engagement</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-site-optimization-boosting-your-seo-success/"><u>Cookiebot-Enabled Site Optimization: Boosting Your SEO Success</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-user-tracking-and-conversion-optimization/"><u>Cookiebot-Enabled User Tracking and Conversion Optimization</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-enhancing-your-websites-data-collection/"><u>Cookiebot-Enabled: Enhancing Your Website's Data Collection</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-enhanced-enhance-your-websites-user-experience-with-personalized-content/"><u>Cookiebot-Enhanced: Enhance Your Website's User Experience with Personalized Content</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-enhanced-optimized-site-performance/"><u>Cookiebot-Enhanced: Optimized Site Performance</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-revolutionizing-personalization-and-analytics-in-digital-marketing/"><u>Cookiebot: Revolutionizing Personalization and Analytics in Digital Marketing</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-correctly-resolve-csglobal-offensive-initialization-issues/"><u>How to Correctly Resolve CS:Global Offensive Initialization Issues</u></a></li>
+<li><a href="https://win-dash.techidaily.com/how-to-easily-get-and-improve-your-dell-monitor-driver-versions/"><u>How to Easily Get & Improve Your Dell Monitor Driver Versions</u></a></li>
+<li><a href="https://win-forum.techidaily.com/mastering-android-11-features-granting-and-revoking-app-permissions-seamlessly-with-revouninstaller/"><u>Mastering Android 11 Features: Granting and Revoking App Permissions Seamlessly with RevoUninstaller</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-powerful-path-to-stellar-videos-top-free-intro-makers/"><u>The Powerful Path to Stellar Videos Top Free Intro Makers</u></a></li>
+<li><a href="https://apple-account.techidaily.com/turning-off-two-factor-authentication-from-iphone-6-plus-5-tips-you-must-know-by-drfone-ios/"><u>Turning Off Two Factor Authentication From iPhone 6 Plus? 5 Tips You Must Know</u></a></li>
 </ul></div>
+

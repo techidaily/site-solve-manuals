@@ -1,40 +1,22 @@
 ---
 title: Exploring Growth Opportunities for Roboyo & ABBYY in the Evolving Field of Digital Intelligence
-date: 2024-09-08T23:34:46.156Z
-updated: 2024-09-09T23:34:46.156Z
+date: 2024-09-07T16:23:16.975Z
+updated: 2024-09-14T18:32:37.643Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/80de444cb408ef81f4728e2850b723591d8016d7f4cd61445fe263111407c51f.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Exploring Growth Opportunities for Roboyo & ABBYY in the Evolving Field of Digital Intelligence
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Roboyo und ABBYY erweitern ihre Zusammenarbeit im Bereich Prozessintelligenz
 
 11\. März 2020
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### _Partner Roboyo will gemeinsam mit ABBYY noch mehr Wachstumspotenziale rund um Digital Intelligence-Portfolio realisieren_
 
 ABBYY, globaler Anbieter von Technologien und Unternehmenslösungen für Digital Intelligence, und Roboyo, führender Spezialist für Beratung und Implementierung intelligenter Prozessautomatisierung, verstärken ihre Zusammenarbeit im Bereich Prozessintelligenz.
@@ -80,8 +62,6 @@ Vernetzen Sie sich mit uns
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -91,41 +71,33 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-feature-a-podcast-in-one-quick-snap/"><u>[New] 2024 Approved  Feature a Podcast in One Quick Snap</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-zoom-audio-excellence-balance-and-clarity-tactics/"><u>[New] 2024 Approved  Zoom Audio Excellence  Balance and Clarity Tactics</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-is-your-facebook-video-more-engaging-in-a-vertical-format-for-2024/"><u>[New] Is Your Facebook Video More Engaging in a Vertical Format for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-cutting-costs-with-smart-cloud-storage-choices-for-2024/"><u>[Updated] Cutting Costs with Smart Cloud Storage Choices for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-gifify-your-tweet-a-costless-how-to-guide/"><u>[Updated] Gifify Your Tweet  A Costless How-To Guide</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-how-to-download-youtube-thumbnail-in-3-waysonlinewinmac-for-2024/"><u>[Updated] How to Download Youtube Thumbnail in 3 Ways [Online/Win/Mac] for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/5-techniques-to-transfer-data-from-vivo-v27e-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Techniques to Transfer Data from Vivo V27e to iPhone 15/14/13/12 | Dr.fone</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/maiaabbyy-flexicaptureai-ocr-abbyy/"><u>人工知能文字認識の新時代:株式会社MAIAがABBYY FlexiCapture用に最適化したAI-OCR学習キット - ABBYYニュース</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/abbyy-revamps-sales-department-by-promoting-joe-rayfield-to-vice-presidency/"><u>ABBYY Revamps Sales Department by Promoting Joe Rayfield to Vice Presidency</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/abbyy-unveils-trend-more-than-half-of-millennials-prefer-smartphones-for-administrative-tasks-business-adaptation-at-just-35-latest-news-analysis/"><u>ABBYY Unveils Trend: More Than Half of Millennials Prefer Smartphones for Administrative Tasks; Business Adaptation at Just 35%% - Latest News Analysis</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/abbyys-q3-2018-insights-reveal-surge-in-demand-for-advanced-document-analysis/"><u>ABBYY's Q3 2018 Insights Reveal Surge in Demand for Advanced Document Analysis</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/adaptability/"><u>Adaptability</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/audio-mastery-on-a-budget-top-ten-cost-free-editors/"><u>Audio Mastery on a Budget Top Ten Cost-Free Editors</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/future-proof-your-finance-institution-essential-digital-tactics-and-strategies-featuring-abbyy-industry-experts/"><u>Future-Proof Your Finance Institution: Essential Digital Tactics & Strategies, Featuring ABBYY Industry Experts</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-delete-icloud-account-with-or-without-password-from-your-apple-iphone-se-2022windowsmac-by-drfone-ios/"><u>How to Delete iCloud Account with or without Password from your Apple iPhone SE (2022)/Windows/Mac</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-remove-activation-lock-on-the-apple-iphone-14-pro-max-without-previous-owner-by-drfone-ios/"><u>How to Remove Activation Lock On the Apple iPhone 14 Pro Max Without Previous Owner?</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/how-to-resolve-your-csgo-microphone-is-malfunctioning-problem/"><u>How To Resolve Your CS:GO Microphone Is Malfunctioning Problem</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/idpidp-revolutionary-victories-in-investment-decision-processes/"><u>IDP革命帷幄，IDP斐然！ - Revolutionary Victories in Investment Decision Processes!</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-spotify-location-after-moving-to-another-country-on-vivo-t2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Spotify Location After Moving to Another Country On Vivo T2 5G | Dr.fone</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-optimal-series-prime-webcam-support-accessories/"><u>In 2024, Optimal Series  Prime Webcam Support Accessories</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-the-modern-shoppers-guide-to-360-degree-imaging-tech/"><u>In 2024, The Modern Shopper's Guide to 360-Degree Imaging Tech</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/innovative-synergy-strengthening-the-purposeful-ai-collaboration-between-abbyy-and-novelis/"><u>Innovative Synergy: Strengthening the Purposeful AI Collaboration Between ABBYY & Novelis</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/integrating-ai-into-your-business-top-7-strategies-from-the-abbyy-expertise/"><u>Integrating AI Into Your Business: Top 7 Strategies From the ABBYY Expertise</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/konstantin-anisimovich-visionary-leader-and-co-creator-of-innovative-enterprise/"><u>Konstantin Anisimovich: Visionary Leader & Co-Creator of Innovative Enterprise</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/latest-enhancements-in-ocr-technology-insights-from-the-abbyy-experts/"><u>Latest Enhancements in OCR Technology: Insights From the ABBYY Experts</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/latest-news-abvy-3m-360-encompass-teams-text-recognition-software-update/"><u>Latest News: ABVY 3M 360 Encompass Team's Text Recognition Software Update</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/marlin-equitys-investment-in-abbyy-official-announcement-and-press-statement/"><u>Marlin Equity's Investment in ABBYY: Official Announcement & Press Statement</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/optimizing-engagement-with-our-cookiebot-technology-solutions/"><u>Optimizing Engagement with Our Cookiebot Technology Solutions</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/optimizing-user-journeys-with-the-help-of-cookiebot-technology/"><u>Optimizing User Journeys with the Help of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/revolutionize-your-website-with-advanced-automation-powered-by-the-cutting-edge-cookiebot-system/"><u>Revolutionize Your Website with Advanced Automation: Powered by the Cutting-Edge Cookiebot System</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/revolutionizing-large-scale-housing-operations-streamlined-invoice-handling-through-abbyys-advanced-technology/"><u>Revolutionizing Large-Scale Housing Operations: Streamlined Invoice Handling Through ABBYY's Advanced Technology</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/the-power-of-collaborative-innovation-discovering-the-benefits-of-embracing-hackathon-culture/"><u>The Power of Collaborative Innovation: Discovering the Benefits of Embracing Hackathon Culture</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/transforming-supply-chain-efficiency-through-ai-powered-digitally-integrated-transportation-solutions-perspectives-from-abbyy-experts/"><u>Transforming Supply Chain Efficiency Through AI-Powered, Digitally Integrated Transportation Solutions - Perspectives From ABBYY Experts</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/ultimate-livestream-setup-reviews-on-the-top-livestream-tools-and-devices/"><u>Ultimate Livestream Setup  Reviews on the Top Livestream Tools and Devices</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/understanding-web-pages-key-elements-and-optimization-strategies/"><u>Understanding Web Pages: Key Elements and Optimization Strategies</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/vector-fundamentals-unpacked-for-novices-categories-and-software/"><u>Vector Fundamentals Unpacked for Novices, Categories & Software</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/webinar-invitation-strategies-for-safeguarding-finances-from-fraud-and-money-laundering/"><u>Webinar Invitation: Strategies for Safeguarding Finances From Fraud & Money Laundering</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-zipping-to-captions-direct-method-for-srt-file-creation/"><u>[New] In 2024, Zipping to Captions Direct Method for .Srt File Creation</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-conquer-iphone-podcast-downloads-a-step-by-step-guidebook/"><u>[Updated] In 2024, Conquer iPhone Podcast Downloads – A Step-by-Step Guidebook</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/androids-new-frontier-the-impact-of-kinemaster-app/"><u>Android's New Frontier The Impact of KineMaster App</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/bypass-geographic-locks-on-dvds-a-guide-to-enable-global-playback/"><u>Bypass Geographic Locks on DVDs: A Guide to Enable Global Playback</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/exclusive-list-top-10-live-streaming-networks-ranked-for-2024/"><u>Exclusive List Top 10 Live Streaming Networks Ranked for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-google-frp-lock-from-samsung-galaxy-m14-5g-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock from Samsung Galaxy M14 5G Devices</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/leverage-cookiebot-technology-for-improved-analytics-and-personalized-engagement-on-your-website/"><u>Leverage Cookiebot Technology for Improved Analytics and Personalized Engagement on Your Website</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/neue-leitungswelle-bei-abbeyy-holt-zwei-berufung-von-it-fachleuten-ins-board-of-directors/"><u>Neue Leitungswelle Bei ABBEYY Holt Zwei: Berufung Von IT-Fachleuten Ins Board of Directors</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/pioneering-excellence-leading-vr-creators-for-2024/"><u>Pioneering Excellence Leading VR Creators for 2024</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/smart-automation-losungen-fur-die-versicherungswirtschaft/"><u>Smart Automation Lösungen Für Die Versicherungswirtschaft</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/smart-document-handling-examples-in-transit-operations-and-distribution-management/"><u>Smart Document Handling Examples in Transit Operations and Distribution Management</u></a></li>
+<li><a href="https://techidaily.com/things-you-dont-know-about-vivo-y27-5g-reset-code-drfone-by-drfone-reset-android-reset-android/"><u>Things You Dont Know About Vivo Y27 5G Reset Code | Dr.fone</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/unlocking-the-secrets-of-optimizing-your-websites-page-rank/"><u>Unlocking the Secrets of Optimizing Your Website's Page Rank</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/utilizing-the-power-of-cookiebot-for-effective-ad-campaigns/"><u>Utilizing the Power of Cookiebot for Effective Ad Campaigns</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/web-page-excellence-key-strategies-for-effective-search-engine-visibility/"><u>Web Page Excellence: Key Strategies for Effective Search Engine Visibility</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1160850">
+					<video width="576" height="324" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

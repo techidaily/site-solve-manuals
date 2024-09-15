@@ -1,28 +1,16 @@
 ---
 title: Elevating Enterprise Success Through Process Intelligence - Explore Innovations on the ABBYY Platform
-date: 2024-09-08T23:34:47.942Z
-updated: 2024-09-09T23:34:47.942Z
+date: 2024-09-12T22:48:34.116Z
+updated: 2024-09-14T18:00:07.154Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8408c21b7cbd2d9f3e166f2aa500c9f7130f2d3b305b1fab49ef5afa3945895c.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Elevating Enterprise Success Through Process Intelligence - Explore Innovations on the ABBYY Platform
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Process Intelligence: The Next Leap Forward in the Intelligent Business
 
 ###### Scott Opitz
@@ -31,12 +19,6 @@ November 14, 2019
 
 ![Process Intelligence: The Next Leap Forward in the Intelligent Business | ABBYY Blog Post](https://static4.abbyy.com/abbyycommedia/25390/11226_smm_blog_process-intelligence-the-next-leap-forward-in-business-intelligence-and-the-intelligent-business_blog_934x400.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Everything accomplished in an organization requires a series of business activities, which together comprise a process. Whether the organization is a hospital, bank, manufacturer, or any other type of business, its level of success is directly tied to how well it performs and manages its many business processes.
 
 However, today’s business intelligence (BI) and data discovery tools provide organizations with only the most basic insight into its processes – even critical business processes directly related to improving customer interactions and loyalty, building better quality products, mitigating risk, ensuring compliance and more. The key problem is BI tools generally do not provide analytics in the context of an overall business process. While BI and data discovery tools can provide point-in-time measures or key performance indicators for a given task, they cannot provide answers to such critical questions as:
@@ -72,12 +54,6 @@ By combining BI with process intelligence organizations can gain greater operati
 
 ![Scott Opitz ABBYY](https://static1.abbyy.com/abbyycommedia/25562/02a-scottopitz-99x99.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Scott Opitz
 
 Chief Technology Officer at ABBYY
@@ -88,12 +64,6 @@ A 30-year veteran of the computer industry, Scott has founded and built companie
 
 In previous positions, Scott served as Senior Vice President, Worldwide Marketing & Business Development for webMethods (now Software AG), where he was responsible for webMethods’ marketing, business development, and strategic product planning. He joined webMethods as a result of its acquisition of IntelliFrame Corporation, a provider of data integration products and the InVista integrated workflow and BPM platform that he co-founded. Scott has also held numerous executive-level positions in technology, marketing and business development roles for public and private companies.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 
@@ -148,8 +118,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -159,38 +127,33 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-instagram-story-hacks-your-path-to-prominence/"><u>[Updated] 2024 Approved  Instagram Story Hacks  Your Path to Prominence</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-broadcasting-videos-to-twitter-from-mobile-devices-only/"><u>2024 Approved  Broadcasting Videos to Twitter From Mobile Devices Only</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-sound-recording-with-studio-mac-guide/"><u>2024 Approved  Sound Recording with Studio Mac Guide</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/abbyy-augmenter-les-capacites-de-finereader-14-pour-une-compatibilite-amelioree-avec-les-fichiers-pdf/"><u>ABBYY Augmenter Les Capacités De FineReader 14 Pour Une Compatibilité Améliorée Avec Les Fichiers PDF</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/abbyy-finereader-powers-preservation-safeguarding-over-4-million-pages-from-latvias-national-library-across-20-languages/"><u>ABBYY FineReader Powers Preservation: Safeguarding Over 4 Million Pages From Latvia's National Library Across 20 Languages</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/abbyy-secures-soc-2-type-2-accreditation-for-enhanced-data-security/"><u>ABBYY Secures SOC 2 Type 2 Accreditation for Enhanced Data Security</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/abbyysaprpa-abbyy/"><u>ABBYYを活用したSAPによる知能的RPAドキュメント管理システムへの統合 - ABBYY公式記事</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/adaptive-strategies-in-action-exploring-successful-process-innovations-through-case-studies/"><u>Adaptive Strategies in Action: Exploring Successful Process Innovations Through Case Studies</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/automated-with-cookiebot-enhancing-user-experience-through-smart-marketing-tools/"><u>Automated with Cookiebot: Enhancing User Experience Through Smart Marketing Tools</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/complete-transformation-manchester-uni-healthcares-revolutionary-shift-to-full-automation-of-invoicing-and-minimizing-payment-hazards/"><u>Complete Transformation: Manchester Uni Healthcare's Revolutionary Shift to Full-Automation of Invoicing & Minimizing Payment Hazards</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-technology-fuels-advanced-web-personalization/"><u>Cookiebot Technology Fuels Advanced Web Personalization</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-analytics-and-optimization-solutions/"><u>Cookiebot-Driven Analytics and Optimization Solutions</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-analytics-optimizing-your-websites-performance/"><u>Cookiebot-Driven Analytics: Optimizing Your Website's Performance</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-solutions-for-optimal-website-analytics-and-personalization/"><u>Cookiebot-Driven Solutions for Optimal Website Analytics and Personalization</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-personalization-enhancing-user-experience-and-engagement/"><u>Cookiebot-Enabled Personalization: Enhancing User Experience and Engagement</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-site-optimization-boosting-your-seo-success/"><u>Cookiebot-Enabled Site Optimization: Boosting Your SEO Success</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-user-tracking-and-conversion-optimization/"><u>Cookiebot-Enabled User Tracking and Conversion Optimization</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-enhancing-your-websites-data-collection/"><u>Cookiebot-Enabled: Enhancing Your Website's Data Collection</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-enhanced-enhance-your-websites-user-experience-with-personalized-content/"><u>Cookiebot-Enhanced: Enhance Your Website's User Experience with Personalized Content</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-enhanced-optimized-site-performance/"><u>Cookiebot-Enhanced: Optimized Site Performance</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-revolutionizing-personalization-and-analytics-in-digital-marketing/"><u>Cookiebot: Revolutionizing Personalization and Analytics in Digital Marketing</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-your-reliable-partner-for-personalized-marketing-automation/"><u>Cookiebot: Your Reliable Partner for Personalized Marketing Automation</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/customized-ad-targeting-with-cookiebot-the-powerhouse-of-personalization/"><u>Customized Ad Targeting with Cookiebot: The Powerhouse of Personalization</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/effiziente-prufung-und-analyse-von-fehlerarmen-einreichen-mit-abbyy-software-tools/"><u>Effiziente Prüfung Und Analyse Von Fehlerarmen Einreichen Mit ABBYY Software Tools</u></a></li>
-<li><a href="https://fox-links.techidaily.com/how-to-add-crop-and-edit-music-to-canva-video-in-2024/"><u>How To Add, Crop And Edit Music To Canva Video, In 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-insiders-10-list-top-terraria-upgrades/"><u>In 2024, Insider's 10 List  Top Terraria Upgrades</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-why-virtual-reality-lack-of-content/"><u>In 2024, Why Virtual Reality Lack of Content?</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/mastering-sms-restoration-discover-our-picks-for-the-8-leading-iphone-apps/"><u>Mastering SMS Restoration: Discover Our Picks for the 8 Leading iPhone Apps</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-splice-video-editor-mac-version-free-download/"><u>New Splice Video Editor Mac Version Free Download</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/pattern-locks-are-unsafe-secure-your-realme-c67-5g-phone-now-with-these-tips-by-drfone-android/"><u>Pattern Locks Are Unsafe Secure Your Realme C67 5G Phone Now with These Tips</u></a></li>
-<li><a href="https://techtrends.techidaily.com/resolving-high-cpu-usage-by-dwmexe-in-the-desktop-window-manager-on-windows-10-a-comprehensive-guide/"><u>Resolving High CPU Usage by dwm.exe in the Desktop Window Manager on Windows 10: A Comprehensive Guide</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/upgrade-your-iphones-productivity-quickscanandocr-for-seamless-pdf-and-jpg-transformation-into-editable-text/"><u>Upgrade Your iPhone's Productivity: QuickScan&OCR for Seamless PDF and JPG Transformation Into Editable Text.</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/verbessern-sie-ihre-dokumentenmanagement-prozesse-mit-abbyy-und-eucon-unterstutzung/"><u>Verbessern Sie Ihre Dokumentenmanagement-Prozesse Mit ABBYY Und Eucon Unterstützung</u></a></li>
-<li><a href="https://fake-location.techidaily.com/what-is-fake-gps-location-pro-and-is-it-good-on-realme-v30-drfone-by-drfone-virtual-android/"><u>What is Fake GPS Location Pro and Is It Good On Realme V30? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-demystifying-facebooks-new-short-form-video-model/"><u>[Updated] Demystifying Facebook's New Short-Form Video Model</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-the-complete-guide-to-livestreaming-on-mobile-devices/"><u>[Updated] In 2024, The Complete Guide to Livestreaming on Mobile Devices</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-win-10-free-screencast-recorders-ranked-and-updated-list/"><u>2024 Approved Win 10 Free Screencast Recorders Ranked & Updated List</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/automated-traffic-management-with-the-advanced-capabilities-of-cookiebot/"><u>Automated Traffic Management with the Advanced Capabilities of Cookiebot</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/automation-insights-robotics-employment-and-advanced-text-analysis-on-the-abbeyb-log/"><u>Automation Insights - Robotics, Employment & Advanced Text Analysis on the ABBEYB Log</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/boosting-site-engagement-with-advanced-cookiebot-tracking-solutions/"><u>Boosting Site Engagement with Advanced Cookiebot Tracking Solutions</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/comparing-rpa-and-ipa-understanding-their-distinctive-features/"><u>Comparing RPA and IPA: Understanding Their Distinctive Features</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-solutions-enhancing-digital-experiences/"><u>Cookiebot-Driven Solutions: Enhancing Digital Experiences</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-marketing-tools-for-advanced-user-tracking-and-analysis/"><u>Cookiebot-Enabled Marketing Tools for Advanced User Tracking and Analysis</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-optimize-your-sites-performance-with-advanced-tracking-technology/"><u>Cookiebot-Enabled: Optimize Your Site's Performance with Advanced Tracking Technology</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/essential-tweets-de-following-aids-the-ultimate-list-for-2024/"><u>Essential Tweets De-Following Aids The Ultimate List for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-mastering-insta-daily-strategies-for-amassing-1000plus-likesmonth/"><u>In 2024, Mastering Insta Daily Strategies for Amassing 1,000+ Likes/Month</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-magnificent-art-of-pokemon-go-streaming-on-tecno-phantom-v-fold-drfone-by-drfone-virtual-android/"><u>In 2024, The Magnificent Art of Pokemon Go Streaming On Tecno Phantom V Fold? | Dr.fone</u></a></li>
+<li><a href="https://win-able.techidaily.com/pc-gamers-relief-destiny-2-beyond-light-now-running-smoothly/"><u>PC Gamers Relief: Destiny 2 Beyond Light Now Running Smoothly</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/the-writers-dilemma-balancing-human-skill-with-ai-assistance/"><u>The Writers' Dilemma: Balancing Human Skill with AI Assistance</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1983446">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

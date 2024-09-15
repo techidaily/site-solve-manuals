@@ -1,40 +1,22 @@
 ---
 title: ABBYY Announces Worldwide Effort to Advance Reliable and Ethical AI Technologies
-date: 2024-09-08T23:34:47.027Z
-updated: 2024-09-09T23:34:47.027Z
+date: 2024-09-07T22:05:38.575Z
+updated: 2024-09-14T23:06:43.613Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/23dc4857279699198e48a622a7713386fd30f7f47908caf6a0fe50229057f885.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY Announces Worldwide Effort to Advance Reliable and Ethical AI Technologies
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123475/16836" target="_top" id="2123475">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123475" border="0" alt="https://techidaily.com" width="300" height="75"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123475/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Blue Prism Automates SBA PPP Loan Processing at Banks Saving More Than 85,000 Jobs and Helping Small Businesses Stay Afloat
 
 June 10, 2020
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123469/16836" target="_top" id="2123469">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123469" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123469/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### _Proven Solution Supports Rounds of Federal Funding, Enabling Same-Day Processing of Thousands of Applications from Submissions, Bank Review, Underwriting, SBA Reporting, Approvals and Payment_
 
 [Blue Prism](http://www.blueprism.com/) has teamed-up with [Lateetud](https://www.lateetud.com/) and [ABBYY](https://tools.techidaily.com/abbyy/products/) to support the US government’s latest COVID-19 relief efforts for small businesses, by helping to automate loan applications during the two rounds of funding, $349 billion and $310 billion respectively, allocated by Congress as part of its [SBA Paycheck Protection Program (PPP)](https://www.sba.gov/). The solution, currently being used by several U.S. banks, uses Digital Workers to automate process loan applications in a matter of seconds, for same-day approvals.
@@ -91,8 +73,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -102,62 +82,26 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-master-the-art-of-visuals-on-tiktok-with-smart-background-choices/"><u>[New] 2024 Approved  Master the Art of Visuals on TikTok with Smart Background Choices</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/new-7-exceptional-drone-gimbals-unveiled/"><u>[New] 7 Exceptional Drone Gimbals Unveiled</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-comparative-study-of-premium-video-services-for-2024/"><u>[New] Comparative Study of Premium Video Services for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-find-the-perfect-phone-shot-blur/"><u>[New] Find the Perfect Phone Shot Blur</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-how-to-disable-live-recording-in-quicktime-player-for-2024/"><u>[New] How to Disable Live Recording in QuickTime Player for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/treamlining-long-videos-on-youtube-through-effective-chapter-management/"><u>[New] Streamlining Long Videos on YouTube Through Effective Chapter Management</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-the-rising-riches-of-a-kid-star-ryans-income-insights/"><u>[New] The Rising Riches of a Kid Star  Ryan's Income Insights</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-twitch-time-reversal-17-methods-to-master-your-live-stream/"><u>[New] Twitch Time Reversal  17 Methods to Master Your Live Stream</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-in-2024-modern-techniques-record-idevice-screen-effortlessly/"><u>[Updated] In 2024, Modern Techniques  Record iDevice Screen Effortlessly</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-perfecting-stability-a-no-tripod-guide/"><u>[Updated] In 2024, Perfecting Stability  A No-Tripod Guide</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-unlock-quality-video-recording-top-5-recorder-brands/"><u>[Updated] In 2024, Unlock Quality Video Recording - Top 5 Recorder Brands</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/1724313312556-abby/"><u>「ABBYフレックスキャプチャー®による生命保険事務手続きの効率的なオペレーション自動化方法」</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/ai-ocr-abbyy/"><u>「テガキを駆使したAI OCR: 手書き文字認識におけるコゲントラボ対フレックスキャプチャーの完璧な合体」 - ABBYYブログ</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/1-outsourcing-expertise-subcontracting-for-enhanced-abbyy-professionals/"><u>1. Outsourcing Expertise: Subcontracting for Enhanced ABBYY Professionals</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-unlock-the-potential-of-hd-videos-on-android-devices/"><u>2024 Approved  Unlock the Potential of HD Videos on Android Devices</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/abbyy-introduces-advanced-artificial-intelligence-powered-cloud-solution-for-enhanced-document-insight-and-rapid-data-analysis/"><u>ABBYY Introduces Advanced Artificial Intelligence-Powered Cloud Solution for Enhanced Document Insight and Rapid Data Analysis</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/abbyy-steigert-effizienz-von-munchens-bauakten-durch-digitalisierung/"><u>ABBYY Steigert Effizienz Von Münchens Bauakten Durch Digitalisierung</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/advanced-analytics-and-personalization-enabled-by-cookiebot-inspired-technology/"><u>Advanced Analytics and Personalization Enabled by Cookiebot-Inspired Technology</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/all-about-iphone-17-expected-arrival-estimated-pricing-strategy-and-teaser-gadget-specs/"><u>All About iPhone 17: Expected Arrival, Estimated Pricing Strategy and Teaser Gadget Specs</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/automated-traffic-management-with-the-advanced-capabilities-of-cookiebot/"><u>Automated Traffic Management with the Advanced Capabilities of Cookiebot</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/automation-insights-robotics-employment-and-advanced-text-analysis-on-the-abbeyb-log/"><u>Automation Insights - Robotics, Employment & Advanced Text Analysis on the ABBEYB Log</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/boosting-site-engagement-with-advanced-cookiebot-tracking-solutions/"><u>Boosting Site Engagement with Advanced Cookiebot Tracking Solutions</u></a></li>
-<li><a href="https://win11.techidaily.com/bridge-the-gap-find-missing-devices-in-dm/"><u>Bridge the Gap: Find Missing Devices In DM</u></a></li>
-<li><a href="https://facebook.techidaily.com/bringing-social-media-into-your-whatsapp-chatscape/"><u>Bringing Social Media Into Your WhatsApp Chatscape</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/comparing-rpa-and-ipa-understanding-their-distinctive-features/"><u>Comparing RPA and IPA: Understanding Their Distinctive Features</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-solutions-enhancing-digital-experiences/"><u>Cookiebot-Driven Solutions: Enhancing Digital Experiences</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-marketing-tools-for-advanced-user-tracking-and-analysis/"><u>Cookiebot-Enabled Marketing Tools for Advanced User Tracking and Analysis</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-optimize-your-sites-performance-with-advanced-tracking-technology/"><u>Cookiebot-Enabled: Optimize Your Site's Performance with Advanced Tracking Technology</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-enhanced-user-experience-smart-marketing-with-advanced-analytics/"><u>Cookiebot-Enhanced User Experience: Smart Marketing with Advanced Analytics</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-fueled-customized-experiences-enhancing-user-engagement/"><u>Cookiebot-Fueled Customized Experiences: Enhancing User Engagement</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/digitales-spiegelbild-fur-unternehmensablaufe-einfuhrungsbuch-abbey-linie/"><u>Digitales Spiegelbild Für Unternehmensabläufe: Einführungsbuch – ABBEY-Linie</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/driven-with-cookiebot-technology/"><u>Driven with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/elevate-employee-integration-and-profits-the-power-of-bai-for-superior-onboarding-results/"><u>Elevate Employee Integration & Profits: The Power of BAI for Superior Onboarding Results</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/enhanced-targeting-with-the-power-of-cookiebot-technology/"><u>Enhanced Targeting with the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/enhancing-voice-assistant-interactions-through-advanced-vocal-recognition-training-insights-by-abbyy-blog/"><u>Enhancing Voice Assistant Interactions Through Advanced Vocal Recognition Training | Insights by ABBYY Blog</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/enhancing-web-analytics-with-cookiebot-technology/"><u>Enhancing Web Analytics with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/harness-the-power-of-cookiebot-for-enhanced-search-engine-performance/"><u>Harness the Power of Cookiebot for Enhanced Search Engine Performance</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-gamers-guide-to-elite-streaming-platforms/"><u>In 2024, Gamers' Guide to Elite Streaming Platforms</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-a-network-locked-honor-magic-6-lite-phone-by-drfone-android/"><u>In 2024, How to Unlock a Network Locked Honor Magic 6 Lite Phone?</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-premium-innovation-best-desktop-computers/"><u>In 2024, Premium Innovation  Best Desktop Computers</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/innovating-finance-how-frances-premier-bank-transforms-with-digitalization-using-abbyy-flexicapture-technology/"><u>Innovating Finance: How France's Premier Bank Transforms with Digitalization Using ABBYY FlexiCapture Technology</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/insurtech-evolution-insights-expert-interview-with-forrester/"><u>InsurTech Evolution Insights: Expert Interview with Forrester</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/leverage-cookiebot-technology-for-enhanced-online-advertising-success/"><u>Leverage Cookiebot Technology for Enhanced Online Advertising Success</u></a></li>
-<li><a href="https://win-blog.techidaily.com/mastering-the-fixes-eliminate-your-finals-tfla0error-code-with-these-steps/"><u>Mastering the Fixes: Eliminate Your Finals TFLA0eRror Code with These Steps!</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/masterpieces-in-3d-graphics-and-golden-displaytexts-online/"><u>Masterpieces in 3D Graphics and Golden DisplayTexts Online</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/navigating-the-world-of-motherboards-at-toms-electronics/"><u>Navigating the World of Motherboards at Tom's Electronics</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/ninety-percent-of-businesses-miss-out-on-prospective-buyers-due-to-inadequate-online-onboarding-experiences/"><u>Ninety Percent of Businesses Miss Out on Prospective Buyers Due to Inadequate Online Onboarding Experiences</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/revolutionize-your-scanning-workflow-with-abbyys-ocr-software-development-kit-for-precise-text-extraction-and-analysis/"><u>Revolutionize Your Scanning Workflow with ABBYY's OCR Software Development Kit for Precise Text Extraction and Analysis</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/seamless-conversion-experience-via-ai-driven-analytics-the-power-of-cookiebot/"><u>Seamless Conversion Experience via AI-Driven Analytics - The Power of Cookiebot</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/sign-up-simplified-bypassing-mobile-numbers-on-apps/"><u>Sign-Up Simplified: Bypassing Mobile Numbers on Apps</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/solving-display-corruption-issues/"><u>Solving Display Corruption Issues</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/streamline-your-contract-management-discover-the-power-of-apttuss-intelligent-import-feature-enhanced-with-abbyy-and-machine-learning-innovation/"><u>Streamline Your Contract Management: Discover the Power of Apttus's Intelligent Import Feature Enhanced with ABBYY and Machine Learning Innovation</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/unlock-your-infinix-hot-40-pros-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>Unlock Your Infinix Hot 40 Pros Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/unveiling-design-issues-with-pioneers-bdr-xd05b-blu-ray-disc-recorder-a-user-review/"><u>Unveiling Design Issues with Pioneer's BDR-XD05B Blu-Ray Disc Recorder: A User Review</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/utilizing-cookiebot-technology-for-optimized-user-experience-and-analytics-tracking/"><u>Utilizing Cookiebot Technology for Optimized User Experience & Analytics Tracking</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/virtual-town-hall-webinar-on-enhancing-ap-support-services/"><u>Virtual Town Hall Webinar on Enhancing AP Support Services</u></a></li>
-<li><a href="https://howto.techidaily.com/what-to-do-when-vivo-x-flip-has-black-screen-of-death-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do When Vivo X Flip Has Black Screen of Death? | Dr.fone</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/abbyy-ai-ocr-4/"><u>パーソルグループの名刺管理システムにABBYY AI OCRを実装: モバイル且つ4枚まとめて高精度読み取り</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-embrace-serenity-the-10-best-online-yoga-masters-today/"><u>[Updated] In 2024, Embrace Serenity The 10 Best Online Yoga Masters Today</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-the-essential-manual-to-operating-streamlabs-obs/"><u>2024 Approved The Essential Manual to Operating Streamlabs OBS</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-error-code-963-on-google-play-of-oppo-k11-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Error Code 963 on Google Play Of Oppo K11 5G | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/from-kitchens-to-cameras-7-essentials-for-flavorful-filmmaking-for-2024/"><u>From Kitchens to Cameras 7 Essentials for Flavorful Filmmaking for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-intersection-of-business-and-immersive-vr-technology/"><u>In 2024, The Intersection of Business and Immersive VR Technology</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/unlock-greater-conversion-rates-using-state-of-the-art-analytics-and-retargeting-tools-by-cookiebot/"><u>Unlock Greater Conversion Rates Using State-of-the-Art Analytics and Retargeting Tools by Cookiebot</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/unlock-website-insights-and-improve-analytics-with-cookiebots-advanced-marketing-tools/"><u>Unlock Website Insights and Improve Analytics with Cookiebot's Advanced Marketing Tools</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/upgrade-your-iphones-productivity-quickscanandocr-for-seamless-pdf-and-jpg-transformation-into-editable-text/"><u>Upgrade Your iPhone's Productivity: QuickScan&OCR for Seamless PDF and JPG Transformation Into Editable Text.</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1834903">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

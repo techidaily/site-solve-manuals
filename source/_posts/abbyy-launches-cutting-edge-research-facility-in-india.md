@@ -1,40 +1,22 @@
 ---
 title: ABBYY Launches Cutting-Edge Research Facility in India
-date: 2024-09-08T23:34:45.107Z
-updated: 2024-09-09T23:34:45.107Z
+date: 2024-09-08T20:24:16.310Z
+updated: 2024-09-14T18:46:17.452Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/614e0e5c423fbfce776b4242bea85cadda084bd0ef851e6cf9024dcc8525ee26.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY Launches Cutting-Edge Research Facility in India
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY Expands Presence in India with New Research and Development and Center of Excellence
 
 July 30, 2024
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [ABBYY](https://tools.techidaily.com/abbyy/products/) is meeting growing global demand for its purpose-built AI solutions with the opening of new offices in India. A research and development (R&D) center located in Bengaluru and Center of Excellence in New Delhi are pivotal to enhancing ABBYY's capabilities to deliver localized solutions and drive success for partners and customers worldwide. 
 
 Leading the opening of the offices is Yathiraj Shetty Kasargod, the newly appointed director of Product Operations for ABBYY India.
@@ -57,12 +39,6 @@ ABBYY is a recognized leader by more than a dozen analysts for its [intelligent 
 
 _1_ _[Forrester: APAC Tech Spend to Grow 7% Annually, Reaching US $876 Billion In 2027](https://www.forrester.com/press-newsroom/forrester-apac-tech-spend-forecast-2024/#:~:text=SINGAPORE%2C%20June%2011%2C%202024%20%E2%80%94,US%20%24876%20billion%20in%202027.#:~:text=SINGAPORE%2C%20June%2011%2C%202024%20%E2%80%94,US%20%24876%20billion%20in%202027.), June 11, 2024._ 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### About ABBYY
 
 ABBYY puts your information to work with purpose-built AI. We combine innovation and experience to transform data from business-critical documents into intelligent actionable outcomes in over 200 languages in real time. We are trusted by more than 10,000 companies globally, including many of the Fortune 500, to drive significant impact where it matters most: accelerate the customer experience, operational excellence, and competitive advantage. ABBYY is a global company with headquarters in Milpitas, CA and offices in 13 countries, and is the [Official Intelligent Automation Partner of Arsenal Women Football Club](https://tools.techidaily.com/abbyy/products/). For more information, visit [www.abbyy.com/company](https://tools.techidaily.com/abbyy/products/) and follow us on [LinkedIn](https://www.linkedin.com/company/abbyy), [Twitter](https://twitter.com/ABBYY%5FSoftware), [Facebook](https://www.facebook.com/ABBYYsoft), and [Instagram](https://www.instagram.com/abbyyglobal/).
@@ -77,8 +53,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -88,52 +62,26 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-streamlining-video-conferences-background-shifts-in-google-meet-for-2024/"><u>[New] Streamlining Video Conferences  Background Shifts in Google Meet for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-unlocking-crossfade-magic-using-audacity-effectively-for-2024/"><u>[New] Unlocking Crossfade Magic  Using Audacity Effectively for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-essential-insights-best-instagram-editors-for-mobile-and-pc/"><u>[Updated] 2024 Approved  Essential Insights  Best Instagram Editors for Mobile and PC</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-accelerate-the-performance-of-your-instagram-videos/"><u>[Updated] Accelerate the Performance of Your Instagram Videos</u></a></li>
-<li><a href="https://article-helps.techidaily.com/2024-approved-how-to-use-luts-from-color-grading-central-to-color-grading-for-movies/"><u>2024 Approved  How to Use Luts From Color Grading Central to Color Grading for Movies</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/2024-approved-obs-enhancing-integrating-a-timed-countdown-mechanism/"><u>2024 Approved  Obs Enhancing  Integrating a Timed Countdown Mechanism</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-propel-your-workflow-final-cut-pros-must-have-tools/"><u>2024 Approved  Propel Your Workflow  Final Cut Pro’s Must-Have Tools</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-the-visual-archive-top-hd-video-recorders-unveiled/"><u>2024 Approved  The Visual Archive  Top HD Video Recorders Unveiled</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/abbey/"><u>損害賠償申請プロセスの流れを適切にコントロールしている方法 | ABBEYブック</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/a-retrospective-journey-through-2018-what-has-changed-thought-leadership-at-abbyy-blog/"><u>A Retrospective Journey Through 2018: What Has Changed? | Thought Leadership at ABBYY Blog</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/abbyy-study-shows-finance-professionals-uphold-regulations-more-than-public-servants-exclusive-insights/"><u>ABBYY Study Shows Finance Professionals Uphold Regulations More Than Public Servants - Exclusive Insights</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/abbyy-welcomes-torsten-malchow-as-new-vp-and-head-of-worldwide-enterprise-solutions/"><u>ABBYY Welcomes Torsten Malchow as New VP and Head of Worldwide Enterprise Solutions</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/abbyys-growth-trajectory-accelerates-in-asia-pacific-with-key-acquisition-of-pericom-singapore/"><u>ABBYY's Growth Trajectory Accelerates in Asia Pacific with Key Acquisition of Pericom Singapore</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/boost-conversion-rates-discover-the-advanced-capabilities-of-cookiebot-analytics/"><u>Boost Conversion Rates: Discover the Advanced Capabilities of Cookiebot Analytics</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/boost-your-sites-analytics-using-our-advanced-cookiebot-technology/"><u>Boost Your Site's Analytics Using Our Advanced Cookiebot Technology</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/boosting-metro-ags-wholesale-transactions-abbyy-speeds-up-customer-payments-by-90/"><u>Boosting Metro AG's Wholesale Transactions: ABBYY Speeds Up Customer Payments by 90%%</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/breaking-language-barriers-with-chatgpt-insights/"><u>Breaking Language Barriers with ChatGPT Insights</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/brian-unruh-takes-on-role-of-cfo-at-abbyy-steering-financial-strategy-forward/"><u>Brian Unruh Takes on Role of CFO at ABBYY, Steering Financial Strategy Forward</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-automation-enhancing-user-experience-and-data-collection/"><u>Cookiebot-Driven Automation: Enhancing User Experience & Data Collection</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-automation-optimizing-your-online-experience/"><u>Cookiebot-Driven Automation: Optimizing Your Online Experience</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-customized-user-experience/"><u>Cookiebot-Driven Customized User Experience</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-growth-unleashing-potential-in-website-optimization-and-conversions/"><u>Cookiebot-Driven Growth: Unleashing Potential in Website Optimization and Conversions</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-optimization-skyrocketing-your-seo-success-overnight/"><u>Cookiebot-Driven Optimization: Skyrocketing Your SEO Success Overnight!</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-success-optimizing-your-website-with-smart-analytics-tools/"><u>Cookiebot-Driven Success: Optimizing Your Website with Smart Analytics Tools</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-optimized-website-performance-and-personalization/"><u>Cookiebot-Enabled: Optimized Website Performance and Personalization</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-enhanced-boost-your-sites-performance-and-personalization/"><u>Cookiebot-Enhanced: Boost Your Site's Performance and Personalization</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-the-advanced-tool-behind-exceptional-personalization-and-targeting/"><u>Cookiebot: The Advanced Tool Behind Exceptional Personalization and Targeting</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/customized-audience-tracking-with-cookiebot-enhance-your-websites-engagement/"><u>Customized Audience Tracking with Cookiebot: Enhance Your Website's Engagement</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/discover-the-12-premier-spots-for-gratis-film-streams-on-the-web/"><u>Discover the 12 Premier Spots for Gratis Film Streams on the Web</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/discover-the-ultimate-document-conversion-tool-with-abbyy-finereader-14-your-go-to-pdf-and-scan-handler/"><u>Discover the Ultimate Document Conversion Tool with ABBYY FineReader 14 – Your Go-To PDF & Scan Handler!</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/erfolgreiches-papierlose-verwaltung-von-finanzdokumenten-praxiserfahrungen-und-zukunftspotenziale/"><u>Erfolgreiches Papierlose Verwaltung Von Finanzdokumenten: Praxiserfahrungen Und Zukunftspotenziale</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-apple-iphone-xr-drfone-by-drfone-virtual-ios/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Apple iPhone XR | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-samsung-galaxy-a05-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Samsung Galaxy A05? | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-screenshots-on-iphone-14-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Recover Deleted Screenshots on iPhone 14? | Stellar</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-peculiar-picasso-creating-quirky-quick-memes/"><u>In 2024, Peculiar Picasso  Creating Quirky, Quick Memes</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-pulse-of-the-party-free-impeccable-dj-template-videos/"><u>In 2024, Pulse of the Party  Free, Impeccable DJ Template Videos</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/leverage-cookiebot-technology-for-improved-analytics-and-personalized-engagement-on-your-website/"><u>Leverage Cookiebot Technology for Improved Analytics and Personalized Engagement on Your Website</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/neue-leitungswelle-bei-abbeyy-holt-zwei-berufung-von-it-fachleuten-ins-board-of-directors/"><u>Neue Leitungswelle Bei ABBEYY Holt Zwei: Berufung Von IT-Fachleuten Ins Board of Directors</u></a></li>
-<li><a href="https://network-issues.techidaily.com/nvidias-installer-error-resolved-successfully/"><u>Nvidia's Installer Error Resolved Successfully</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/silence-the-snoops-opt-out-of-gpts-data-harvesting/"><u>Silence the Snoops: Opt-Out of GPT's Data Harvesting</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/smart-automation-losungen-fur-die-versicherungswirtschaft/"><u>Smart Automation Lösungen Für Die Versicherungswirtschaft</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/smart-document-handling-examples-in-transit-operations-and-distribution-management/"><u>Smart Document Handling Examples in Transit Operations and Distribution Management</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/the-ultimate-fix-for-msvcr100dll-not-found-tips-and-tricks-inside/"><u>The Ultimate Fix for 'MSVCR100.DLL' Not Found – Tips and Tricks Inside</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/tips-and-tricks-to-tell-if-your-iphone-8-is-unlocked-by-drfone-ios/"><u>Tips And Tricks To Tell if Your iPhone 8 Is Unlocked</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/tutorial-to-change-oppo-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>Tutorial to Change Oppo IMEI without Root A Comprehensive Guide</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/unlocking-the-secrets-of-optimizing-your-websites-page-rank/"><u>Unlocking the Secrets of Optimizing Your Website's Page Rank</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/utilizing-the-power-of-cookiebot-for-effective-ad-campaigns/"><u>Utilizing the Power of Cookiebot for Effective Ad Campaigns</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/web-page-excellence-key-strategies-for-effective-search-engine-visibility/"><u>Web Page Excellence: Key Strategies for Effective Search Engine Visibility</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-taking-flight-iphone-hdr-techniques-for-professional-results/"><u>[New] Taking Flight IPhone HDR Techniques for Professional Results</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-customizing-characters-the-ae-font-guide-for-2024/"><u>[Updated] Customizing Characters The AE Font Guide for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-embrace-the-season-ideal-winter-backgrounds-for-yt-for-2024/"><u>[Updated] Embrace the Season Ideal Winter Backgrounds for YT for 2024</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/abbyy-finereader-powers-preservation-safeguarding-over-4-million-pages-from-latvias-national-library-across-20-languages/"><u>ABBYY FineReader Powers Preservation: Safeguarding Over 4 Million Pages From Latvia's National Library Across 20 Languages</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/abbyy-secures-soc-2-type-2-accreditation-for-enhanced-data-security/"><u>ABBYY Secures SOC 2 Type 2 Accreditation for Enhanced Data Security</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/abbyysaprpa-abbyy/"><u>ABBYYを活用したSAPによる知能的RPAドキュメント管理システムへの統合 - ABBYY公式記事</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/adaptive-strategies-in-action-exploring-successful-process-innovations-through-case-studies/"><u>Adaptive Strategies in Action: Exploring Successful Process Innovations Through Case Studies</u></a></li>
+<li><a href="https://apple-account.techidaily.com/apple-id-is-greyed-out-on-apple-iphone-6s-how-to-bypass-by-drfone-ios/"><u>Apple ID is Greyed Out On Apple iPhone 6s How to Bypass?</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/automated-with-cookiebot-enhancing-user-experience-through-smart-marketing-tools/"><u>Automated with Cookiebot: Enhancing User Experience Through Smart Marketing Tools</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/complete-transformation-manchester-uni-healthcares-revolutionary-shift-to-full-automation-of-invoicing-and-minimizing-payment-hazards/"><u>Complete Transformation: Manchester Uni Healthcare's Revolutionary Shift to Full-Automation of Invoicing & Minimizing Payment Hazards</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-enabling-dynamic-hdr-in-windows-11-os/"><u>In 2024, Enabling Dynamic HDR in Windows 11 OS</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/master-your-gadgets-with-innovative-solutions-from-toms-hardware-experts/"><u>Master Your Gadgets with Innovative Solutions From Tom's Hardware Experts</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/tips-and-tricks-for-setting-up-your-vivo-v27-phone-pattern-lock-by-drfone-android/"><u>Tips and Tricks for Setting Up your Vivo V27 Phone Pattern Lock</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/what-is-chatgpt/"><u>What Is ChatGPT?</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

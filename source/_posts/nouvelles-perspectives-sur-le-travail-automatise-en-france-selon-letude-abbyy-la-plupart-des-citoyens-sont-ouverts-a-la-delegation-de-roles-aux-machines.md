@@ -1,40 +1,22 @@
 ---
 title: "Nouvelles Perspectives Sur Le Travail Automatisé en France Selon L’Étude ABBYY : La Plupart Des Citoyens Sont Ouverts À La Délegation De Rôles Aux Machines"
-date: 2024-09-08T23:34:43.498Z
-updated: 2024-09-09T23:34:43.498Z
+date: 2024-09-11T00:39:11.182Z
+updated: 2024-09-14T22:17:51.907Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4a46c3579169964c63d7bb3ef156723da1c897ffca7f03ef7871aadd312df806.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Nouvelles Perspectives Sur Le Travail Automatisé en France Selon L’Étude ABBYY : La Plupart Des Citoyens Sont Ouverts À La Délegation De Rôles Aux Machines
 
 [Actualités](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123480/16836" target="_top" id="2123480">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123480" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123480/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Étude ABBYY : plus de la moitié des Français souhaite déléguer du travail à des robots
 
 27 mars 2019
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135475/26400" target="_top" id="2135475">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135475" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135475/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 * _58 % des Français souhaitent déléguer une partie de leurs tâches quotidiennes en entreprise aux robots_
 * _La participation à des réunions spécifiques, la relecture de longs documents et l’enregistrement manuel du temps de travail sont les trois tâches les moins appréciées par les Français_
 * _29 % des Français choisissent de reporter la réalisation des missions qu’ils apprécient le moins_
@@ -101,8 +83,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -112,12 +92,10 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-step-by-step-guide-to-pc-based-live-broadcasts-on-tiktok/"><u>[New] 2024 Approved  Step-by-Step Guide to PC-Based Live Broadcasts on TikTok</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-the-ultimate-guide-to-choosing-between-m1-macbooks-for-2024/"><u>[New] The Ultimate Guide to Choosing Between M1 MacBooks for 2024</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/1-david-yang-visionary-behind-abbyy-leading-with-strategic-insight-as-board-chairman/"><u>1. David Yang: Visionary Behind ABBYY, Leading with Strategic Insight as Board Chairman</u></a></li>
-<li><a href="https://video-capture.techidaily.com/2024-approved-pro-video-capture-solutions-on-mac-beyond-the-bandicamp-era/"><u>2024 Approved  Pro Video Capture Solutions on Mac  Beyond the Bandicamp Era</u></a></li>
-<li><a href="https://some-tips.techidaily.com/2024-approved-the-professionals-guide-to-innovative-360-cams-2023/"><u>2024 Approved  The Professionals’ Guide to Innovative 360° Cams, 2023</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-unlock-creativity-essential-green-screen-techniques/"><u>2024 Approved  Unlock Creativity  Essential Green Screen Techniques</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-amplify-viewership-with-these-top-10-youtube-reaction-strategies/"><u>[New] 2024 Approved Amplify Viewership with These Top 10 YouTube Reaction Strategies</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-streamline-your-youtube-videos-in-windows-movie-maker/"><u>[New] In 2024, Streamline Your YouTube Videos in Windows Movie Maker</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-top-techniques-for-outstanding-gopro-vlogs/"><u>[New] In 2024, Top Techniques for Outstanding GoPro Vlogs</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-boosting-user-interaction-mastering-hashtag-use-on-instagram/"><u>[Updated] In 2024, Boosting User Interaction Mastering Hashtag Use on Instagram</u></a></li>
 <li><a href="https://solve-manuals.techidaily.com/abbyy-crowned-fourth-consecutive-leader-of-the-peak-matrix-for-everest-groups-2022-idp-assessment/"><u>ABBYY Crowned Fourth Consecutive Leader of the Peak Matrix® for Everest Group's 2022 IDP Assessment</u></a></li>
 <li><a href="https://solve-manuals.techidaily.com/abbyy-digital-identity-verification-enters-the-french-market/"><u>ABBYY Digital Identity Verification Enters the French Market</u></a></li>
 <li><a href="https://solve-manuals.techidaily.com/abbyy-holt-zwei-zwei-qualifizierte-experten-ersetzen-die-aktuellen-fuhrungskrafte/"><u>ABBYY Holt Zwei: Zwei Qualifizierte Experten Ersetzen Die Aktuellen Führungskräfte</u></a></li>
@@ -125,29 +103,23 @@ Connect with us
 <li><a href="https://solve-manuals.techidaily.com/abbyy-tools-optimieren-den-historiadruckzugang-fordern-das-verstandnis-der-vergangenheit/"><u>ABBYY-Tools Optimieren Den Historiadruckzugang, Fördern Das Verständnis Der Vergangenheit</u></a></li>
 <li><a href="https://solve-manuals.techidaily.com/automated-with-cookiebot-enhancing-your-websites-engagement/"><u>Automated with Cookiebot: Enhancing Your Website's Engagement</u></a></li>
 <li><a href="https://solve-manuals.techidaily.com/boosting-web-traffic-with-cookiebot-technology-a-game-changer-for-seo-success/"><u>Boosting Web Traffic with Cookiebot Technology: A Game Changer for SEO Success</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/cutting-edge-video-editing-strategies-for-impactful-obs-content/"><u>Cutting-Edge Video Editing Strategies for Impactful OBS Content</u></a></li>
-<li><a href="https://fox-that.techidaily.com/dealing-with-phones-that-show-numbers-instead-of-contact-names-a-guide/"><u>Dealing with Phones that Show Numbers Instead of Contact Names - A Guide</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-poco-m6-pro-5g-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Poco M6 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/elevate-every-story-prime-video-editor-apps-for-android-for-2024/"><u>Elevate Every Story  Prime Video Editor Apps for Android for 2024</u></a></li>
-<li><a href="https://techidaily.com/how-to-soft-reset-samsung-galaxy-a25-5g-phone-drfone-by-drfone-reset-android-reset-android/"><u>How to Soft Reset Samsung Galaxy A25 5G phone? | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-upgrade-or-downgrade-iphone-14-pro-without-losing-data-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Upgrade or Downgrade iPhone 14 Pro Without Losing Data? | Dr.fone</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-free-professional-slideshow-resources-for-entrepreneurs/"><u>In 2024, Free Professional Slideshow Resources for Entrepreneurs</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-the-meme-gurus-list-of-the-best-designs-10/"><u>In 2024, The Meme Guru's List of the Best Designs #10</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/k2pdfopt-tutorial-mastering-windows-gui-optimization-for-beginners/"><u>K2pdfopt Tutorial: Mastering Windows GUI Optimization for Beginners</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/leveraging-abbyys-expertise-ashling-partners-accelerates-automation-with-elite-program-membership-and-smart-content-insights/"><u>Leveraging ABBYY's Expertise: Ashling Partners Accelerates Automation with Elite Program Membership and Smart Content Insights</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/majority-of-british-workforce-eager-to-outsource-tasks-to-automation-insights-from-abbyy/"><u>Majority of British Workforce Eager to Outsource Tasks to Automation: Insights From ABBYY</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/mitigating-workplace-stress-through-automated-solutions-research-overview/"><u>Mitigating Workplace Stress Through Automated Solutions - Research Overview</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/onboarding-ist-entscheidend-erkennen-sie-die-risiken-bei-denen-fast-jeder-unternehmen-mit-dem-verlust-von-interessenten-rechnen-sollte/"><u>Onboarding Ist Entscheidend: Erkennen Sie Die Risiken, Bei Denen Fast Jeder Unternehmen Mit Dem Verlust Von Interessenten Rechnen Sollte.</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/optimize-with-cookiebot-advanced-insights-for-successful-online-presence/"><u>Optimize with Cookiebot - Advanced Insights for Successful Online Presence</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/optimize-your-digital-footprint-using-smart-tracking-technology-powered-by-cookiebot/"><u>Optimize Your Digital Footprint Using Smart Tracking Technology - Powered by Cookiebot</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/optimized-with-the-help-of-cookiebot-boost-your-websites-performance/"><u>Optimized with the Help of Cookiebot: Boost Your Website's Performance</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/optimizing-with-cookiebot-smart-website-analytics-and-personalization-tools/"><u>Optimizing with Cookiebot: Smart Website Analytics and Personalization Tools</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/optimizing-your-legal-paperwork-5-key-tips-using-abbyy-tech/"><u>Optimizing Your Legal Paperwork: 5 Key Tips Using ABBYY Tech</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/seamless-pdf-conversion-and-text-extraction-using-abbyys-powerful-ocr-software-development-kit/"><u>Seamless PDF Conversion & Text Extraction Using ABBYY's Powerful OCR Software Development Kit</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/step-by-step-solutions-to-correct-the-drivers-issues-causing-windows-error-code-19/"><u>Step-by-Step Solutions to Correct the Drivers Issues Causing Windows Error Code 19</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/techtarget-predicts-soaring-rise-workforce-of-software-robots-to-surge-by-half-in-coming-years/"><u>TechTarget Predicts Soaring Rise: Workforce of Software Robots to Surge by Half in Coming Years</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/top-ranked-transpo-cost-control-firm-accelerates-bill-approvals-via-intelligent-data-systems/"><u>Top-Ranked Transpo Cost Control Firm Accelerates Bill Approvals via Intelligent Data Systems</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/unlocking-advanced-features-with-cookiebot-technology-integration/"><u>Unlocking Advanced Features with Cookiebot Technology Integration</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/unveiling-the-latest-in-technology-through-toms-eyes/"><u>Unveiling the Latest in Technology Through Tom's Eyes</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/zeitreisen-durch-digitalisierung-abbyy-verbindet-universitatsbibliothek-frankfurt-mit-der-vergangenheit/"><u>Zeitreisen Durch Digitalisierung – ABBYY Verbindet Universitätsbibliothek Frankfurt Mit Der Vergangenheit</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-copyright-free-online-collections-for-games/"><u>In 2024, Copyright-Free Online Collections for Games</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-bypass-android-lock-screen-using-emergency-call-on-xiaomi-redmi-12-5g-by-drfone-android/"><u>In 2024, How to Bypass Android Lock Screen Using Emergency Call On Xiaomi Redmi 12 5G?</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-change-tecno-spark-20-proplus-lock-screen-password-by-drfone-android/"><u>In 2024, How To Change Tecno Spark 20 Pro+ Lock Screen Password?</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/superior-sound-top-10-podcast-recording-mics/"><u>Superior Sound Top 10 Podcast Recording Mics</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/vocal-visions-instructions-for-posting-songs-on-youtube-for-2024/"><u>Vocal Visions Instructions for Posting Songs on YouTube for 2024</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

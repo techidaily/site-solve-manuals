@@ -1,40 +1,22 @@
 ---
 title: Enhancing Record Accuracy at PwC Through ABBYY's Cutting-Edge Document Processing Systems
-date: 2024-09-08T23:34:47.991Z
-updated: 2024-09-09T23:34:47.991Z
+date: 2024-09-11T00:42:08.531Z
+updated: 2024-09-14T16:58:43.724Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/992704407ab581931890c09cce338091c04f10f6ec09034fcef1854347c08c6c.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Enhancing Record Accuracy at PwC Through ABBYY's Cutting-Edge Document Processing Systems
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115913/19272" target="_top" id="2115913">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115913" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115913/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## PwC Processes Primary Documents with ABBYY Software Solutions
 
 January 26, 2017
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 PwC, a global network of auditing and consulting firms has completed [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) implementation to simplify processing primary financial documentation. This solution will enable auditors to manage their time even more efficiently when tackling high-priority, important tasks and significantly simplify data entry from the clients’ primary documents into the register.
 
 PwC clients in Russia represent over 2,000 companies, 202 of which are in the Expert 400 rating. Audit requires processing large volumes of supporting documents and reconciliating the data therein contained with the information in the accounting system. Previously the primary documents’ data had to be uploaded into the system manually. Moreover, our employees had to analyze each document, find necessary information and type it into the register.
@@ -59,8 +41,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -70,41 +50,27 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-financial-forecasting-in-the-world-of-youtube-snippet-creation/"><u>[New] 2024 Approved  Financial Forecasting in the World of YouTube Snippet Creation</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-2024-approved-how-to-perfectly-stream-your-ps4-gaming-session/"><u>[New] 2024 Approved  How to Perfectly Stream Your PS4 Gaming Session</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-unlocking-audio-potential-in-audacity-mac-edition/"><u>[New] 2024 Approved  Unlocking Audio Potential in Audacity, Mac Edition</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-professional-portals-15-youtube-economic-insights/"><u>[New] In 2024, Professional Portals  15 YouTube Economic Insights</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-pioneers-of-haptic-technology-unveiled/"><u>[New] Pioneers of Haptic Technology Unveiled</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-why-are-facebook-recommended-videos-vanishing/"><u>[Updated] 2024 Approved  Why Are Facebook Recommended Videos Vanishing?</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-transformative-power-of-instavids-planning-your-marketing-journey/"><u>[Updated] Transformative Power of InstaVids  Planning Your Marketing Journey</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/aquatic-adventures-and-iphones-is-the-iphone-13-built-to-withstand-water/"><u>Aquatic Adventures and iPhones: Is the iPhone 13 Built to Withstand Water?</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/boost-your-shipping-efficiency-access-our-essential-downloaded-checklist-now/"><u>Boost Your Shipping Efficiency: Access Our Essential Downloaded Checklist Now!</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/boost-your-traffic-with-cookiebots-advanced-tracking-solutions/"><u>Boost Your Traffic with Cookiebot's Advanced Tracking Solutions</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/capturing-panoramic-shots-iphone-guide/"><u>Capturing Panoramic Shots  IPhone Guide</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/convert-your-scanned-documents-and-books-into-editable-text-with-iphone-scanner-app/"><u>Convert Your Scanned Documents & Books Into Editable Text with iPhone Scanner App</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-fueled-solutions-enhancing-user-experience-with-smart-data-tracking/"><u>Cookiebot-Fueled Solutions: Enhancing User Experience with Smart Data Tracking</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-the-essential-ai-driven-tool-enhancing-your-websites-seo/"><u>Cookiebot: The Essential AI-Driven Tool Enhancing Your Website's SEO</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-your-key-to-effective-online-user-tracking-and-personalization/"><u>Cookiebot: Your Key to Effective Online User Tracking and Personalization</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/customized-tracking-and-analytics-with-cookiebot-technology/"><u>Customized Tracking & Analytics with Cookiebot Technology</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/delete-gmail-account-withwithout-password-on-honor-90-lite-by-drfone-android/"><u>Delete Gmail Account With/Without Password On Honor 90 Lite</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/die-zukunft-der-automatisierten-buchhaltung-schlusselelemente-aus-der-jahrestagung-2023/"><u>Die Zukunft Der Automatisierten Buchhaltung: Schlüsselelemente Aus Der Jahrestagung 2023</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/empowering-automation-elevating-machine-intellect-with-strategic-content-understanding-the-abbyy-perspective/"><u>Empowering Automation: Elevating Machine Intellect with Strategic Content Understanding | The ABBYY Perspective</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/enhance-digital-engagement-with-our-expertise-in-cookiebot-technology-solutions/"><u>Enhance Digital Engagement with Our Expertise in Cookiebot Technology Solutions</u></a></li>
-<li><a href="https://win-dash.techidaily.com/enhance-gaming-performance-by-installing-updated-drivers-on-your-gtx-1660ti-gpu/"><u>Enhance Gaming Performance by Installing Updated Drivers on Your GTX # 1660Ti GPU</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/enhanced-traffic-with-automated-tracking-the-benefits-of-using-cookiebot/"><u>Enhanced Traffic with Automated Tracking: The Benefits of Using Cookiebot</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/frp-hijacker-by-hagard-download-and-bypass-your-infinix-gt-10-pro-frp-locks-by-drfone-android/"><u>FRP Hijacker by Hagard Download and Bypass your Infinix GT 10 Pro FRP Locks</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/harness-the-power-of-cookiebot-for-superior-site-analytics-and-personalization/"><u>Harness the Power of Cookiebot for Superior Site Analytics and Personalization</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-oneplus-ace-2-pro-location-on-skout-drfone-by-drfone-virtual-android/"><u>How to Change OnePlus Ace 2 Pro Location on Skout | Dr.fone</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-overcoming-low-light-footage-issues-on-your-iphone/"><u>In 2024, Overcoming Low-Light Footage Issues on Your iPhone</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/iphone-document-scanning-and-conversion-convert-pdf-jpg-files-into-editable-text-with-finereader-app/"><u>IPhone Document Scanning & Conversion: Convert PDF, JPG Files Into Editable Text with FineReader App</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/leverage-advanced-web-scraping-with-cookiebot-integration-solutions/"><u>Leverage Advanced Web Scraping with Cookiebot Integration Solutions</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/leveraging-abbyys-expertise-ashling-partners-accelerates-automation-with-elite-program-membership-and-smart-content-insights/"><u>Leveraging ABBYY's Expertise: Ashling Partners Accelerates Automation with Elite Program Membership and Smart Content Insights</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/majority-of-british-workforce-eager-to-outsource-tasks-to-automation-insights-from-abbyy/"><u>Majority of British Workforce Eager to Outsource Tasks to Automation: Insights From ABBYY</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/mitigating-workplace-stress-through-automated-solutions-research-overview/"><u>Mitigating Workplace Stress Through Automated Solutions - Research Overview</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/onboarding-ist-entscheidend-erkennen-sie-die-risiken-bei-denen-fast-jeder-unternehmen-mit-dem-verlust-von-interessenten-rechnen-sollte/"><u>Onboarding Ist Entscheidend: Erkennen Sie Die Risiken, Bei Denen Fast Jeder Unternehmen Mit Dem Verlust Von Interessenten Rechnen Sollte.</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/optimize-with-cookiebot-advanced-insights-for-successful-online-presence/"><u>Optimize with Cookiebot - Advanced Insights for Successful Online Presence</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/optimize-your-digital-footprint-using-smart-tracking-technology-powered-by-cookiebot/"><u>Optimize Your Digital Footprint Using Smart Tracking Technology - Powered by Cookiebot</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/optimized-with-the-help-of-cookiebot-boost-your-websites-performance/"><u>Optimized with the Help of Cookiebot: Boost Your Website's Performance</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/optimizing-with-cookiebot-smart-website-analytics-and-personalization-tools/"><u>Optimizing with Cookiebot: Smart Website Analytics and Personalization Tools</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/1721202651597-step-by-step-guide-on-using-bitraser-for-complete-enterprise-data-sanitization-watch-now/"><u>Step-by-Step Guide on Using BitRaser for Complete Enterprise Data Sanitization - Watch Now!</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-streamlining-vimeo-uploads-from-moviemaker-projects/"><u>[New] In 2024, Streamlining Vimeo Uploads From Moviemaker Projects</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-cutting-edge-strategies-for-youtube-split-screen-videos/"><u>[Updated] 2024 Approved Cutting-Edge Strategies for YouTube Split-Screen Videos</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-crafting-a-visual-narrative-with-iphone-images/"><u>[Updated] Crafting a Visual Narrative with iPhone Images</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-frontier-of-film-virtual-realities-in-theaters/"><u>[Updated] Frontier of Film Virtual Realities in Theaters</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-instagram-video-lifeline-downloading-made-simple-pcmac/"><u>[Updated] In 2024, Instagram Video Lifeline Downloading Made Simple (PC/Mac)</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/harness-the-power-of-cookiebot-for-enhanced-search-engine-performance/"><u>Harness the Power of Cookiebot for Enhanced Search Engine Performance</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-hitbox-vs-twitch-which-is-better/"><u>In 2024, Hitbox Vs Twitch Which Is Better?</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-vivo-t2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Vivo T2 5G? | Dr.fone</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/innovating-finance-how-frances-premier-bank-transforms-with-digitalization-using-abbyy-flexicapture-technology/"><u>Innovating Finance: How France's Premier Bank Transforms with Digitalization Using ABBYY FlexiCapture Technology</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/insurtech-evolution-insights-expert-interview-with-forrester/"><u>InsurTech Evolution Insights: Expert Interview with Forrester</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/leverage-cookiebot-technology-for-enhanced-online-advertising-success/"><u>Leverage Cookiebot Technology for Enhanced Online Advertising Success</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/mastering-efficiency-through-the-integration-of-process-mining-techniques-and-robotic-process-automation/"><u>Mastering Efficiency Through the Integration of Process Mining Techniques and Robotic Process Automation</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/resolving-itunes-update-issues-for-a-smooth-music-experience-on-windows-and-macos/"><u>Resolving iTunes Update Issues for a Smooth Music Experience on Windows & macOS</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/secure-your-data-with-abbyy-cloud-implementing-gdpr-ready-processing-agreements/"><u>Secure Your Data with ABBYY Cloud: Implementing GDPR-Ready Processing Agreements</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/torsten-malchow-takes-on-role-of-senior-vp-for-worldwide-enterprise-sales-at-abbyy/"><u>Torsten Malchow Takes on Role of Senior VP for Worldwide Enterprise Sales at ABBYY</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

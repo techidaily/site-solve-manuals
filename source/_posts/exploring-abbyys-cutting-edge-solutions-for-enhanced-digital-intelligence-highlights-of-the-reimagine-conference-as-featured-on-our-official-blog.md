@@ -1,18 +1,12 @@
 ---
 title: Exploring ABBYY's Cutting-Edge Solutions for Enhanced Digital Intelligence – Highlights of the Reimagine Conference as Featured on Our Official Blog
-date: 2024-09-08T23:34:44.726Z
-updated: 2024-09-09T23:34:44.726Z
+date: 2024-09-07T18:03:40.129Z
+updated: 2024-09-14T18:51:28.717Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d67db43bd99257f0af99e68e427f312b6fcddd2d0ff0d753e05a7e79c9663b0b.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Exploring ABBYY's Cutting-Edge Solutions for Enhanced Digital Intelligence – Highlights of the Reimagine Conference as Featured on Our Official Blog
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
@@ -25,18 +19,6 @@ March 23, 2021
 
 ![Reimagine | ABBYY Blog Post](https://static4.abbyy.com/abbyycommedia/33504/blog-reimagine-new.jpg) 
 
-<!-- affiliate ads begin -->
-<span id="2135472">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 This year at ABBYY’s virtual conference, [ABBYY Reimagine](https://tools.techidaily.com/abbyy/products/), we are announcing new Digital Intelligence solutions that empower a wide range of users with new capabilities that make it easier than ever to add AI to intelligent automation platforms.
 
 Whether you’re an executive leading enterprise Centers of Excellence, part of a management team leading departmental change, working within a consultancy group, VAR, or solution integrator, or are a citizen developer, our Reveal session will demonstrate how you can understand the impact of your documents and processes in relation to your overall operational excellence, and in turn, help you deliver exceptional customer journeys.
@@ -50,20 +32,8 @@ During the ABBYY Reimagine Reveal session, we are announcing
 
 ![digital intelligence 2021](https://static1.abbyy.com/abbyycommedia/32424/b-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 You [can watch](https://tools.techidaily.com/abbyy/products/) the Digital Intelligence Reveal on Day 1, as well as industry solution sessions that address the pain points in insurance, financial services, supply chain/transportation and logistics, and healthcare featuring several customers. There are also technical tracks during Day 2 that will show how to solve the most challenging content, process, and analytic problems.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121334/18498" target="_top" id="2121334">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121334" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121334/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **ABBYY launches no-code platform Vantage 2 and AI marketplace to reimagine digital transformation**
 
 [ABBYY Vantage 2](https://tools.techidaily.com/abbyy/products/) empowers citizen developers to have more control within intelligent automation initiatives. The platform drives change across the entire organization by enabling business users to digitize operations faster without complete reliance on IT: with Vantage, they can derive critical insights from documents on a large scale. Through empowering individual users, Vantage allows business leaders to accelerate automation strategies, improve customer experience, lower risk, and increase productivity.
@@ -90,22 +60,17 @@ Find out how it can improve customer journey visibility, reduce time and manual 
 
 Visit the FlexiCapture web page for more information about the [Timeline for FlexiCapture](https://tools.techidaily.com/abbyy/products/) solution.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **ABBYY partner ecosystem promotes hyperautomation, value for customers**
 
 ABBYY will have several technology partners share how they integrate ABBYY Digital Intelligence to achieve intelligent automation leveraging multiple tools ranging from machine learning, analytics, process mining, business intelligence, and RPA. The integrated approach promotes what Gartner refers to as hyperautomation using best-in-breed technology. Partners presenting during ABBYY Reimagine sessions include Gold sponsors EXL, Blue Prism, and Alteryx, as well as other technology partners PwC and Capitalize Analytics.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121335/18498" target="_top" id="2121335">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121335" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2123479/16836" target="_top" id="2123479">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123479" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121335/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123479/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### **ABBYY partners with Capitalize Analytics to deliver end-to-end process insight to achieve operational excellence**
 
 ABBYY has partnered with Capitalize Analytics, a business intelligence and consulting firm that specializes in leveraging data automation and monitorization tools to provide end-to-end process understanding of organizations’ operations. Capitalize Analytics provides consulting services to companies that leverage various platforms such as ABBYY Timeline, Tableau, Power BI, and UiPath and is an Alteryx North American Partner of the Year.
@@ -125,6 +90,13 @@ If you are unable to join us live, ABBYY Reimagine sessions will be available on
 [Intelligent Automation](https://tools.techidaily.com/abbyy/products/) [Intelligent Document Processing (IDP)](https://www.abbyy.com/blog/intelligent-document-processing-idp/ "Intelligent Document Processing (IDP)") [Enterprise](https://tools.techidaily.com/abbyy/products/) [Events](https://tools.techidaily.com/abbyy/products/) [Process Mining](https://tools.techidaily.com/abbyy/products/) 
 
 ![Bruce Orcutt ABBYY](https://static5.abbyy.com/abbyycommedia/25719/bruceorcutt-99x99.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Bruce Orcutt
 
@@ -188,8 +160,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -199,48 +169,18 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-deepening-ties-techniques-for-meaningful-youtube-dialogue/"><u>[New] In 2024, Deepening Ties  Techniques for Meaningful YouTube Dialogue</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-the-pros-guide-to-documenting-your-online-facebook-interactions-for-2024/"><u>[New] The Pro's Guide to Documenting Your Online Facebook Interactions for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-sound-sculpture-shaping-your-youtube-audio-experience/"><u>[Updated] 2024 Approved  Sound Sculpture  Shaping Your YouTube Audio Experience</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-rapid-rise-to-instagram-riches-15-innovative-techniques-for-quick-popularity-boost/"><u>[Updated] In 2024, Rapid Rise to Instagram Riches  15 Innovative Techniques for Quick Popularity Boost</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-snowflakes-and-champions-highlights-from-beijing-games-for-2024/"><u>[Updated] Snowflakes and Champions  Highlights From Beijing Games for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-unlock-creativity-adding-borders-in-video-stories/"><u>[Updated] Unlock Creativity  Adding Borders in Video Stories</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/1724313312556-abby/"><u>「ABBYフレックスキャプチャー®による生命保険事務手続きの効率的なオペレーション自動化方法」</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/ai-ocr-abbyy/"><u>「テガキを駆使したAI OCR: 手書き文字認識におけるコゲントラボ対フレックスキャプチャーの完璧な合体」 - ABBYYブログ</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/1-outsourcing-expertise-subcontracting-for-enhanced-abbyy-professionals/"><u>1. Outsourcing Expertise: Subcontracting for Enhanced ABBYY Professionals</u></a></li>
-<li><a href="https://extra-information.techidaily.com/2024-approved-3-simple-steps-unlock-your-instagram-collaboration-potential/"><u>2024 Approved  3 Simple Steps  Unlock Your Instagram Collaboration Potential</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-breathe-life-into-your-reels-adding-drama-with-slow-motion/"><u>2024 Approved  Breathe Life Into Your Reels  Adding Drama with Slow Motion</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/abbyy-announces-worldwide-effort-to-advance-reliable-and-ethical-ai-technologies/"><u>ABBYY Announces Worldwide Effort to Advance Reliable and Ethical AI Technologies</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/abbyy-introduces-advanced-artificial-intelligence-powered-cloud-solution-for-enhanced-document-insight-and-rapid-data-analysis/"><u>ABBYY Introduces Advanced Artificial Intelligence-Powered Cloud Solution for Enhanced Document Insight and Rapid Data Analysis</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/abbyy-steigert-effizienz-von-munchens-bauakten-durch-digitalisierung/"><u>ABBYY Steigert Effizienz Von Münchens Bauakten Durch Digitalisierung</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/advanced-analytics-and-personalization-enabled-by-cookiebot-inspired-technology/"><u>Advanced Analytics and Personalization Enabled by Cookiebot-Inspired Technology</u></a></li>
-<li><a href="https://solve-news.techidaily.com/appreciating-core-significance-the-secret-behind-document-valuation-at-abbyy-thought-leadership-blog/"><u>Appreciating Core Significance: The Secret Behind Document Valuation at ABBYY Thought Leadership Blog</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/automated-traffic-management-with-the-advanced-capabilities-of-cookiebot/"><u>Automated Traffic Management with the Advanced Capabilities of Cookiebot</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/automation-insights-robotics-employment-and-advanced-text-analysis-on-the-abbeyb-log/"><u>Automation Insights - Robotics, Employment & Advanced Text Analysis on the ABBEYB Log</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/boosting-site-engagement-with-advanced-cookiebot-tracking-solutions/"><u>Boosting Site Engagement with Advanced Cookiebot Tracking Solutions</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/bypass-iphone-13-pro-max-activation-lock-with-a-professional-tool-by-drfone-ios-unlock-ios-unlock/"><u>Bypass iPhone 13 Pro Max activation lock with a professional tool</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/can-i-bypass-a-forgotten-phone-password-of-samsung-galaxy-s23-ultra-by-drfone-android/"><u>Can I Bypass a Forgotten Phone Password Of Samsung Galaxy S23 Ultra?</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/chatgpt-as-a-teacher-for-wholesome-meal-preparation-feasibility-and-tips/"><u>ChatGPT as a Teacher for Wholesome Meal Preparation - Feasibility and Tips</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/comparing-rpa-and-ipa-understanding-their-distinctive-features/"><u>Comparing RPA and IPA: Understanding Their Distinctive Features</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/comprehensive-tutorial-eradicating-iphones-viruses-proven-techniques/"><u>Comprehensive Tutorial: Eradicating iPhones' Viruses - Proven Techniques</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-solutions-enhancing-digital-experiences/"><u>Cookiebot-Driven Solutions: Enhancing Digital Experiences</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-marketing-tools-for-advanced-user-tracking-and-analysis/"><u>Cookiebot-Enabled Marketing Tools for Advanced User Tracking and Analysis</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/deciphering-the-future-of-artificial-intelligence-through-apples-reveals-at-wwdc-2024/"><u>Deciphering the Future of Artificial Intelligence Through Apple's Reveals at WWDC 2024</u></a></li>
-<li><a href="https://review-topics.techidaily.com/edit-and-send-fake-location-on-telegram-for-your-infinix-smart-8-hd-in-3-ways-drfone-by-drfone-virtual-android/"><u>Edit and Send Fake Location on Telegram For your Infinix Smart 8 HD in 3 Ways | Dr.fone</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/enhancing-record-accuracy-at-pwc-through-abbyys-cutting-edge-document-processing-systems/"><u>Enhancing Record Accuracy at PwC Through ABBYY's Cutting-Edge Document Processing Systems</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-use-google-assistant-on-your-lock-screen-of-nokia-130-music-phone-by-drfone-android/"><u>How to Use Google Assistant on Your Lock Screen Of Nokia 130 Music Phone</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/learn-abbyy-vantage-with-our-comprehensive-online-tutorial-videos/"><u>Learn ABBYY Vantage with Our Comprehensive Online Tutorial Videos</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/maximize-site-engagement-using-the-innovative-capabilities-of-cookiebot/"><u>Maximize Site Engagement Using the Innovative Capabilities of Cookiebot</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/new-features-and-renaming-from-abbyy-recognition-server-to-abbyy-finereader-server/"><u>New Features and Renaming: From ABBYY Recognition Server to ABBYY FineReader Server</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/ninety-percent-of-businesses-miss-out-on-prospective-buyers-due-to-inadequate-online-onboarding-experiences/"><u>Ninety Percent of Businesses Miss Out on Prospective Buyers Due to Inadequate Online Onboarding Experiences</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/preparing-your-environment-zoom-room-configuration-tips/"><u>Preparing Your Environment  Zoom Room Configuration Tips</u></a></li>
-<li><a href="https://extra-information.techidaily.com/revolutionize-file-formats-with-rapid-srt-transformation/"><u>Revolutionize File Formats with Rapid SRT Transformation</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/revolutionize-your-scanning-workflow-with-abbyys-ocr-software-development-kit-for-precise-text-extraction-and-analysis/"><u>Revolutionize Your Scanning Workflow with ABBYY's OCR Software Development Kit for Precise Text Extraction and Analysis</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/seamless-conversion-experience-via-ai-driven-analytics-the-power-of-cookiebot/"><u>Seamless Conversion Experience via AI-Driven Analytics - The Power of Cookiebot</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/secure-your-print-jobs-with-updated-brother-hl-l2350dw-printer-drivers-download-today/"><u>Secure Your Print Jobs with Updated Brother HL-L2350DW Printer Drivers - Download Today!</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/streamline-your-contract-management-discover-the-power-of-apttuss-intelligent-import-feature-enhanced-with-abbyy-and-machine-learning-innovation/"><u>Streamline Your Contract Management: Discover the Power of Apttus's Intelligent Import Feature Enhanced with ABBYY and Machine Learning Innovation</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/utilizing-cookiebot-technology-for-optimized-user-experience-and-analytics-tracking/"><u>Utilizing Cookiebot Technology for Optimized User Experience & Analytics Tracking</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/virtual-town-hall-webinar-on-enhancing-ap-support-services/"><u>Virtual Town Hall Webinar on Enhancing AP Support Services</u></a></li>
-<li><a href="https://games-able.techidaily.com/xbox-revolutionizing-gaming-through-cloud-technology/"><u>Xbox: Revolutionizing Gaming Through Cloud Technology</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/abbyy-ai-ocr-4/"><u>パーソルグループの名刺管理システムにABBYY AI OCRを実装: モバイル且つ4枚まとめて高精度読み取り</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-spy-on-fb-chronicles-discreetly/"><u>[New] 2024 Approved Spy on FB Chronicles Discreetly</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-architecting-top-quality-canon-chrono-films/"><u>[Updated] Architecting Top Quality Canon Chrono Films</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-building-your-brand-through-effective-fb-reel-strategies/"><u>[Updated] Building Your Brand Through Effective FB Reel Strategies</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-mini-stories-decoded-whats-inside/"><u>[Updated] Mini Stories Decoded What's Inside?</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-launchpad-essentials-your-first-steps-in-streaming/"><u>2024 Approved Launchpad Essentials Your First Steps in Streaming</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/expanding-capabilities-with-cloud-based-ocr-sdks-insights-from-the-abbyy-experts/"><u>Expanding Capabilities with Cloud-Based OCR SDKs – Insights From the ABBYY Experts</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/harness-the-power-of-cookiebot-revolutionize-seo-and-skyrocket-online-engagement/"><u>Harness the Power of Cookiebot: Revolutionize SEO and Skyrocket Online Engagement</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/harnessing-cutting-edge-ocr-technology-for-effective-learning-explore-with-abbyy-experts-on-our-blog/"><u>Harnessing Cutting-Edge OCR Technology for Effective Learning | Explore with ABBYY Experts on Our Blog</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/introducing-the-latest-milestone-abbyy-opens-a-state-of-the-art-innovation-center-for-smart-automation-in-serbia/"><u>Introducing the Latest Milestone: ABBYY Opens a State-of-the-Art Innovation Center for Smart Automation in Serbia</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-infinix-zero-5g-2023-turbo-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Infinix Zero 5G 2023 Turbo | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/top-5-from-xiaomi-redmi-13c-5g-to-iphone-contacts-transfer-apps-and-software-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Top 5 from Xiaomi Redmi 13C 5G to iPhone Contacts Transfer Apps and Software | Dr.fone</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-royalty-free-video-heaven-top-download-sites/"><u>Updated In 2024, Royalty-Free Video Heaven Top Download Sites</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/why-is-ipogo-not-working-on-oppo-reno-9a-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Oppo Reno 9A? Fixed | Dr.fone</u></a></li>
 </ul></div>
+
