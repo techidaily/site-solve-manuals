@@ -1,7 +1,7 @@
 ---
 title: Unlock Greater Conversion Rates Using State-of-the-Art Analytics and Retargeting Tools by Cookiebot
-date: 2024-09-10T20:43:13.094Z
-updated: 2024-09-14T22:57:58.420Z
+date: 2024-09-17T16:05:32.914Z
+updated: 2024-09-19T03:04:23.916Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f5fbbf41453d9824bf6879798120e6de2082db27f668f4cb2a72d45c0fe37f64.jpg
@@ -58,10 +58,10 @@ Moreover, we want you to be able to find the photos that you need even quicker t
 Simply begin typing your search phrase into the bar at the top of the Gallery screen. You can also search through documents from a specific category (e.g. A4) by navigating to the appropriate document category folder and searching there. Doing so will restrict your search to that specific document type.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Activating the new smart gallery and the search feature
@@ -84,16 +84,10 @@ It is imperative that you select the correct recognition languages in order for 
 We have good news for you regardless of your device platform — [FineScanner 8.0 is available on both iOS and Android](https://go.onelink.me/0oMB/2b084a0a) on the same day.
 
 <!-- affiliate ads begin -->
-<span id="1993645">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Measuring document size using augmented reality on iOS devices
@@ -201,23 +195,9 @@ Sections for the various document formats will be displayed at the top of the Ga
 
 ![classification_search_fs_8](https://static1.abbyy.com/abbyycommedia/31422/classification_search_fs_8.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 “Training” our neural network involved studying tens of thousands of photographs provided by a multitude of ABBYY employees. Artificial intelligence, like any diligent student, requires a wealth of knowledge to learn from. As part of this process, ABBYY developers meticulously marked out each provided photo by hand. This was how the AI was “taught” the difference between books and A4 documents, business cards and ID’s, and so on. We decided to implement seven distinct sections for the most popular document types uploaded to [FineScanner](https://go.onelink.me/0oMB/2b084a0a). This data was obtained by means of a questionnaire answered by our users.
 
 According to testing results, the accuracy of classification is approximately 90 – 95%. But it depends on the quality of photos in your gallery.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115911/19272" target="_top" id="2115911">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115911" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115911/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Find photos using text search
 
@@ -226,6 +206,19 @@ Moreover, we want you to be able to find the photos that you need even quicker t
 ![search_fs_8](https://static1.abbyy.com/abbyycommedia/31421/search_fs_8.jpeg)
 
 Simply begin typing your search phrase into the bar at the top of the Gallery screen. You can also search through documents from a specific category (e.g. A4) by navigating to the appropriate document category folder and searching there. Doing so will restrict your search to that specific document type.
+
+<!-- affiliate ads begin -->
+<span id="1770776">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Activating the new smart gallery and the search feature
 
@@ -247,10 +240,10 @@ It is imperative that you select the correct recognition languages in order for 
 We have good news for you regardless of your device platform — [FineScanner 8.0 is available on both iOS and Android](https://go.onelink.me/0oMB/2b084a0a) on the same day.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Measuring document size using augmented reality on iOS devices
@@ -265,6 +258,19 @@ To measure your document using augmented reality, do the following:
 4) Follow the instructions on your screen.
 
 ![arkit_fs_8](https://static1.abbyy.com/abbyycommedia/31423/arkit_fs_8.png)
+
+<!-- affiliate ads begin -->
+<span id="1983552">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 If the size of your document corresponds to one of the standard sizes (e.g. A4 or driver’s license), [FineScanner](https://go.onelink.me/0oMB/2b084a0a) will ask you whether you want to set the document to be treated as a document of that particular size. For documents of non-standard size, you can choose to save the detected size for later use. To do so, tap the detected document measurements and switch “Save to list” to “On”. Once that is done, specify a name for your new format, for example, “Flyer”.
 
@@ -299,15 +305,12 @@ Share
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-simplifying-the-process-of-finding-facebook-watch-history/"><u>[New] In 2024, Simplifying the Process of Finding Facebook Watch History</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-harmonizing-your-browsing-experience-with-automatic-youtube-playback-on-facebook/"><u>[Updated] 2024 Approved Harmonizing Your Browsing Experience with Automatic YouTube Playback on Facebook</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-eager-ears-entertainment-where-to-download-laughable-rings/"><u>2024 Approved Eager-Ears Entertainment Where to Download Laughable Rings</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/abbyys-q3-2018-insights-reveal-surge-in-demand-for-advanced-document-analysis/"><u>ABBYY's Q3 2018 Insights Reveal Surge in Demand for Advanced Document Analysis</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/adaptability/"><u>Adaptability</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/advanced-personalization-through-cookiebot-integration-transform-your-site/"><u>Advanced Personalization Through Cookiebot Integration – Transform Your Site!</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/complete-fixes-to-solve-iphone-x-randomly-asking-for-apple-id-password-by-drfone-ios/"><u>Complete Fixes To Solve iPhone X Randomly Asking for Apple ID Password</u></a></li>
-<li><a href="https://network-issues.techidaily.com/glide-past-game-slowdowns/"><u>Glide Past Game Slowdowns</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-show-wi-fi-password-on-nubia-z50-ultra-by-drfone-android/"><u>In 2024, How to Show Wi-Fi Password on Nubia Z50 Ultra</u></a></li>
-<li><a href="https://windows11.techidaily.com/unveiling-the-ultimate-free-toolset-for-win11-pcs/"><u>Unveiling the Ultimate Free Toolset for Win11 PCs</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/conversion-bmp-a-tiff-gratuite-sur-ligne-utilisez-movavi/"><u>Conversion BMP À TIFF Gratuite Sur Ligne - Utilisez Movavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/free-conversion-change-your-files-from-aiff-to-wma-using-an-online-tool/"><u>Free Conversion: Change Your Files From AIFF to WMA Using an Online Tool</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-full-guide-to-fix-itoolab-anygo-not-working-on-huawei-nova-y71-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Fix iToolab AnyGO Not Working On Huawei Nova Y71 | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-11-free-apps-to-check-imei-on-samsung-galaxy-a15-5g-phones-by-drfone-android/"><u>In 2024, Top 11 Free Apps to Check IMEI on Samsung Galaxy A15 5G Phones</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-in-2024-windows-10-dvd-player-showdown-top-10-free-options/"><u>New In 2024, Windows 10 DVD Player Showdown Top 10 Free Options</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/os-9-melhores-concorrentes-gratuitos-online-ideais-para-fazer-videos-perfeitos-no-youtube/"><u>Os 9 Melhores Concorrentes Gratuitos Online Ideais Para Fazer Vídeos Perfeitos No YouTube</u></a></li>
+<li><a href="https://fox-that.techidaily.com/unlock-essential-features-and-enhancements-the-critical-need-to-install-ios-153-today/"><u>Unlock Essential Features and Enhancements: The Critical Need to Install iOS 15.3 Today</u></a></li>
 </ul></div>
 

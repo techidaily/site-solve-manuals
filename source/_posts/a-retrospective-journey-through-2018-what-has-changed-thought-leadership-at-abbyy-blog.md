@@ -1,7 +1,7 @@
 ---
 title: "A Retrospective Journey Through 2018: What Has Changed? | Thought Leadership at ABBYY Blog"
-date: 2024-09-07T16:14:48.626Z
-updated: 2024-09-14T19:13:33.679Z
+date: 2024-09-17T22:21:26.269Z
+updated: 2024-09-18T21:00:04.278Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/927eab612ca9394a8dc7ea238a2f885f7ea9117faabc7f0454d2ab57936cb103.png
@@ -105,24 +105,28 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-screenscape-innovations-an-unbiased-look-at-apeaksoft-2023-edition/"><u>[New] In 2024, Screenscape Innovations An Unbiased Look at Apeaksoft, 2023 Edition</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-step-by-step-mac-techniques-to-edit-srt-files/"><u>[New] Step-by-Step Mac Techniques to Edit SRT Files</u></a></li>
-<li><a href="https://fake-location.techidaily.com/apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-vivo-v27e-drfone-by-drfone-virtual-android/"><u>Apply These Techniques to Improve How to Detect Fake GPS Location On Vivo V27e | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/german-classrooms-revolutionized-by-mondlys-online-success/"><u>German Classrooms Revolutionized by Mondly's Online Success</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-activation-lock-on-ipod-and-apple-iphone-15-plus-the-right-way-by-drfone-ios/"><u>How To Bypass iCloud Activation Lock On iPod and Apple iPhone 15 Plus The Right Way</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-your-samsung-galaxy-a14-5g-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>How to Mirror Your Samsung Galaxy A14 5G Screen to PC with Chromecast | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-unlock-vivo-y200e-5g-pin-codepattern-lockpassword-by-drfone-android/"><u>How to Unlock Vivo Y200e 5G PIN Code/Pattern Lock/Password</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/neil-murphy-lead-revenue-strategist-at-abbyy/"><u>Neil Murphy: Lead Revenue Strategist at ABBYY</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/new-strategic-alliance-abbyy-joins-forces-with-lifeboat-distribution-for-north-american-market-expansion/"><u>New Strategic Alliance: ABBYY Joins Forces with Lifeboat Distribution for North American Market Expansion</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/next-gen-banking-masterclass-on-digital-transformation-and-process-automation/"><u>Next-Gen Banking: Masterclass on Digital Transformation and Process Automation</u></a></li>
-<li><a href="https://driver-error.techidaily.com/1721096618625-qualcomm-atheros-bluetooth-drivers-wont-work-on-windows-10-discover-the-fix-now/"><u>Qualcomm Atheros Bluetooth Drivers Won't Work on Windows 10? Discover the Fix Now!</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/remedying-jittery-or-unstable-camera-video/"><u>Remedying Jittery or Unstable Camera Video</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-analyzing-the-updated-sony-s6500-blu-ray-player/"><u>[New] In 2024, Analyzing the Updated Sony S6500 Blu-Ray Player</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/he-ultimate-guide-to-editing-sportscasts-for-2024/"><u>[New] The Ultimate Guide to Editing Sportscasts for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/distinct-keyboard-shortcuts-analyzing-brazilian-and-european-pt/"><u>Distinct Keyboard Shortcuts: Analyzing Brazilian & European PT</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/free-online-converter-easily-convert-wma-to-wmv-with-movavis-tools/"><u>Free Online Converter: Easily Convert WMA to WMV with Movavi's Tools</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/gratis-omzetten-van-mxf-bestandjes-veilige-en-vrije-conversie-met-movavi/"><u>Gratis Omzetten Van MXF-Bestandjes: Veilige en Vrije Conversie Met Movavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/guia-completa-para-transformar-tu-contenido-vob-en-avi-mediante-movavi-una-solucion-de-cambio-digital-sin-gastos/"><u>Guía Completa Para Transformar Tu Contenido VOB en AVI Mediante MÓVAVI: Una Solución De Cambio Digital Sin Gastos</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-call-logs-from-realme-10t-5g-by-fonelab-android-recover-call-logs/"><u>How to rescue lost call logs from Realme 10T 5G</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/immediate-streams-from-obs-to-insta-for-2024/"><u>Immediate Streams From OBS to Insta for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-five-mac-friendly-strategies-for-documenting-minecraft-games/"><u>In 2024, Five Mac-Friendly Strategies for Documenting Minecraft Games</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-use-of-analytics/"><u>In 2024, Use of Analytics</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/inside-the-latest-artificial-intelligence-breakthroughs-unveiled-by-apple-at-wwdc-2024/"><u>Inside the Latest Artificial Intelligence Breakthroughs Unveiled by Apple at WWDC 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/optimize-gameplay-smoothness-overcoming-fps-reductions-in-pc-games/"><u>Optimize Gameplay Smoothness - Overcoming FPS Reductions in PC Games</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/os-melhores-conversores-digital-de-vhs-para-dvd-comparando-os-top-10-mais-eficientes/"><u>Os Melhores Conversores Digital De VHS Para DVD: Comparando Os Top 10 Mais Eficientes</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/transforma-tu-video-en-un-gif-gratuito-guia-paso-a-paso-para-crear-archivos-animados-online/"><u>Transforma Tu Vídeo en Un GIF Gratuito: Guía Paso a Paso Para Crear Archivos Animados Online</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/transformation-libre-de-fichiers-vob-en-wmv-en-ligne-avec-movavi-guide-complet/"><u>Transformation Libre De Fichiers VOB en WMV en Ligne Avec Movavi - Guide Complet</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/transforming-mp3s-into-perfect-iphone-ringtones-discover-the-top-two-techniques/"><u>Transforming MP3s Into Perfect iPhone Ringtones: Discover the Top Two Techniques</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

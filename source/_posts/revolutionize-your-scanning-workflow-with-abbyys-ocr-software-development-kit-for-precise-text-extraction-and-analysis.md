@@ -1,7 +1,7 @@
 ---
 title: Revolutionize Your Scanning Workflow with ABBYY's OCR Software Development Kit for Precise Text Extraction and Analysis
-date: 2024-09-12T21:15:20.907Z
-updated: 2024-09-14T17:41:39.897Z
+date: 2024-09-16T17:14:00.379Z
+updated: 2024-09-18T21:45:36.634Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/965654acbd64cd762e18be6423e980e53d1c3fa7dd1512b5cfdc18b0e2b93a57.jpg
@@ -35,10 +35,10 @@ ABBYY FineReader Engine
 テキスト認識範囲をマニュアルで指定するモードです。 この場合、認識すべきフィールドを直接定義するので、自動文書分析は不要となります。 指定したフィールドの座標とプロパティについての情報が、これに続く認識工程に引き渡され、指定された部分でのみOCRが実行されます。
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 専門家とお話ししてみませんか？ 
@@ -60,14 +60,14 @@ ABBYY FineReader Engine
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-best-free-open-source-video-conferencing-software-ranked-by-industry-for-2024/"><u>[Updated] Best Free Open Source Video Conferencing Software Ranked by Industry for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/avoid-download-hassle-top-5-online-converters-for-gif-to-video/"><u>Avoid Download Hassle Top 5 Online Converters for GIF to Video</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-technology-fuels-advanced-web-personalization/"><u>Cookiebot Technology Fuels Advanced Web Personalization</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-your-reliable-partner-for-personalized-marketing-automation/"><u>Cookiebot: Your Reliable Partner for Personalized Marketing Automation</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/customized-ad-targeting-with-cookiebot-the-powerhouse-of-personalization/"><u>Customized Ad Targeting with Cookiebot: The Powerhouse of Personalization</u></a></li>
-<li><a href="https://driver-download.techidaily.com/download-the-latest-ricoh-mp-c3003-printer-software/"><u>Download the Latest Ricoh MP C3003 Printer Software</u></a></li>
-<li><a href="https://review-topics.techidaily.com/huawei-p60-support-turn-off-screen-lock-by-drfone-android-unlock-android-unlock/"><u>Huawei P60 support - Turn Off Screen Lock.</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/the-6-best-sim-unlock-services-that-actually-work-on-your-oppo-a79-5g-device-by-drfone-android/"><u>The 6 Best SIM Unlock Services That Actually Work On Your Oppo A79 5G Device</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/troubleshooting-steps-when-resident-evil-5-fails-to-start-on-a-pc/"><u>Troubleshooting Steps When Resident Evil 5 Fails to Start on a PC</u></a></li>
+<li><a href="https://howto.techidaily.com/6-fixes-to-unfortunately-whatsapp-has-stopped-error-popups-on-motorola-moto-g23-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Fixes to Unfortunately WhatsApp has stopped Error Popups On Motorola Moto G23 | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/comprehensive-guide-to-crafting-professional-haul-videos-for-2024/"><u>Comprehensive Guide to Crafting Professional Haul Videos for 2024</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/conversione-libera-da-ram-a-file-wav-online-utilizzando-movavi-ottenere-gratuitamente-i-tuoi-risultati-migliori/"><u>Conversione Libera Da RAM a File WAV Online Utilizzando Movavi - Ottenere Gratuitamente I Tuoi Risultati Migliori</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-unleash-the-power-of-obs-in-live-gaming-streams/"><u>In 2024, Unleash the Power of OBS in Live Gaming Streams</u></a></li>
+<li><a href="https://win-dash.techidaily.com/installing-or-updating-your-brother-hl-l2300d-printer-driver-made-easy/"><u>Installing or Updating Your Brother HL-L2300D Printer Driver Made Easy</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/neprerazovaci-video-playback-fix-pokus-o-vydarani-pryc-pocitace/"><u>Nepřerazovací Video Playback Fix - Pokus O Vydárání Pryč Počítače</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/uniting-sight-and-sound-perfecting-videography-voiceovers/"><u>Uniting Sight & Sound Perfecting Videography Voiceovers</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/verbeterde-instructies-om-vlc-permanente-hoepel-titels-te-behoudend-toezicht-te-krijgen/"><u>Verbeterde Instructies Om VLC Permanente Hoepel Titels Te Behoudend Toezicht Te Krijgen</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/7ywn7iqk7yq466w8ioycroynhoycvouhncdrsjtqvrjslrqg66ek66cl7lcsiouvuoulioyyge2zlcdrp4zrk5zqula/"><u>텍스트를 사진으로 바꾸어 매력찬 미니영화 만드기</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Neil Murphy: Lead Revenue Strategist at ABBYY"
-date: 2024-09-09T19:39:39.800Z
-updated: 2024-09-14T18:00:54.980Z
+date: 2024-09-16T18:49:24.154Z
+updated: 2024-09-18T20:26:53.224Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/75ed7dc872027e37ee776fcbd41ee515ad71f0c8336694d98304c7450ff8c427.png
@@ -40,28 +40,25 @@ Over the years, Neil has worked with a variety of industry sectors ranging from 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/ed-ideal-asmr-channel-selections/"><u>[Updated] Ideal ASMR Channel Selections</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/disarming-the-dissimulation-in-digital-drafts/"><u>Disarming the Dissimulation in Digital Drafts</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/enhanced-personalization-with-our-cookiebot-enabled-solutions/"><u>Enhanced Personalization with Our Cookiebot-Enabled Solutions</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/enhanced-traffic-and-personalization-with-cookiebot-technology/"><u>Enhanced Traffic and Personalization with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/enhancing-user-engagement-with-cookiebot-technology/"><u>Enhancing User Engagement with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/expert-advice-on-ap-automation-in-depth-qanda-sessions-with-industry-leaders/"><u>Expert Advice on AP Automation: In-Depth Q&A Sessions with Industry Leaders</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/how-to-get-windows-10-updates-faster-effective-strategies-inside/"><u>How to Get Windows 10 Updates Faster - Effective Strategies Inside</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-google-pixel-7afrp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Google Pixel 7aFRP Lock</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/no-remux-methods-for-modifying-default-audio-and-subtitle-tracks-in-matroska-videos/"><u>No-Remux Methods for Modifying Default AUDIO & SUBTITLE Tracks in Matroska Videos</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/the-upcoming-apple-audio-device-uncovered-projections-on-pricing-strategy-and-product-specs/"><u>The Upcoming Apple Audio Device Uncovered: Projections on Pricing Strategy & Product Specs</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ost-effective-subscriber-growth-hundreds-at-a-bargain-price-for-2024/"><u>[New] Cost-Effective Subscriber Growth - Hundreds at a Bargain Price for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-crucial-steps-in-archiving-lol-matchups/"><u>[Updated] In 2024, Crucial Steps in Archiving LOL Matchups</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-inshot-video-magic-mastering-segment-shifts/"><u>[Updated] In 2024, Inshot Video Magic Mastering Segment Shifts</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/gifpng-movavi/"><u>免費線上改造GIF成PNG格式：如何利用 Movavi 工具</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/convertissez-gratuitement-un-fichier-ts-en-mp4-sur-internet-avec-movavi/"><u>Convertissez Gratuitement Un Fichier .TS en MP4 Sur Internet Avec Movavi</u></a></li>
+<li><a href="https://driver-download.techidaily.com/easy-access-to-the-latest-driver-updates-for-your-hp-deskjet-2540-printer/"><u>Easy Access to the Latest Driver Updates for Your HP Deskjet 2540 Printer</u></a></li>
+<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-from-samsung-galaxy-s23-tactical-edition-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock from Samsung Galaxy S23 Tactical Edition Phones with/without a PC</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-3-facts-you-need-to-know-about-screen-mirroring-samsung-galaxy-a05-drfone-by-drfone-android/"><u>In 2024, 3 Facts You Need to Know about Screen Mirroring Samsung Galaxy A05 | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-graduating-from-novice-to-3d-lut-maestro/"><u>In 2024, Graduating From Novice to 3D LUT Maestro</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-will-the-ipogo-get-you-banned-and-how-to-solve-it-on-vivo-s17-drfone-by-drfone-virtual-android/"><u>In 2024, Will the iPogo Get You Banned and How to Solve It On Vivo S17 | Dr.fone</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/megoldas-az-mxf-a-mp4-konvertalasa-modjairol-8-as-kiadasu-konverter-tenyezoknek-a-macwindows-rendszerrel/"><u>Megoldás Az MXF a MP4 Konvertálása Módjairol 8-as Kiadású Konverter Tényezőknek A Mac/Windows Rendszerrel</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/movavis-no-cost-ogg-to-aiff-converter-perfect-solution-for-your-file-needs/"><u>Movavi's No-Cost OGG to AIFF Converter - Perfect Solution for Your File Needs!</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/transformer-des-fichiers-audio-3gp-en-formats-wav-sans-frais-methode-facile-et-gratuit-de-la-plateforme-enligne/"><u>Transformer Des Fichiers Audio 3GP en Formats WAV Sans Frais - Méthode Facile Et Gratuit De La Plateforme Enligne</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<span id="1938141">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
+  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

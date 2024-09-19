@@ -1,7 +1,7 @@
 ---
 title: Deloitte Et ABBYY Unissent Forces Pour Transformer Les Processus Opérationnels Clientiels Par L'Automatisation
-date: 2024-09-07T20:34:28.630Z
-updated: 2024-09-14T16:04:18.669Z
+date: 2024-09-17T16:58:39.028Z
+updated: 2024-09-18T16:46:17.808Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0c6d2fd1a73159563e57dda315b30eb330741092cc6760e2a82edb3563c1b5c8.jpg
@@ -42,10 +42,10 @@ Avec plus de 130 Partners et 2 300 employés, Deloitte Luxembourg est un des cab
 ABBYY est la force motrice de l’automatisation intelligente. Nous révolutionnons la façon dont les gens travaillent et aidons les entreprises à accélérer leurs opérations en leur apportant l’intelligence qui alimente les plateformes d’automatisation. Nos solutions transforment les données d’entreprise et fournissent les informations nécessaires pour travailler plus intelligemment et plus rapidement. Basé dans les États-Unis et avec des filiales dans quinze pays, nous aidons plus de 5 000 organisations de par le monde, dont un grand nombre d’entreprises du Fortune 500, à faire des progrès au niveau de l’expérience client, la rentabilité et l’avantage concurrentiel. Pour plus d’informations, rendez-vous sur [www.abbyy.com/company/about-us](https://tools.techidaily.com/abbyy/products/) et suivez-nous sur LinkedIn, Twitter et Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115919/19272" target="_top" id="2115919">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115919" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115919/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Contact presse
@@ -53,10 +53,10 @@ ABBYY est la force motrice de l’automatisation intelligente. Nous révolutionn
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Bianca Stupp
@@ -83,15 +83,16 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://solve-manuals.techidaily.com/ai-ocr-abbyy/"><u>「テガキを駆使したAI OCR: 手書き文字認識におけるコゲントラボ対フレックスキャプチャーの完璧な合体」 - ABBYYブログ</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/abbyy-steigert-effizienz-von-munchens-bauakten-durch-digitalisierung/"><u>ABBYY Steigert Effizienz Von Münchens Bauakten Durch Digitalisierung</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/advanced-analytics-and-personalization-enabled-by-cookiebot-inspired-technology/"><u>Advanced Analytics and Personalization Enabled by Cookiebot-Inspired Technology</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/automated-traffic-management-with-the-advanced-capabilities-of-cookiebot/"><u>Automated Traffic Management with the Advanced Capabilities of Cookiebot</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/best-8k-tvs-detailed-comparison/"><u>Best 8K TVs [Detailed Comparison ]</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-migrate-android-data-from-motorola-edge-2023-to-new-android-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Migrate Android Data From Motorola Edge 2023 to New Android Phone? | Dr.fone</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/mastering-windows-update-recovery-and-optimization/"><u>Mastering Windows Update Recovery and Optimization</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/personalize-your-screen-time-with-these-top-6-creator-identifying-questions-for-2024/"><u>Personalize Your Screen Time with These Top 6 Creator-Identifying Questions for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/recordingratings-analyzer/"><u>RecordingRatings Analyzer</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-10-most-popular-youtube-channels-for-real-time-news/"><u>The 10 Most Popular YouTube Channels for Real-Time News</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-xbox-power-up-with-these-top-hard-drives-rankings-for-2024/"><u>[Updated] Xbox Power-Up with These Top Hard Drives Rankings for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-capturing-every-view-not-just-a-flat-slice-of-reality/"><u>2024 Approved Capturing Every View, Not Just a Flat Slice of Reality</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-superior-sd-card-compatible-with-a7s-ii/"><u>2024 Approved Superior SD Card Compatible with A7S II</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/conversione-gratuita-da-avi-a-flv-su-internet-scopri-come-usare-movavi-per-la-tua-conversione-senza-costi-aggiuntivi/"><u>Conversione Gratuita Da AVI a FLV Su Internet - Scopri Come Usare Movavi per La Tua Conversione Senza Costi Aggiuntivi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/effortless-transformation-from-mts-to-mp4-files-using-top-video-converters/"><u>Effortless Transformation From MTS to MP4 Files Using Top Video Converters</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/excelente-software-gratuito-de-captura-de-tela-movavi-compativel-com-pcs-e-notebooks-sem-estresse-ou-custo/"><u>Excelente Software Gratuito De Captura De Tela - MovaVi, Compatível Com PCs E Notebooks Sem Estresse Ou Custo</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/free-online-conversion-transforming-asf-files-into-mp3-format-with-movavi/"><u>Free Online Conversion: Transforming ASF Files Into MP3 Format with Movavi</u></a></li>
+<li><a href="https://win-dash.techidaily.com/get-the-newest-nvidia-rtx-3080-driver-for-your-pc-supports-windows-781011/"><u>Get the Newest NVIDIA RTX 3080 Driver for Your PC - Supports Windows 7/8/10/11</u></a></li>
+<li><a href="https://fox-that.techidaily.com/icloud-photostream-woes-here-are-7-effective-strategies-to-ensure-seamless-iphone-synchronization/"><u>ICloud Photostream Woes? Here Are 7 Effective Strategies to Ensure Seamless iPhone Synchronization</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-crafting-compelling-stories-for-online-video-platforms/"><u>In 2024, Crafting Compelling Stories for Online Video Platforms</u></a></li>
+<li><a href="https://techtrends.techidaily.com/the-ultimate-list-of-2024s-most-popular-news-curators/"><u>The Ultimate List of 2024'S Most Popular News Curators</u></a></li>
 </ul></div>
 

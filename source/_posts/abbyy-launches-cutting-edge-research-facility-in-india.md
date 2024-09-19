@@ -1,7 +1,7 @@
 ---
 title: ABBYY Launches Cutting-Edge Research Facility in India
-date: 2024-09-08T20:24:16.310Z
-updated: 2024-09-14T18:46:17.452Z
+date: 2024-09-13T16:55:46.817Z
+updated: 2024-09-18T21:23:19.228Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/614e0e5c423fbfce776b4242bea85cadda084bd0ef851e6cf9024dcc8525ee26.jpg
@@ -62,26 +62,28 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-guidance.techidaily.com/new-taking-flight-iphone-hdr-techniques-for-professional-results/"><u>[New] Taking Flight IPhone HDR Techniques for Professional Results</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-customizing-characters-the-ae-font-guide-for-2024/"><u>[Updated] Customizing Characters The AE Font Guide for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-embrace-the-season-ideal-winter-backgrounds-for-yt-for-2024/"><u>[Updated] Embrace the Season Ideal Winter Backgrounds for YT for 2024</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/abbyy-finereader-powers-preservation-safeguarding-over-4-million-pages-from-latvias-national-library-across-20-languages/"><u>ABBYY FineReader Powers Preservation: Safeguarding Over 4 Million Pages From Latvia's National Library Across 20 Languages</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/abbyy-secures-soc-2-type-2-accreditation-for-enhanced-data-security/"><u>ABBYY Secures SOC 2 Type 2 Accreditation for Enhanced Data Security</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/abbyysaprpa-abbyy/"><u>ABBYYを活用したSAPによる知能的RPAドキュメント管理システムへの統合 - ABBYY公式記事</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/adaptive-strategies-in-action-exploring-successful-process-innovations-through-case-studies/"><u>Adaptive Strategies in Action: Exploring Successful Process Innovations Through Case Studies</u></a></li>
-<li><a href="https://apple-account.techidaily.com/apple-id-is-greyed-out-on-apple-iphone-6s-how-to-bypass-by-drfone-ios/"><u>Apple ID is Greyed Out On Apple iPhone 6s How to Bypass?</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/automated-with-cookiebot-enhancing-user-experience-through-smart-marketing-tools/"><u>Automated with Cookiebot: Enhancing User Experience Through Smart Marketing Tools</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/complete-transformation-manchester-uni-healthcares-revolutionary-shift-to-full-automation-of-invoicing-and-minimizing-payment-hazards/"><u>Complete Transformation: Manchester Uni Healthcare's Revolutionary Shift to Full-Automation of Invoicing & Minimizing Payment Hazards</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-enabling-dynamic-hdr-in-windows-11-os/"><u>In 2024, Enabling Dynamic HDR in Windows 11 OS</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/master-your-gadgets-with-innovative-solutions-from-toms-hardware-experts/"><u>Master Your Gadgets with Innovative Solutions From Tom's Hardware Experts</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/tips-and-tricks-for-setting-up-your-vivo-v27-phone-pattern-lock-by-drfone-android/"><u>Tips and Tricks for Setting Up your Vivo V27 Phone Pattern Lock</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/what-is-chatgpt/"><u>What Is ChatGPT?</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-essential-guide-best-screencasting-apps-at-no-cost/"><u>[Updated] 2024 Approved Essential Guide Best Screencasting Apps at No Cost</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/6-ultimate-free-film-editor-applications-no-cost-options/"><u>6 Ultimate Free Film Editor Applications - No Cost Options</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/movavi-ogv-mov/"><u>免費線上服務：Movavi提供的 OGV 和 MOV 影片專家轉換器</u></a></li>
+<li><a href="https://win11.techidaily.com/1726027881327-youtube/"><u>効果的な方法でYoutube映像ダウンロード術</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/beginners-guide-the-15-leading-video-editing-programs-easy-to-use/"><u>Beginner's Guide: The 15 Leading Video Editing Programs Easy To Use</u></a></li>
+<li><a href="https://discover-hacks.techidaily.com/conversion-en-ligne-des-videos-ogm-vers-le-codec-wmv-gratuitement-avec-wondershare-uniconverter/"><u>Conversion en Ligne Des Vidéos OGM Vers Le Codec WMV Gratuitement Avec Wondershare UniConverter</u></a></li>
+<li><a href="https://techtrends.techidaily.com/discover-our-premier-choices-top-free-malware-cleaners/"><u>Discover Our Premier Choices: Top Free Malware Cleaners</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-airplane-mode-turn-off-gps-location-on-lava-blaze-pro-5g-drfone-by-drfone-virtual-android/"><u>Does Airplane Mode Turn off GPS Location On Lava Blaze Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/1721857706079-dont-delay-get-your-hands-on-advanced-open-source-conversational-ai-tools-skip-the-desktop-chatgpt-waitlist/"><u>Don't Delay, Get Your Hands on Advanced Open Source Conversational AI Tools - Skip the Desktop ChatGPT Waitlist</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/gratis-digitaal-converter-versterk-uw-soundfiles-van-wav-tot-flacaiff-via-movavi/"><u>Gratis Digitaal Converter: Versterk Uw Soundfiles Van WAV Tot FLAC/AIFF via Movavi</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-crafting-perfect-youtube-thumbnails-on-macos/"><u>In 2024, Crafting Perfect YouTube Thumbnails on macOS</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-check-distance-and-radius-on-google-maps-for-your-oppo-a2-drfone-by-drfone-virtual-android/"><u>In 2024, How to Check Distance and Radius on Google Maps For your Oppo A2 | Dr.fone</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1726227583001-movavi-video-editor/"><u>Movavi Video Editor: 高效下载与使用指南</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/top-18-editores-de-peliculas-sin-costo-para-windows-11-8-y-7-guia-completa/"><u>Top 18 Editores De Películas Sin Costo Para Windows 11, 8 Y 7: Guía Completa</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/transform-your-mp4-footage-into-high-quality-content-using-movavis-editing-tool/"><u>Transform Your MP4 Footage Into High-Quality Content Using Movavi's Editing Tool</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-tecno-spark-20-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Tecno Spark 20? | Dr.fone</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

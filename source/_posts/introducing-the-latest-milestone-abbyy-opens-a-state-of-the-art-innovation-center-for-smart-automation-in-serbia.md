@@ -1,7 +1,7 @@
 ---
 title: "Introducing the Latest Milestone: ABBYY Opens a State-of-the-Art Innovation Center for Smart Automation in Serbia"
-date: 2024-09-11T23:19:25.437Z
-updated: 2024-09-14T21:33:00.103Z
+date: 2024-09-16T20:45:02.434Z
+updated: 2024-09-19T02:01:01.617Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d615ac68260522d8e70b422dd5540cece714bbc625d61d049281d91eac42f958.jpg
@@ -71,28 +71,27 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/updated-2024-approved-in-depth-analysis-the-power-of-quantum-hdr/"><u>[Updated] 2024 Approved In-Depth Analysis The Power of Quantum HDR</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-navigating-the-world-of-lut-based-color-correction/"><u>[Updated] Navigating the World of LUT-Based Color Correction</u></a></li>
-<li><a href="https://blog-min.techidaily.com/6-ways-to-transfer-contacts-from-vivo-y100-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>6 Ways To Transfer Contacts From Vivo Y100 to iPhone | Dr.fone</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/complete-transformation-manchester-uni-healthcares-revolutionary-shift-to-full-automation-of-invoicing-and-minimizing-payment-hazards/"><u>Complete Transformation: Manchester Uni Healthcare's Revolutionary Shift to Full-Automation of Invoicing & Minimizing Payment Hazards</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-analytics-and-optimization-solutions/"><u>Cookiebot-Driven Analytics and Optimization Solutions</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-analytics-optimizing-your-websites-performance/"><u>Cookiebot-Driven Analytics: Optimizing Your Website's Performance</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-solutions-for-optimal-website-analytics-and-personalization/"><u>Cookiebot-Driven Solutions for Optimal Website Analytics and Personalization</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-personalization-enhancing-user-experience-and-engagement/"><u>Cookiebot-Enabled Personalization: Enhancing User Experience and Engagement</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-site-optimization-boosting-your-seo-success/"><u>Cookiebot-Enabled Site Optimization: Boosting Your SEO Success</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-enhancing-your-websites-data-collection/"><u>Cookiebot-Enabled: Enhancing Your Website's Data Collection</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-samsung-galaxy-f14-5g-pin-codepattern-lockpassword-by-drfone-android/"><u>How to Unlock Samsung Galaxy F14 5G PIN Code/Pattern Lock/Password</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-crafting-compelling-podcast-intros-tips-and-samples/"><u>In 2024, Crafting Compelling Podcast Intros Tips & Samples</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-reset-a-locked-vivo-x100-pro-phone-by-drfone-android/"><u>In 2024, How to Reset a Locked Vivo X100 Pro Phone</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-unleashing-comedy-in-the-virtual-realm-making-hits-with-metaverse-memes/"><u>In 2024, Unleashing Comedy in the Virtual Realm - Making Hits with Metaverse Memes</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/inspire-ischia-italians-mastering-over-20-local-expressions/"><u>Inspire Ischia Italians: Mastering Over 20 Local Expressions</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/secure-data-wipeout-using-stellar-file-eraser-standard-edition-and-automated-timing-for-windows-systems/"><u>Secure Data Wipeout Using Stellar File Eraser Standard Edition & Automated Timing for Windows Systems</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-crafting-visual-brilliance-mastering-luts-in-ae/"><u>[New] Crafting Visual Brilliance Mastering LUTs in AE</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-ultimate-list-top-10-subtitle-editors-web/"><u>[Updated] Ultimate List Top 10 Subtitle Editors Web</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1726227954884-mpemp4-movavi/"><u>在線無成本地改編MPE影片成MP4格式 - Movavi導航指南</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/appreciation-and-thanks-for-joining-forces-with-us/"><u>Appreciation and Thanks for Joining Forces with Us</u></a></li>
+<li><a href="https://extra-information.techidaily.com/gamification-unleashed-djis-air-vs-spark-duel-revealed/"><u>Gamification Unleashed DJI's Air Vs. Spark Duel Revealed</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/get-your-free-professional-image-editor-now-premium-tools-at-zero-price/"><u>Get Your Free Professional Image Editor Now: Premium Tools at Zero Price</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/guide-to-reducing-mp4-file-size-using-movavi-on-pc-and-mac-platforms/"><u>Guide to Reducing MP4 File Size Using Movavi on PC & Mac Platforms</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-meizu-21-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Meizu 21 Pro | Dr.fone</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/in-2024-the-cartoon-conversion-blueprint-tips-and-tricks/"><u>In 2024, The Cartoon Conversion Blueprint Tips and Tricks</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/is-battery-exchange-merited-for-apple-devices/"><u>Is Battery Exchange Merited for Apple Devices?</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/oamenii-favorite-lista-decem-legii-de-serii-tv-mai-uimitoare-pe-movaviro/"><u>Oamenii Favorite - Lista Decem Legii De Serii TV Mai Uimitoare Pe Movavi.ro</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/parroting-the-pirates-speech-patterns/"><u>Parroting the Pirate's Speech Patterns</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/transforma-tu-video-en-un-gif-gratuito-guia-paso-a-paso-para-crear-archivos-animados-online/"><u>Transforma Tu Vídeo en Un GIF Gratuito: Guía Paso a Paso Para Crear Archivos Animados Online</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/understanding-vector-databases-enhancing-ai-performance/"><u>Understanding Vector Databases: Enhancing AI Performance</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/where-is-the-best-place-to-catch-dratini-on-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>Where Is the Best Place to Catch Dratini On Apple iPhone 6s | Dr.fone</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115944/19272" target="_top" id="2115944">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115944" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115944/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

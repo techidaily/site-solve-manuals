@@ -1,7 +1,7 @@
 ---
 title: ABBYY Welcomes Tomohito Shimizu as New Head of Its Japan Operations
-date: 2024-09-07T23:18:25.174Z
-updated: 2024-09-14T23:31:27.316Z
+date: 2024-09-17T22:54:53.083Z
+updated: 2024-09-18T21:48:02.068Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c8e68cffef41fc4061ac722c7019bbd23a7bd74185b074d0cf9fcbe34770c5fd.jpg
@@ -70,26 +70,25 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-essential-top-5-xbox-hdds-for-gamers/"><u>[New] Essential Top 5 Xbox HDDs for Gamers</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-transform-your-youtube-sign-up-rate-learn-anime-subscribe-buttons-in-filmora/"><u>[New] In 2024, Transform Your YouTube Sign-Up Rate - Learn Anime Subscribe Buttons in Filmora</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-unveiling-sj-cam-s6-a-comprehensive-assessment/"><u>[New] Unveiling SJ-CAM S6 A Comprehensive Assessment</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-top-5-captivating-visual-journeys-on-fb/"><u>[Updated] 2024 Approved Top 5 Captivating Visual Journeys on FB</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-masterclass-analyzing-the-updated-lg-bp550-for-2024/"><u>[Updated] Masterclass Analyzing the Updated LG BP550 for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-insta-pros-guide-accelerate-your-path-to-social-media-stardom/"><u>2024 Approved Insta Pro's Guide Accelerate Your Path to Social Media Stardom</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/boost-conversion-rates-discover-the-advanced-capabilities-of-cookiebot-analytics/"><u>Boost Conversion Rates: Discover the Advanced Capabilities of Cookiebot Analytics</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/boost-your-sites-analytics-using-our-advanced-cookiebot-technology/"><u>Boost Your Site's Analytics Using Our Advanced Cookiebot Technology</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/boosting-metro-ags-wholesale-transactions-abbyy-speeds-up-customer-payments-by-90/"><u>Boosting Metro AG's Wholesale Transactions: ABBYY Speeds Up Customer Payments by 90%</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/brian-unruh-takes-on-role-of-cfo-at-abbyy-steering-financial-strategy-forward/"><u>Brian Unruh Takes on Role of CFO at ABBYY, Steering Financial Strategy Forward</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-automation-enhancing-user-experience-and-data-collection/"><u>Cookiebot-Driven Automation: Enhancing User Experience & Data Collection</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/embracing-digital-friendship-how-chatgpt-can-alleviate-feelings-of-solitude/"><u>Embracing Digital Friendship: How ChatGPT Can Alleviate Feelings of Solitude</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-identifying-key-windows-movie-maker-alternatives/"><u>In 2024, Identifying Key Windows Movie Maker Alternatives</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/the-efficacy-of-social-media-authenticity-validation/"><u>The Efficacy of Social Media Authenticity Validation</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-streamlabs-versus-obs-the-ultimate-showdown/"><u>[Updated] In 2024, Streamlabs Versus OBS The Ultimate Showdown</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/5-ways-to-record-league-of-legends-lol-games-for-2024/"><u>5 Ways to Record League of Legends (LOL) Games for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/best-anti-tracker-software-for-xiaomi-redmi-note-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>Best Anti Tracker Software For Xiaomi Redmi Note 12 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/best-text-title-effect-types-in-after-effects/"><u>Best Text Title Effect Types in After Effects</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/conversion-bmp-a-tiff-gratuite-sur-ligne-utilisez-movavi/"><u>Conversion BMP À TIFF Gratuite Sur Ligne - Utilisez Movavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/crear-gifs-sin-costo-desde-archivos-ogv-online-con-movavi/"><u>Crear GIFs Sin Costo Desde Archivos OGV Online Con Movavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/free-conversion-change-your-files-from-aiff-to-wma-using-an-online-tool/"><u>Free Conversion: Change Your Files From AIFF to WMA Using an Online Tool</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/grabacion-de-audio-gratuita-para-windows-y-macos/"><u>Grabación De Audio Gratuita Para Windows Y macOS</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-messages-on-oppo-find-x7-by-fonelab-android-recover-messages/"><u>How to restore wiped messages on Oppo Find X7</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/os-9-melhores-concorrentes-gratuitos-online-ideais-para-fazer-videos-perfeitos-no-youtube/"><u>Os 9 Melhores Concorrentes Gratuitos Online Ideais Para Fazer Vídeos Perfeitos No YouTube</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/smart-automation-and-secure-document-handling-solutions-for-us-federal-agencies/"><u>Smart Automation & Secure Document Handling Solutions for U.S. Federal Agencies</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/transformez-gratuitement-un-fichier-pbm-en-format-png-avec-movavi-convertissez-facilement-et-sans-frais/"><u>Transformez Gratuitement Un Fichier PBM en Format PNG Avec Movavi - Convertissez Facilement Et Sans Frais !</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/understanding-cbr-and-vbr-key-differences-and-how-to-choose-the-right-bitrate/"><u>Understanding CBR and VBR: Key Differences & How to Choose the Right Bitrate</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

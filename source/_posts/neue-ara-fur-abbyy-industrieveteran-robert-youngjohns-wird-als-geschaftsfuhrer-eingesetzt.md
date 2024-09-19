@@ -1,7 +1,7 @@
 ---
 title: "Neue Ära Für ABBYY: Industrieveteran Robert Youngjohns Wird Als Geschäftsführer Eingesetzt"
-date: 2024-09-07T17:43:23.353Z
-updated: 2024-09-14T17:49:26.152Z
+date: 2024-09-12T16:49:24.692Z
+updated: 2024-09-18T22:29:53.619Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5f8ab25178398b0800b6345046953e2b2e89a6d9e6a8838419dd9465e3b6b177.jpg
@@ -60,28 +60,27 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-clips.techidaily.com/new-watching-wonders-amazon-primes-top-series-on-twitter/"><u>[New] Watching Wonders Amazon Prime's Top Series on Twitter</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/1-david-yang-visionary-behind-abbyy-leading-with-strategic-insight-as-board-chairman/"><u>1. David Yang: Visionary Behind ABBYY, Leading with Strategic Insight as Board Chairman</u></a></li>
-<li><a href="https://location-fake.techidaily.com/5-hassle-free-solutions-to-fake-location-on-find-my-friends-of-vivo-y100a-drfone-by-drfone-virtual-android/"><u>5 Hassle-Free Solutions to Fake Location on Find My Friends Of Vivo Y100A | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/android-unlock-code-sim-unlock-your-oppo-reno-11-pro-5g-phone-and-remove-locked-screen-by-drfone-android/"><u>Android Unlock Code Sim Unlock Your Oppo Reno 11 Pro 5G Phone and Remove Locked Screen</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-undelete-lost-messages-from-samsung-galaxy-z-flip-5-by-fonelab-android-recover-messages/"><u>Best Android Data Recovery - Undelete Lost Messages from Samsung Galaxy Z Flip 5</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/in-2024-step-into-the-world-of-high-quality-lenovo-screen-recordings/"><u>In 2024, Step Into the World of High-Quality Lenovo Screen Recordings</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-the-ultimate-guide-to-unlocking-your-iphone-15-on-metropcs-by-drfone-ios/"><u>In 2024, The Ultimate Guide to Unlocking Your iPhone 15 on MetroPCS</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/optimizing-your-legal-paperwork-5-key-tips-using-abbyy-tech/"><u>Optimizing Your Legal Paperwork: 5 Key Tips Using ABBYY Tech</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/seamless-pdf-conversion-and-text-extraction-using-abbyys-powerful-ocr-software-development-kit/"><u>Seamless PDF Conversion & Text Extraction Using ABBYY's Powerful OCR Software Development Kit</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/secrets-to-flawless-webp-to-jpg-image-conversion-for-2024/"><u>Secrets to Flawless WebP-to-JPG Image Conversion for 2024</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/techtarget-predicts-soaring-rise-workforce-of-software-robots-to-surge-by-half-in-coming-years/"><u>TechTarget Predicts Soaring Rise: Workforce of Software Robots to Surge by Half in Coming Years</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-7-phone-number-locators-to-track-nubia-z50-ultra-location-drfone-by-drfone-virtual-android/"><u>Top 7 Phone Number Locators To Track Nubia Z50 Ultra Location | Dr.fone</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/iers-of-technology-youtube-gamers-showcase-for-2024/"><u>Top Tiers of Technology YouTube Gamer's Showcase for 2024</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/top-ranked-transpo-cost-control-firm-accelerates-bill-approvals-via-intelligent-data-systems/"><u>Top-Ranked Transpo Cost Control Firm Accelerates Bill Approvals via Intelligent Data Systems</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/unlocking-advanced-features-with-cookiebot-technology-integration/"><u>Unlocking Advanced Features with Cookiebot Technology Integration</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/zeitreisen-durch-digitalisierung-abbyy-verbindet-universitatsbibliothek-frankfurt-mit-der-vergangenheit/"><u>Zeitreisen Durch Digitalisierung – ABBYY Verbindet Universitätsbibliothek Frankfurt Mit Der Vergangenheit</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-rhythm-and-film-imovie-for-music-videos/"><u>[New] Rhythm & Film IMovie for Music Videos</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-techniques-for-high-quality-in-game-recordings-for-2024/"><u>[Updated] Techniques for High-Quality In-Game Recordings for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-unlocking-secrets-of-iphone-x-resolving-face-recognition-issues/"><u>[Updated] Unlocking Secrets of iPhone X Resolving Face Recognition Issues</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/mp3-3gpp-movavi/"><u>簡便高效：以 Mp3 形式解決方案，自動將 3GPP 轉換 - Movavi 無償版</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/conversion-gratuite-de-fichiers-jp2-a-ligne-movavi/"><u>Conversion Gratuite De Fichiers JP2 À Ligne - Movavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/conversione-video-mp4-a-formato-m4a-gratuiti-su-internet-con-movavi/"><u>Conversione Video MP4 a Formato M4A Gratuiti Su Internet Con Movavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/download-and-convert-audiovideo-files-from-wav-to-wmv-online-at-no-cost-movavi-converter/"><u>Download and Convert Audio/Video Files From WAV to WMV Online at No Cost - Movavi Converter</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/effortless-access-to-videos-find-your-perfect-chromium-extension-for-fb-vids/"><u>Effortless Access to Videos Find Your Perfect Chromium Extension for FB Vids</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/gratuit-konverteren-van-mp3-naar-aac-onlinereptiel-met-movavi/"><u>Gratuit Konverteren Van MP3 Naar AAC - Onlinereptiel Met Movavi</u></a></li>
+<li><a href="https://techtrends.techidaily.com/infusing-accessibility-how-to-enable-transcript-features-for-ig-stories/"><u>Infusing Accessibility: How to Enable Transcript Features for IG Stories</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/tecno-xs-geekom-mega-mini-g1-a-unique-aquarium-style-pc-powered-by-intel-i9-and-nvidia-rtx-graphics/"><u>Tecno X's GeekOm Mega Mini G1: A Unique Aquarium Style PC Powered by Intel I9 and Nvidia RTX Graphics</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/transfert-gratuit-3gp-vers-lignes-numeriques-solution-movavi/"><u>Transfert Gratuit 3GP Vers Lignes Numériques - Solution Movavi</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/understanding-ai-and-its-impact-on-prompt-development-and-job-stability/"><u>Understanding AI and Its Impact on Prompt Development & Job Stability</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/workplace-transformation-by-ai-innovations/"><u>Workplace Transformation by AI Innovations</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/waveaac-movavi/"><u>オンラインで自由に利用可能なWAVEファイルからAACへの変換 - Movavi</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

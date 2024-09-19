@@ -1,7 +1,7 @@
 ---
 title: "New Features and Renaming: From ABBYY Recognition Server to ABBYY FineReader Server"
-date: 2024-09-12T17:54:09.967Z
-updated: 2024-09-14T18:09:30.656Z
+date: 2024-09-13T00:47:59.385Z
+updated: 2024-09-18T20:05:34.805Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/74ac13432c01dd5c17161c9b4a52f81e0b445cdf2ff78bc2a59c4da0244a5a39.jpg
@@ -83,25 +83,27 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-gradient-goes-night-premieres-trick/"><u>[New] Gradient Goes Night Premiere's Trick</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-growth-catalysts-increasing-audience-engagement-on-youtube-for-2024/"><u>[New] Growth Catalysts Increasing Audience Engagement on YouTube for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-a-comprehensive-guide-to-mac-screenshot-conversion/"><u>[Updated] 2024 Approved A Comprehensive Guide to Mac Screenshot Conversion</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-explore-the-globe-top-10-travelers-youtube-guide-for-2024/"><u>[Updated] Explore the Globe Top 10 Traveler's YouTube Guide for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-unlocked-mac-capture-tool-no-cost-for-2024/"><u>[Updated] Unlocked Mac Capture Tool - No Cost for 2024</u></a></li>
-<li><a href="https://network-issues.techidaily.com/best-in-class-untethered-phone-options-available-in-202e/"><u>Best-in-Class Untethered Phone Options Available in 202E</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/complete-transformation-manchester-uni-healthcares-revolutionary-shift-to-full-automation-of-invoicing-and-minimizing-payment-hazards/"><u>Complete Transformation: Manchester Uni Healthcare's Revolutionary Shift to Full-Automation of Invoicing & Minimizing Payment Hazards</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-analytics-and-optimization-solutions/"><u>Cookiebot-Driven Analytics and Optimization Solutions</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-analytics-optimizing-your-websites-performance/"><u>Cookiebot-Driven Analytics: Optimizing Your Website's Performance</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-solutions-for-optimal-website-analytics-and-personalization/"><u>Cookiebot-Driven Solutions for Optimal Website Analytics and Personalization</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/crafting-team-videos-to-foster-viewership-and-following/"><u>Crafting Team Videos to Foster Viewership and Following</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-building-your-brand-creating-a-professional-podcast-feed/"><u>In 2024, Building Your Brand Creating a Professional Podcast Feed</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/quick-and-simple-guide-to-downloading-targus-docking-station-drivers-for-free/"><u>Quick and Simple Guide to Downloading Targus Docking Station Drivers for Free</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-ace-10-drones-for-photography-and-cinematic-prowess/"><u>[Updated] Ace 10 Drones for Photography & Cinematic Prowess</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-elite-fighters-unleashed-selecting-superior-street-fighter-clones/"><u>[Updated] In 2024, Elite Fighters Unleashed Selecting Superior Street Fighter Clones</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/wav-to-m4b-movavi/"><u>安心で簡単な無料オンラインWAV to M4Bコンバーター – Movavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cambia-archivos-de-sonido-ogg-a-formato-m4a-sin-coste-con-herramientas-en-linea-ejemplos-y-guias/"><u>Cambia Archivos De Sonido OGG a Formato M4A Sin Coste Con Herramientas en Línea - Ejemplos Y Guías</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-honor-magic5-ultimate-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on Honor Magic5 Ultimate online without jailbreak</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-premium-dj-visuals-library-seamless-download-experience/"><u>In 2024, Premium DJ Visuals Library - Seamless Download Experience</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/movavi-gravar-mp3-e-ogg-offline-gratuito-facil-de-usar-e-rapido/"><u>Movavi: Gravar MP3 E OGG Offline Gratuito - Fácil De Usar E Rápido</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/optimal-performance-drives-top-10-srt-enhancements-for-pc-and-mac-for-2024/"><u>Optimal Performance Drives Top 10 SRT Enhancements for PC and Mac for 2024</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/passos-simples-para-fazer-um-montagem-de-imagens-no-seu-iphone-as-opcoes-mais-eficientes/"><u>Passos Simples Para Fazer Um Montagem De Imagens No Seu iPhone – As Opções Mais Eficientes</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/riproduzione-gratuita-di-video-3g2-in-formato-mpeg-con-movavi-converter/"><u>Riproduzione Gratuita Di Video 3G2 in Formato MPEG Con Movavi Converter</u></a></li>
+<li><a href="https://location-social.techidaily.com/simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-motorola-edgeplus-2023-drfone-by-drfone-virtual-android/"><u>Simple and Effective Ways to Change Your Country on YouTube App Of your Motorola Edge+ (2023) | Dr.fone</u></a></li>
+<li><a href="https://driver-install.techidaily.com/speed-up-your-system-secure-scsi-drivers-direct-download/"><u>Speed Up Your System: Secure SCSI Drivers Direct Download</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/top-5-techniques-for-layering-images-perfectly/"><u>Top 5 Techniques for Layering Images Perfectly</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-the-power-of-facebook-tags-master-3-innovative-techniques/"><u>Unlocking the Power of Facebook Tags – Master 3 Innovative Techniques</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/pcxjpeg-movavi/"><u>オンラインで手軽な無料変換: PCX画像をJPEGへ - Movaviの使い方</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123474/16836" target="_top" id="2123474">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123474" border="0" alt="https://techidaily.com" width="300" height="50"/>
+<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
+  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123474/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

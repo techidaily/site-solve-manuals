@@ -1,7 +1,7 @@
 ---
 title: Enhance Your Digital Experience with Memoji Animation in FaceTime, Advanced Research Scanners, and Effective Dog Training Tips – Discover What's New on ABBYY Blog
-date: 2024-09-10T19:10:59.670Z
-updated: 2024-09-14T23:19:34.061Z
+date: 2024-09-17T16:06:15.618Z
+updated: 2024-09-19T01:23:47.818Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8f59b16f9ed7024a23cc6f18f766904b6f418e4c5b8df6a84d93cf668a943550.jpg
@@ -70,28 +70,28 @@ For a detailed step-by-step description of the data capture stage of the project
 Naturally, you can take your puppy to a dog school, but lots of dog owners choose to train their four-legged pets themselves. [Dogo](https://dogo.pro/) is a mobile app intended to help you with training your dog. The app creates a daily training programme adapted specifically to your pet’s progress, providing you with lots of tips and advice on how to teach your puppy to respond to its name, to offer you its paw, to sit, to roll over, and do lots of other tricks. The app offers detailed step-by-step instructions for teaching your dog each new trick or command. ![train dogs](https://static1.abbyy.com/abbyycommedia/26706/dogo-en.png) ![excirsises for dogs on a smartphone](https://static1.abbyy.com/abbyycommedia/26707/dogo-en2.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 You can then film your dog doing a new trick and submit the video via the app to get additional advice from dog training professionals.
 
 ![good dog](https://static1.abbyy.com/abbyycommedia/26708/dogo-en3.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118313/7443" target="_top" id="2118313">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118313" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118313/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 The app is available on [iOS](https://itunes.apple.com/ru/app/id1153294767) and [Android](https://play.google.com/store/apps/details?id=app.dogo.com.dogo%5Fandroid). That’s all from us for today. See you next Monday!
 
 P.S. You can find the previous issue of this newsletter here.
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -157,16 +157,21 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-the-power-of-perception-iconic-podcast-design-tips/"><u>[Updated] 2024 Approved The Power of Perception Iconic Podcast Design Tips</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-from-raw-renders-to-rich-realities-grading-in-post-production/"><u>2024 Approved From Raw Renders to Rich Realities Grading in Post-Production</u></a></li>
-<li><a href="https://howto.techidaily.com/9-quick-fixes-to-unfortunately-touchwiz-has-stopped-of-xiaomi-redmi-note-13-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Quick Fixes to Unfortunately TouchWiz has stopped Of Xiaomi Redmi Note 13 5G | Dr.fone</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/automation-insights-robotics-employment-and-advanced-text-analysis-on-the-abbeyb-log/"><u>Automation Insights - Robotics, Employment & Advanced Text Analysis on the ABBEYB Log</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/best-anti-tracker-software-for-vivo-y27-5g-drfone-by-drfone-virtual-android/"><u>Best Anti Tracker Software For Vivo Y27 5G | Dr.fone</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/boosting-site-engagement-with-advanced-cookiebot-tracking-solutions/"><u>Boosting Site Engagement with Advanced Cookiebot Tracking Solutions</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/comparing-rpa-and-ipa-understanding-their-distinctive-features/"><u>Comparing RPA and IPA: Understanding Their Distinctive Features</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-solutions-enhancing-digital-experiences/"><u>Cookiebot-Driven Solutions: Enhancing Digital Experiences</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/navigating-and-correcting-content-restrictions-in-chatgpt/"><u>Navigating and Correcting Content Restrictions in ChatGPT</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/oppo-reno-10-proplus-5g-not-connecting-to-wi-fi-12-quick-ways-to-fix-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Oppo Reno 10 Pro+ 5G Not Connecting to Wi-Fi? 12 Quick Ways to Fix | Dr.fone</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/the-ultimate-guide-to-indoor-android-games-no-internet-required-for-2024/"><u>The Ultimate Guide to Indoor Android Games (No Internet Required) for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-how-to-effortlessly-share-vimeo-video-on-instagram/"><u>[New] How to Effortlessly Share Vimeo Video on Instagram</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-the-ultimate-screen-recorders-handbook-by-zd-soft-professionals/"><u>[New] In 2024, The Ultimate Screen Recorder’s Handbook by ZD Soft Professionals</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-streamers-in-a-dilemma-obs-or-twitch-space-in-2024/"><u>[New] Streamers in a Dilemma OBS or Twitch Space, In 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-from-novice-to-pro-an-extensive-guide-on-using-zd-softs-recording-features/"><u>[Updated] From Novice to Pro An Extensive Guide on Using ZD Soft’s Recording Features</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-a-filmmakers-essential-guide-to-free-royalty-free-audiosites/"><u>[Updated] In 2024, A Filmmaker's Essential Guide to Free Royalty-Free Audiosites</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/mp3-3gpp-movavi/"><u>簡便高效：以 Mp3 形式解決方案，自動將 3GPP 轉換 - Movavi 無償版</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/conversion-gratuite-de-fichiers-jp2-a-ligne-movavi/"><u>Conversion Gratuite De Fichiers JP2 À Ligne - Movavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/conversione-video-mp4-a-formato-m4a-gratuiti-su-internet-con-movavi/"><u>Conversione Video MP4 a Formato M4A Gratuiti Su Internet Con Movavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/download-and-convert-audiovideo-files-from-wav-to-wmv-online-at-no-cost-movavi-converter/"><u>Download and Convert Audio/Video Files From WAV to WMV Online at No Cost - Movavi Converter</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/free-conversion-change-flv-files-into-swf-format-with-moveavey-do-it-online/"><u>Free Conversion: Change FLV Files Into SWF Format with Moveavey - Do It Online</u></a></li>
+<li><a href="https://fake-location.techidaily.com/looking-for-a-location-changer-on-vivo-y78t-look-no-further-drfone-by-drfone-virtual-android/"><u>Looking For A Location Changer On Vivo Y78t? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/metaverse-vs-multimeva-unveiling-their-comparative-features-for-2024/"><u>Metaverse Vs. Multimeva Unveiling Their Comparative Features for 2024</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/transfert-gratuit-3gp-vers-lignes-numeriques-solution-movavi/"><u>Transfert Gratuit 3GP Vers Lignes Numériques - Solution Movavi</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/unleash-your-creativity-advanced-video-editing-techniques-and-effects-for-2024/"><u>Unleash Your Creativity Advanced Video Editing Techniques and Effects for 2024</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-achieving-smooth-transitions-utilizing-audio-ducking-for-elegant-music-fades-in-powerdirector/"><u>Updated Achieving Smooth Transitions Utilizing Audio Ducking for Elegant Music Fades in PowerDirector</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/zakonove-pripravene-pruvodectvi-jak-snadno-pokusit-sebe-oblasti-obrazovky-s-obs-movavi/"><u>Zákonové Přípravené Průvodectví Jak Snadno Pokusit Sebe Oblasti Obrazovky S OBS - Movavi</u></a></li>
 </ul></div>
 

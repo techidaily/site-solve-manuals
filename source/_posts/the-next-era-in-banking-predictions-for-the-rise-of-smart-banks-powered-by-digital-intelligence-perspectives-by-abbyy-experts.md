@@ -1,7 +1,7 @@
 ---
 title: "The Next Era in Banking: Predictions for the Rise of Smart Banks Powered by Digital Intelligence - Perspectives by ABBYY Experts"
-date: 2024-09-07T20:44:14.205Z
-updated: 2024-09-14T23:52:04.464Z
+date: 2024-09-13T20:10:20.975Z
+updated: 2024-09-18T22:26:29.418Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f93eb5bd46514b847ac07d099dc18d72eab724476fd27a01a5370f94ffa41df8.jpg
@@ -29,26 +29,32 @@ Founder & CEO, **Compte Nickel**
 
 ![04 Lindaameur 198X198](https://static4.abbyy.com/abbyycommedia/25106/04-lindaameur-198x198.png)
 
+<!-- affiliate ads begin -->
+<span id="1328683">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Linda Ameur
 
 Directrice Commerciale France, **ABBYY**
 
 ![07 Oliviervasseur 198X198](https://static4.abbyy.com/abbyycommedia/25121/logo-2021-90x27.svg) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115933/19272" target="_top" id="2115933">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115933" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115933/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![07 Oliviervasseur 198X198](https://static4.abbyy.com/abbyycommedia/25112/07-oliviervasseur-198x198.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Olivier Vasseur
@@ -65,23 +71,16 @@ Lors de la session Q&A qui clôture cet enregistrement, vous obtiendrez des rép
 
 ### Regardez maintenant
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Get in touch with us
 
 Please note that progressive profiling is used on this form to incrementally collect profile data over time.   
 All personal information collected via this method is under full scope of all provisions in our privacy policy.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Merci et bon webinaire !
@@ -89,6 +88,19 @@ All personal information collected via this method is under full scope of all pr
 [![06 DI Quelleseralabanquededemain](https://static3.abbyy.com/abbyycommedia/28717/06-di-quelleseralabanquededemain.jpg)](https://www.youtube.com/watch?v=hi2ZsxqJKC0) 
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
+
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Vous avez des questions ? [Contactez ABBYY](https://tools.techidaily.com/abbyy/products/)
 
@@ -155,14 +167,17 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-bespoke-urls-for-youtube-channels-an-easy-way/"><u>[New] Bespoke URLs for YouTube Channels An Easy Way</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-leading-tools-top-6-fb-lite-video-extractors/"><u>[Updated] In 2024, Leading Tools TOP 6 FB Lite Video Extractors</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/abbyys-q3-2018-insights-reveal-surge-in-demand-for-advanced-document-analysis/"><u>ABBYY's Q3 2018 Insights Reveal Surge in Demand for Advanced Document Analysis</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/adaptability/"><u>Adaptability</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/advanced-personalization-through-cookiebot-integration-transform-your-site/"><u>Advanced Personalization Through Cookiebot Integration – Transform Your Site!</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/analyse-der-digitalen-transformation-von-unternehmensprozessen-durch-abbyy-und-fraunhofer/"><u>Analyse Der Digitalen Transformation Von Unternehmensprozessen Durch ABBYY Und Fraunhofer</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/mastering-soft-image-effects-in-iphone-photography-4-tips-for-2024/"><u>Mastering Soft Image Effects in iPhone Photography (4 Tips!) For 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/-script-synthesizer-for-2024/"><u>Media Script Synthesizer for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/what-is-fake-gps-location-pro-and-is-it-good-on-motorola-moto-e13-drfone-by-drfone-virtual-android/"><u>What is Fake GPS Location Pro and Is It Good On Motorola Moto E13? | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-proactive-measures-to-save-and-secure-your-classroom-talks-on-macos/"><u>[New] Proactive Measures to Save and Secure Your Classroom Talks on MacOS</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-the-ultimate-companion-for-srt-to-xml-ssa-ttml-file-transformation/"><u>2024 Approved The Ultimate Companion for SRT-to-XML, SSA, TTML File Transformation</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/descubre-el-secreto-de-uniformizar-ediciones-en-adobe-after-effects-una-guia-completa/"><u>Descubre El Secreto De Uniformizar Ediciones en Adobe After Effects: Una Guía Completa</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/how-does-dvd-copyright-security-work-comprehensive-guide-to-safely-removing-dvd-encryption/"><u>How Does DVD Copyright Security Work? Comprehensive Guide to Safely Removing DVD Encryption</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-bypass-android-lock-screen-using-emergency-call-on-infinix-note-30-pro-by-drfone-android/"><u>How to Bypass Android Lock Screen Using Emergency Call On Infinix Note 30 Pro?</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-masterclass-leveraging-retro-vhs-flares-and-shadows/"><u>In 2024, Masterclass Leveraging Retro VHS Flares & Shadows</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/the-best-27-text-to-speech-applications-of-2024-reviewed-by-movavi/"><u>The Best 27 Text-to-Speech Applications of 2024 Reviewed by Movavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/top-14-archivos-online-de-descarga-gratuita-y-premium-para-diseno-web-2022/"><u>Top 14 Archivos Online De Descarga Gratuita Y Premium Para Diseño Web – 2022</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/transfer-data-seamlessly-from-ios-to-windows-11-explore-the-top-7-mirroring-solutions-tips-from-movavi/"><u>Transfer Data Seamlessly From iOS to Windows 11: Explore the Top 7 Mirroring Solutions - Tips From Movavi</u></a></li>
+<li><a href="https://techtrends.techidaily.com/ultimate-guide-sending-texts-from-your-ipad/"><u>Ultimate Guide: Sending Texts From Your iPad</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-the-best-batch-mp3-conversion-services-with-text-output-compatible-with-smoothvideopro-for-2024/"><u>Updated The Best Batch MP3 Conversion Services with Text Output – Compatible with SmoothVideoPro for 2024</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/online-wma-to-flac-movavi/"><u>우아하고 응답성 있는 Online WMA to FLAC 전환 서비스 – Movavi가 제공합니다</u></a></li>
 </ul></div>
 

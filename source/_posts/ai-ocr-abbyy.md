@@ -1,7 +1,7 @@
 ---
 title: "「テガキを駆使したAI OCR: 手書き文字認識におけるコゲントラボ対フレックスキャプチャーの完璧な合体」 - ABBYYブログ"
-date: 2024-09-09T17:38:32.062Z
-updated: 2024-09-14T20:02:20.628Z
+date: 2024-09-12T00:12:28.315Z
+updated: 2024-09-19T02:56:11.920Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/80155af88523c332c941fe671488cc80343c6425da9b3fc724c8ee058b2d4ab5.jpg
@@ -109,33 +109,26 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-professional-posting-hacks-for-instagram-tv/"><u>[New] Professional Posting Hacks for Instagram TV</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/2024-approved-unlock-the-full-potential-of-pixiz-in-video-making/"><u>2024 Approved Unlock the Full Potential of Pixiz in Video Making</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-technology-fuels-advanced-web-personalization/"><u>Cookiebot Technology Fuels Advanced Web Personalization</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-user-tracking-and-conversion-optimization/"><u>Cookiebot-Enabled User Tracking and Conversion Optimization</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-enhanced-enhance-your-websites-user-experience-with-personalized-content/"><u>Cookiebot-Enhanced: Enhance Your Website's User Experience with Personalized Content</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-enhanced-optimized-site-performance/"><u>Cookiebot-Enhanced: Optimized Site Performance</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-revolutionizing-personalization-and-analytics-in-digital-marketing/"><u>Cookiebot: Revolutionizing Personalization and Analytics in Digital Marketing</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-your-reliable-partner-for-personalized-marketing-automation/"><u>Cookiebot: Your Reliable Partner for Personalized Marketing Automation</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/how-safe-is-our-money-if-cybercriminals-get-access-to-advanced-ais-like-chatgpt-for-banking-breaches/"><u>How Safe Is Our Money if Cybercriminals Get Access to Advanced AIs Like ChatGPT for Banking Breaches?</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirror-on-apple-iphone-15-plus-drfone-by-drfone-ios/"><u>How to Screen Mirror on Apple iPhone 15 Plus? | Dr.fone</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-brief-basslines-video-music-mosaics/"><u>In 2024, Brief Basslines Video Music Mosaics</u></a></li>
-<li><a href="https://program-issues.techidaily.com/resolved-performance-issues-in-resident-evil-village-optimizing-pc-gameplay/"><u>Resolved: Performance Issues in Resident Evil Village - Optimizing PC Gameplay</u></a></li>
-<li><a href="https://windows11.techidaily.com/revolutionary-approaches-to-obtaining-windows-10-keys/"><u>Revolutionary Approaches to Obtaining Windows 10 Keys</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/surprises-galore-diving-into-the-remarkable-journey-of-yokus-island-express/"><u>Surprises Galore: Diving Into the Remarkable Journey of Yoku's Island Express</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/turning-views-into-cash-secrets-to-successful-facebook-video-money-making-for-2024/"><u>Turning Views Into Cash Secrets to Successful Facebook Video Money-Making for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-high-seas-of-soundtracking-leading-destinations-for-hearing-heroes-tts-downloads/"><u>[New] High Seas of Soundtracking Leading Destinations for Hearing Heroes' TTS Downloads</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-essential-strategies-for-selecting-amazing-pexels-images/"><u>[Updated] Essential Strategies for Selecting Amazing Pexels Images</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-dji-mavic-pro-pioneering-the-aerial-photography-frontier/"><u>2024 Approved DJI Mavic Pro Pioneering the Aerial Photography Frontier</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/effective-strategies-for-recording-conferences-using-zoom-skype-and-similar-platforms/"><u>Effective Strategies for Recording Conferences Using Zoom, Skype, and Similar Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/effective-tactics-for-obtaining-a-refund-on-fb/"><u>Effective Tactics for Obtaining a Refund on FB</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/experience-the-epic-saga-watching-order-of-how-to-train-your-dragon-sequences-explained/"><u>Experience the Epic Saga: Watching Order of How to Train Your Dragon Sequences Explained</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/free-online-converter-mp4-to-wma-format-moveit/"><u>Free Online Converter: MP4 to WMA Format - MoveIt</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-remove-an-airtag-from-your-apple-id-account-from-iphone-se-2022-by-drfone-ios/"><u>How to Remove an AirTag from Your Apple ID Account From iPhone SE (2022)?</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/mov-a-aiff-convertitore-online-e-gratuito-utilizzo-di-movemovi/"><u>MOV a AIFF Convertitore Online E Gratuito - Utilizzo Di MoveMovi</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-recover-deleted-photos-on-nokia-105-classic-without-backup-by-fonelab-android-recover-photos/"><u>The way to recover deleted photos on Nokia 105 Classic without backup.</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/top-15-best-free-software-uninstallers-you-should-try/"><u>Top 15 Best Free Software Uninstallers You Should Try</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/top-8-high-performance-web-browser-microphone-recording-apps/"><u>Top 8 High-Performance Web Browser Microphone Recording Apps</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/two-ways-to-track-my-boyfriends-samsung-galaxy-s23-without-him-knowing-drfone-by-drfone-virtual-android/"><u>Two Ways to Track My Boyfriends Samsung Galaxy S23 without Him Knowing | Dr.fone</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1726226824751-mp4mp3/"><u>オンラインで手軽にMP4からMP3へ変換!? 無料動画コンバーター</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<span id="1516072">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2144279/7443" target="_top" id="2144279">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144279" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144279/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

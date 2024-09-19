@@ -1,7 +1,7 @@
 ---
 title: "Webinar on Smart Data Extraction Techniques: Enhancing Business Insights"
-date: 2024-09-11T17:16:15.426Z
-updated: 2024-09-14T16:43:41.400Z
+date: 2024-09-17T17:21:41.086Z
+updated: 2024-09-19T00:01:23.614Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/9e5ef4400f63e7f920ad051c5a9167da56f0ec84a54929789d005136b7898918.jpg
@@ -40,42 +40,28 @@ SVP, Technology Alliance Program, **BluePrism**
 ![Neilmurphy 198X198](https://static4.abbyy.com/abbyycommedia/25122/logo-2021-76x23.svg) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![Neilmurphy 198X198](https://static4.abbyy.com/abbyycommedia/31956/neilmurphy-198x198.png)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Neil Murphy
 
 Global Channel Chief, **ABBYY**
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115929/19272" target="_top" id="2115929">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115929" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115929/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Overview
 
 While intelligent automation and robotic process automation (RPA) adoption continues to accelerate, 70% of digital transformation projects fail to meet expectations according to Boston Consulting Group. Many Automation Center of Excellence (COE) leaders struggle to identify the right processes for automation and lack data-driven actionable insight to optimize processes, make decisions, and improve results. And with information systems generating an unprecedented amount of data from both digital and physical sources, how do you quickly get to the insights it contains in order to improve customer experience and operational efficiency?
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
+  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Blue Prism Process Intelligence powered by ABBYY Timeline
 
@@ -94,20 +80,40 @@ Watch this webinar and understand how Blue Prism Process Intelligence Powered by
 Please note that progressive profiling is used on this form to incrementally collect profile data over time.   
 All personal information collected via this method is under full scope of all provisions in our privacy policy.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Thank you for registering!
 
 [![14082 RPA Today Webinar Banners 643X363](https://static3.abbyy.com/abbyycommedia/34995/14082-rpa-today-webinar-banners____643x363.png)](https://www.youtube.com/watch?v=bdEaNsqzyAk) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118310/7443" target="_top" id="2118310">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118310" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118310/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Please check your inbox, we have sent you a confirmation email.
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
+
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)
 
@@ -174,16 +180,18 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-premier-youtube-unboxers-who-to-follow/"><u>[New] Premier YouTube Unboxers Who to Follow</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/updated-comprehending-variants-in-windows-movie-maker-software/"><u>[Updated] Comprehending Variants in Windows Movie Maker Software</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-explore-exceptional-economically-priced-asmr-gear/"><u>[Updated] Explore Exceptional, Economically-Priced ASMR Gear</u></a></li>
-<li><a href="https://some-tips.techidaily.com/2024-approved-superior-ringtones-roundup-elite-download-hubs/"><u>2024 Approved Superior Ringtones Roundup Elite Download Hubs</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/expert-guide-restoring-copy-and-paste-capabilities-in-windows-11-systems/"><u>Expert Guide: Restoring Copy & Paste Capabilities in Windows 11 Systems</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-pictures-on-iphone-se-5-best-solutions-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Recover deleted pictures on iPhone SE? 5 Best Solutions | Stellar</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719579665342-language-leap-year-get-95-off-and-dive-into-new-cultures/"><u>Language Leap Year - Get 95% Off and Dive Into New Cultures</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/transform-mobile-scanning-with-abbyys-business-card-reader-for-android-fast-accurate-intuitive-technology/"><u>Transform Mobile Scanning with ABBYY's Business Card Reader for Android: Fast, Accurate, Intuitive Technology</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/transform-your-business-save-time-and-money-with-our-superior-paperless-solutions-and-world-class-ocr-tools-for-smb-success/"><u>Transform Your Business: Save Time & Money with Our Superior Paperless Solutions and World-Class OCR Tools for SMB Success</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/unleashing-potential-with-cookiebot-technology-for-websites/"><u>Unleashing Potential with Cookiebot Technology for Websites</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/webinar-recap-strategies-to-minimize-risks-in-libor-agreements/"><u>Webinar Recap: Strategies to Minimize Risks in LIBOR Agreements</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-captivating-audience-with-these-innovative-videos/"><u>[New] 2024 Approved Captivating Audience with These Innovative Videos</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1726224446806-2024/"><u>2024上市最新型高級音樂編曲軟件 - 自由使用或付費選擇</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/crear-gifs-sin-costo-desde-archivos-ogv-online-con-movavi/"><u>Crear GIFs Sin Costo Desde Archivos OGV Online Con Movavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/free-conversion-change-your-files-from-aiff-to-wma-using-an-online-tool/"><u>Free Conversion: Change Your Files From AIFF to WMA Using an Online Tool</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/grabacion-de-audio-gratuita-para-windows-y-macos/"><u>Grabación De Audio Gratuita Para Windows Y macOS</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-oneplus-nord-n30-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On OnePlus Nord N30 5G? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/masterful-zoom-sound-adjustment-guide-clearer-cleaner-sounds-for-2024/"><u>Masterful Zoom Sound Adjustment Guide Clearer, Cleaner Sounds for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/pros-choice-9-premium-streaming-services-for-2024/"><u>Pro's Choice 9 Premium Streaming Services for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/quick-fixes-to-address-delayed-stories-on-social-networks/"><u>Quick Fixes to Address Delayed Stories on Social Networks</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/techniques-for-capturing-and-storing-android-and-mac-snaps-for-2024/"><u>Techniques for Capturing and Storing Android & Mac Snaps for 2024</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/transformez-gratuitement-un-fichier-pbm-en-format-png-avec-movavi-convertissez-facilement-et-sans-frais/"><u>Transformez Gratuitement Un Fichier PBM en Format PNG Avec Movavi - Convertissez Facilement Et Sans Frais !</u></a></li>
+<li><a href="https://techtrends.techidaily.com/ultimate-guide-choosing-the-right-mkv-to-mp4-video-converter-across-desktop-and-cloud-services-for-windows-and-macos-users/"><u>Ultimate Guide: Choosing the Right MKV to MP4 Video Converter Across Desktop and Cloud Services for Windows & macOS Users</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/webm-a-mp4-ele-alir-online-doldurmak-hassaslarin-uzerinde-ozellikle-hizli-ve-kolay-bir-etkinlige/"><u>WebM a MP4 Ele Alır Online Doldurmak Hassasların Üzerinde Özellikle Hızlı Ve Kolay Bir Etkinliğe</u></a></li>
 </ul></div>
 

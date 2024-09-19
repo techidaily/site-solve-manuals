@@ -1,7 +1,7 @@
 ---
 title: Brian Unruh Takes on Role of CFO at ABBYY, Steering Financial Strategy Forward
-date: 2024-09-11T19:47:50.888Z
-updated: 2024-09-14T18:44:23.942Z
+date: 2024-09-11T22:44:33.145Z
+updated: 2024-09-18T19:24:03.459Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a5e56b77e4674926b57f0f9161817ac7d31c24b7d1008a2fd7cf38de6f5c41cb.jpg
@@ -67,33 +67,28 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-steps-for-crafting-visually-stimulating-fb-ad-content/"><u>[New] In 2024, Steps for Crafting Visually Stimulating FB Ad Content</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-the-key-to-immersive-roleplay-zooming-into-roblox-worlds/"><u>[New] The Key to Immersive Roleplay Zooming Into Roblox Worlds</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-videography-made-simple-efficient-recording-and-editing-in-adobe-connect-for-2024/"><u>[New] Videography Made Simple Efficient Recording & Editing in Adobe Connect for 2024</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/boost-your-sites-performance-with-the-robust-features-of-cookiebot-technology/"><u>Boost Your Site's Performance with the Robust Features of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/boost-your-website-with-advanced-tracking-the-power-of-cookiebot-technology/"><u>Boost Your Website with Advanced Tracking: The Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/comprehensive-security-report-understanding-organizational-safeguards/"><u>Comprehensive Security Report: Understanding Organizational Safeguards</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/comprehensive-step-by-step-tutorial-on-preparing-datasets-for-artificnial-intelligence/"><u>Comprehensive Step-by-Step Tutorial on Preparing Datasets for Artificnial Intelligence</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-personalization-enhancing-your-sites-user-experience/"><u>Cookiebot-Driven Personalization: Enhancing Your Site's User Experience</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-enhanced-experience-optimize-your-website-with-advanced-tracking-solutions/"><u>Cookiebot-Enhanced Experience: Optimize Your Website with Advanced Tracking Solutions</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-enhanced-optimize-your-website-with-cutting-edge-analytics-tools/"><u>Cookiebot-Enhanced: Optimize Your Website with Cutting-Edge Analytics Tools</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/enhancing-file-visibility-strategic-application-of-descriptions/"><u>Enhancing File Visibility: Strategic Application of Descriptions</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-poco-c55-location-on-skout-drfone-by-drfone-virtual-android/"><u>How to Change Poco C55 Location on Skout | Dr.fone</u></a></li>
-<li><a href="https://win-blog.techidaily.com/how-to-stop-tower-of-fantasy-from-crashing-your-gaming-experience-on-windowspc/"><u>How to Stop 'Tower of Fantasy' From Crashing Your Gaming Experience on Windows/PC</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ate-on-screen-imagery-with-youtubes-green-screens-edge/"><u>Innovate On-Screen Imagery with YouTube’s Green Screens Edge</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/total-reset-procedure-for-deleting-data-from-an-iphone-device/"><u>Total Reset Procedure for Deleting Data From an iPhone Device</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-mastering-facebook-livestreams-four-easy-steps-for-2024/"><u>[Updated] Mastering Facebook Livestreams Four Easy Steps for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-masterpieces-without-barriers-publicly-available-artwork/"><u>2024 Approved Masterpieces Without Barriers Publicly Available Artwork</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/wav-to-m4b-movavi/"><u>安心で簡単な無料オンラインWAV to M4Bコンバーター – Movavi</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/advanced-mac-toolkit-screenaudio-recording-feature/"><u>Advanced Mac Toolkit Screen/Audio Recording Feature</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/artistic-ambitions-meet-technological-titans-bz-and-ms-merger-and-ais-creative-potential-innovation-analysis/"><u>Artistic Ambitions Meet Technological Titans: BZ & MS Merger and AI's Creative Potential [Innovation Analysis]</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cambia-archivos-de-sonido-ogg-a-formato-m4a-sin-coste-con-herramientas-en-linea-ejemplos-y-guias/"><u>Cambia Archivos De Sonido OGG a Formato M4A Sin Coste Con Herramientas en Línea - Ejemplos Y Guías</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/conversion-gratuite-mp4-a-format-m4a-online-movavi/"><u>Conversion Gratuite MP4 À Format M4A Online - Movavi</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-life360-notify-when-you-log-out-on-zte-nubia-z60-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, Does Life360 Notify When You Log Out On ZTE Nubia Z60 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/mastering-the-art-of-capturing-images-5-simple-methods-to-take-a-screenshot-on-your-acer-notebook-expert-tips-from-movavi/"><u>Mastering the Art of Capturing Images: 5 Simple Methods to Take a Screenshot on Your Acer Notebook - Expert Tips From Movavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/passos-simples-para-fazer-um-montagem-de-imagens-no-seu-iphone-as-opcoes-mais-eficientes/"><u>Passos Simples Para Fazer Um Montagem De Imagens No Seu iPhone – As Opções Mais Eficientes</u></a></li>
+<li><a href="https://win-forum.techidaily.com/step-by-step-guide-accessing-and-modifying-system-properties-in-windows-11/"><u>Step-by-Step Guide: Accessing and Modifying System Properties in Windows 11</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/top-5-techniques-for-layering-images-perfectly/"><u>Top 5 Techniques for Layering Images Perfectly</u></a></li>
+<li><a href="https://win-answers.techidaily.com/ultimate-guide-topmost-efficient-key-combinations-in-microsoft-excel/"><u>Ultimate Guide: Topmost Efficient Key Combinations in Microsoft Excel</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/unlock-the-power-of-tracert-essential-techniques-for-mapping-windows-routing-pathways/"><u>Unlock the Power of Tracert: Essential Techniques for Mapping Windows Routing Pathways</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-in-2024-the-ultimate-fcpx-captioning-guide-best-practices/"><u>Updated In 2024, The Ultimate FCPX Captioning Guide Best Practices</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/pcxjpeg-movavi/"><u>オンラインで手軽な無料変換: PCX画像をJPEGへ - Movaviの使い方</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Analyse Der Digitalen Transformation Von Unternehmensprozessen Durch ABBYY Und Fraunhofer
-date: 2024-09-08T00:46:55.543Z
-updated: 2024-09-14T23:27:58.946Z
+date: 2024-09-15T22:57:52.616Z
+updated: 2024-09-18T19:06:42.436Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3940086541c823408b7e3893cd4adcfe04714cf8a1d0ceb2c3d06364d867bc68.png
@@ -56,10 +56,10 @@ ABBYY ermöglicht es, mit seiner Digital Intelligence Plattform die gesamten Ges
 ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeichen von ABBYY Software Ltd. Alle anderen Warenzeichen sind Eigentum ihrer jeweiligen Inhaber.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123477/16836" target="_top" id="2123477">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123477" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094414/7443" target="_top" id="2094414">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094414" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123477/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094414/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Pressekontakt:
@@ -67,10 +67,10 @@ ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeich
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118324/7443" target="_top" id="2118324">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118324" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118324/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Bianca Stupp
@@ -96,21 +96,16 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/new-from-basics-to-advanced-a-polarr-photo-editor-journey/"><u>[New] From Basics to Advanced A Polarr Photo Editor Journey</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-enhance-your-storytelling-mastering-the-green-screen-on-instagram/"><u>[Updated] 2024 Approved Enhance Your Storytelling Mastering the Green Screen on Instagram</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/1724313535664-abbyy/"><u>「タスクマイニングの基礎: 効率的なワークフローへの道」 - ABBYYブログで探るタスク分析と自動化</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/2024-approved-social-scoop-twitters-trending-talks/"><u>2024 Approved Social Scoop Twitter’s Trending Talks</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-win10s-best-screen-capture-and-recording-options/"><u>2024 Approved Win10's Best Screen Capture and Recording Options</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/abbyy-welcomes-tomohito-shimizu-as-new-head-of-its-japan-operations/"><u>ABBYY Welcomes Tomohito Shimizu as New Head of Its Japan Operations</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/boost-your-sites-traffic-with-cookiebot-the-smart-way/"><u>Boost Your Site's Traffic with Cookiebot - The Smart Way</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/boosting-efficiency-in-rhenus-logistics-through-abbyy-intelligent-document-processor/"><u>Boosting Efficiency in Rhenus Logistics Through ABBYY Intelligent Document Processor</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/comprehensive-analysis-on-ai-driven-customer-onboarding-key-trends-challenges-and-strategies/"><u>Comprehensive Analysis on AI-Driven Customer Onboarding: Key Trends, Challenges & Strategies</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/1724313295714-dx/"><u>DX初心者をサポートする入門書リスト</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-navigating-the-world-of-quantum-hdr-imaging/"><u>In 2024, Navigating the World of Quantum HDR Imaging</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-secrets-to-writing-compelling-vlog-dialogues/"><u>In 2024, Secrets to Writing Compelling Vlog Dialogues</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/navigating-the-peak-content-igtvs-leaders/"><u>Navigating the Peak Content IGTV's Leaders</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/new-new-to-video-editing-here-are-the-best-software-options/"><u>New New to Video Editing? Here Are the Best Software Options</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/1719818132567-streaming-on-windows-10-after-upgrade-secured/"><u>Streaming on Windows 10 After Upgrade Secured!</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/webinar-on-smart-data-extraction-techniques-enhancing-business-insights/"><u>Webinar on Smart Data Extraction Techniques: Enhancing Business Insights</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-go-viral-or-not-at-all-mobile-live-streaming-without-millions-of-subscribers/"><u>[New] 2024 Approved Go Viral or Not at All Mobile Live-Streaming Without Millions of Subscribers</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-crafting-chuckles-in-cyberspace-diy-memes-of-the-metaverse/"><u>[New] Crafting Chuckles in Cyberspace DIY Memes of the Metaverse</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/13-key-tactics-for-enhanced-visibility-in-facebook-videography/"><u>13 Key Tactics for Enhanced Visibility in Facebook Videography</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/20-zacitla-ceskych-mp3-konv-bezplatnych-pro-windows-movavi/"><u>20 Začítlá Českých MP3 Konv. Bezplatných Pro Windows - Movavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/ts-mkv-movavi/"><u>免費線上 TS 到 MKV 轉換服務 - 運用 Movavi 技術</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/conversione-libera-da-ram-a-file-wav-online-utilizzando-movavi-ottenere-gratuitamente-i-tuoi-risultati-migliori/"><u>Conversione Libera Da RAM a File WAV Online Utilizzando Movavi - Ottenere Gratuitamente I Tuoi Risultati Migliori</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/effective-solutions-to-overcome-realtek-universal-chipset-drives-problems/"><u>Effective Solutions to Overcome Realtek Universal Chipset Drives Problems</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/effortlessly-manage-iphone-photos-aligning-albums-and-streamlining-icloud-storage/"><u>Effortlessly Manage iPhone Photos Aligning Albums and Streamlining iCloud Storage</u></a></li>
+<li><a href="https://extra-information.techidaily.com/elevate-image-edits-quick-tips-from-the-pixlr-pros/"><u>Elevate Image Edits Quick Tips From the Pixlr Pros</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-honor-90-gt-phone-password-without-factory-reset-by-drfone-android/"><u>How to Unlock Honor 90 GT Phone Password Without Factory Reset?</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/verbeterde-instructies-om-vlc-permanente-hoepel-titels-te-behoudend-toezicht-te-krijgen/"><u>Verbeterde Instructies Om VLC Permanente Hoepel Titels Te Behoudend Toezicht Te Krijgen</u></a></li>
 </ul></div>
 

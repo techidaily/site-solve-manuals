@@ -1,7 +1,7 @@
 ---
 title: ABBYY Announces Worldwide Effort to Advance Reliable and Ethical AI Technologies
-date: 2024-09-07T22:05:38.575Z
-updated: 2024-09-14T23:06:43.613Z
+date: 2024-09-13T19:24:39.805Z
+updated: 2024-09-19T00:01:56.562Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/23dc4857279699198e48a622a7713386fd30f7f47908caf6a0fe50229057f885.jpg
@@ -82,26 +82,22 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-embrace-serenity-the-10-best-online-yoga-masters-today/"><u>[Updated] In 2024, Embrace Serenity The 10 Best Online Yoga Masters Today</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-the-essential-manual-to-operating-streamlabs-obs/"><u>2024 Approved The Essential Manual to Operating Streamlabs OBS</u></a></li>
-<li><a href="https://howto.techidaily.com/7-solutions-to-fix-error-code-963-on-google-play-of-oppo-k11-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Error Code 963 on Google Play Of Oppo K11 5G | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/from-kitchens-to-cameras-7-essentials-for-flavorful-filmmaking-for-2024/"><u>From Kitchens to Cameras 7 Essentials for Flavorful Filmmaking for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-the-intersection-of-business-and-immersive-vr-technology/"><u>In 2024, The Intersection of Business and Immersive VR Technology</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/unlock-greater-conversion-rates-using-state-of-the-art-analytics-and-retargeting-tools-by-cookiebot/"><u>Unlock Greater Conversion Rates Using State-of-the-Art Analytics and Retargeting Tools by Cookiebot</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/unlock-website-insights-and-improve-analytics-with-cookiebots-advanced-marketing-tools/"><u>Unlock Website Insights and Improve Analytics with Cookiebot's Advanced Marketing Tools</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/upgrade-your-iphones-productivity-quickscanandocr-for-seamless-pdf-and-jpg-transformation-into-editable-text/"><u>Upgrade Your iPhone's Productivity: QuickScan&OCR for Seamless PDF and JPG Transformation Into Editable Text.</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1726223557441-movavijpg/"><u>「Movaviで簡単なJPGへの変換 - 無料オンラインツール」</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-fine-tuning-your-remote-visual-experience/"><u>2024 Approved Fine-Tuning Your Remote Visual Experience</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/comparing-mobile-platforms-evaluating-the-performance-of-android-tablets-vs-ipads/"><u>Comparing Mobile Platforms: Evaluating the Performance of Android Tablets Vs. IPads</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/effortless-audio-and-video-editing-convert-wav-tracks-to-premium-mkv-on-movavi-for-free/"><u>Effortless Audio and Video Editing: Convert WAV Tracks to Premium MKV on Movavi for Free!</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/expert-tips-for-making-your-stereo-audio-work-again-problems-addressed/"><u>Expert Tips for Making Your Stereo Audio Work Again - Problems Addressed!</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/insta-reversal-unlock-the-power-of-video-rotation/"><u>Insta-Reversal Unlock the Power of Video Rotation</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/maintaining-a-continuous-snapchat-connection-for-2024/"><u>Maintaining a Continuous Snapchat Connection for 2024</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/methods-to-reactivate-disconnected-printers/"><u>Methods to Reactivate Disconnected Printers</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/movavis-easy-guide-convert-aif-files-into-high-quality-m4a-format-at-no-cost/"><u>Movavi's Easy Guide - Convert AIF Files Into High-Quality M4A Format at No Cost</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/understanding-bmp-files-a-comprehensive-guide-on-the-basics-of-bmp-images-and-viewing-them/"><u>Understanding BMP Files: A Comprehensive Guide on the Basics of .bmp Images & Viewing Them</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<span id="1834903">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557746/17382" target="_top" id="1557746">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557746" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557746/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

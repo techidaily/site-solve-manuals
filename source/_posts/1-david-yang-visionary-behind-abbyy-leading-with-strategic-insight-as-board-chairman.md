@@ -1,7 +1,7 @@
 ---
 title: "1. David Yang: Visionary Behind ABBYY, Leading with Strategic Insight as Board Chairman"
-date: 2024-09-08T00:37:47.911Z
-updated: 2024-09-14T21:06:53.092Z
+date: 2024-09-14T16:32:35.277Z
+updated: 2024-09-19T03:40:14.545Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/98061f90f0702266772c41039bf7505ea26afb88709675b4845f86d9c07123c1.jpg
@@ -44,28 +44,27 @@ Dr. Yang holds numerous patents and has published several research papers and ar
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-broadcasting-made-simple-directly-stream-google-meet-to-youtube/"><u>[New] 2024 Approved Broadcasting Made Simple Directly Stream Google Meet to YouTube</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/new-50plus-motivational-messages-from-tiktok-stars-for-2024/"><u>[New] 50+ Motivational Messages From TikTok Stars for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-elevate-vfx-free-luts-for-dji-drones-then-paid-services/"><u>[New] Elevate VFX Free LUTS for DJI Drones, Then Paid Services</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/1-automated-conversion-tracking-enhanced-with-cookiebot-technology/"><u>1. Automated Conversion Tracking: Enhanced with Cookiebot Technology</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-in-depth-guide-to-installing-microsofts-movie-maker/"><u>2024 Approved In-Depth Guide to Installing Microsoft's Movie Maker</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-the-path-to-becoming-a-lut-connoisseur/"><u>2024 Approved The Path to Becoming a LUT Connoisseur</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/1724313623358-abbyy-flexicapture/"><u>高付加価値への転換:ABBYY FlexiCapture®による請求書プロセス改革とデジタル技術活用</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/abbyy-launches-cutting-edge-research-facility-in-india/"><u>ABBYY Launches Cutting-Edge Research Facility in India</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/ai-driven-triumph-abbyy-achieves-60-revenue-surge-accolades-from-idc-marketscape/"><u>AI-Driven Triumph: ABBYY Achieves 60% Revenue Surge - Accolades From IDC MarketScape</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/automated-consent-management-how-cookiebot-streamlines-compliance/"><u>Automated Consent Management: How Cookiebot Streamlines Compliance</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/automation-projects-aiming-to-reduce-employee-burnout-study-insights/"><u>Automation Projects Aiming to Reduce Employee Burnout - Study Insights</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/award-winning-abbyy-dominates-2024-gartner-magic-quadrant-for-process-mining-software/"><u>Award-Winning ABBYY Dominates 2024 Gartner Magic Quadrant for Process Mining Software</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/elite-list-of-high-quality-document-and-photograph-scanners-2024-edition/"><u>Elite List of High-Quality Document & Photograph Scanners - 2024 Edition</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-bypass-activation-lock-on-iphone-15-plus-or-ipad-by-drfone-ios/"><u>In 2024, How to Bypass Activation Lock on iPhone 15 Plus or iPad?</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-learn-how-everything-works-on-xiaomi-redmi-note-12-pro-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Learn How Everything Works On Xiaomi Redmi Note 12 Pro 4G | Dr.fone</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/the-art-of-video-blending-using-modes-mastery/"><u>The Art of Video Blending Using Modes Mastery</u></a></li>
+<li><a href="https://discover-hacks.techidaily.com/1726226072680-10/"><u>10 가지 위젯리: 그린 스크린 없이 비디오에서 배경을 제거하는 최고의 방법</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cambiar-videoes-mjpeg-a-otros-formatos-gratis-con-conversion-online-de-movavi/"><u>Cambiar Videoes .mjpeg a Otros Formatos Gratis Con Conversión Online De Movavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/conversion-bmp-a-tiff-gratuite-sur-ligne-utilisez-movavi/"><u>Conversion BMP À TIFF Gratuite Sur Ligne - Utilisez Movavi</u></a></li>
+<li><a href="https://extra-information.techidaily.com/efficient-tools-and-tips-for-webp-to-jpeg-transformation/"><u>Efficient Tools and Tips for WebP to JPEG Transformation</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Poco F5 5G | Dr.fone</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/hoe-je-beeld-van-rechts-het-onderscheppen-kun-je-met-movavis-foto-draaidorser/"><u>Hoe Je Beeld Van Rechts Het Onderscheppen Kun Je Met Movavi's Foto Draaidorser</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-ultimate-tutorial-downloading-and-extracting-audio-from-vids-on-social-platforms/"><u>In 2024, Ultimate Tutorial Downloading and Extracting Audio From Vids on Social Platforms</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/os-9-melhores-concorrentes-gratuitos-online-ideais-para-fazer-videos-perfeitos-no-youtube/"><u>Os 9 Melhores Concorrentes Gratuitos Online Ideais Para Fazer Vídeos Perfeitos No YouTube</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/ultimate-capture-app-windows-10-edition/"><u>Ultimate Capture App - Windows 10 Edition</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115920/19272" target="_top" id="2115920">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115920" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115920/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="2127886">
+					<video width="576" height="1024" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "Movavi Video Editor: 高效下载与使用指南"
-date: 2024-09-08T00:33:11.335Z
-updated: 2024-09-14T23:24:15.796Z
+date: 2024-09-18T03:56:03.067Z
+updated: 2024-09-18T16:26:21.783Z
 categories:
   - movavi
 thumbnail: https://thmb.techidaily.com/3b3746640fe26afab367eb3d6989fbedd82bfd022cd1e2fe844a87bc2bcb92f8.jpg
@@ -176,13 +176,6 @@ Cet article vous présente les réglages de performance pour les jeux que vous p
 
 Avant de commencer, il est toujours bon d'avoir un compteur de FPS dans le jeu, afin de pouvoir suivre vos progrès et tester les réglages qui fonctionnent. De nombreux jeux les ont préinstallés, mais si vous installez [MSI Afterburner](https://www.msi.com/Landing/afterburner/graphics-cards), vous ne serez jamais sans cet outil utile dans n'importe quel jeu.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 
 
 Comment rendre Windows 10 plus rapide pour les jeux (corrections rapides)
@@ -220,6 +213,13 @@ Voici quelques liens vers les mises à jour des pilotes des fabricants les plus 
 ### Installer DirectX 12
 
 ![](https://cdn.staticont.net/default/0012/47/72e52d810cb1f6f8d15a641fc4b287b8c43fbcd6.webp)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 DirectX 12 est un outil indispensable pour quiconque souhaite jouer à des jeux sur Windows 10\. Pour faire simple, DirectX est l'application que le jeu utilise pour communiquer avec votre ordinateur et lui dire quoi faire. DirectX 12 est une grande amélioration par rapport à son prédécesseur, DirectX 11, car il permet aux cartes graphiques de tirer des ressources de plus d'un cœur du processeur d'un PC, ce qui augmente les fréquences d'images, améliore les effets graphiques et réduit la consommation d'énergie. Des tests ont montré une différence de 85 à 300 % dans les performances de jeu entre la version 11 et la version 12.
 
@@ -305,6 +305,13 @@ Si vous utilisez une carte graphique NVIDIA, il existe des paramètres spécifiq
 5. Mode de gestion de l'énergie : Passez à **Préférer les performances maximales**.
 6. Optimisation Threaded : Passez à **Auto**.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080328/19272" target="_top" id="2080328">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080328" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080328/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Régler le centre de contrôle AMD/ATI
 
 Les cartes graphiques AMD ont également beaucoup de paramètres. Certains disent qu'elles rivalisent même avec leur concurrent NVIDIA. Modifiez ces paramètres pour optimiser les jeux de Windows 10.
@@ -312,6 +319,13 @@ Les cartes graphiques AMD ont également beaucoup de paramètres. Certains disen
 1. Activez l'accentuation des images d'AMD en cliquant sur **Paramètres**, puis sur **Graphiques** pour trouver le paramètre. Vous pouvez l'activer pour des jeux individuels ou globalement.
 2. Augmentez vos performances graphiques en utilisant l'overclocking. Pour ce faire, cliquez sur l'onglet **Performance**, puis sur **Tuning**, sélectionnez **Automatique**, et enfin **GPU Overclocked**.
 3. Si vous utilisez une carte AMD, vous n'avez pas besoin de MSI Afterburner pour contrôler les performances. Il vous suffit d'appuyer sur **Ctrl** \+ **Shift** \+ **O** pour que vos statistiques apparaissent dans le jeu.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Réduire la résolution dans un jeu
 
@@ -332,13 +346,6 @@ Comment améliorer les performances de jeu sur Windows 10 (corrections avancées
 ![](https://cdn.staticont.net/pages/0013/24/72b5f58442a79243cce53c3224e26755b436a620.webp)
 
 Vous ne savez toujours pas comment rendre Windows 10 plus rapide pour les jeux ? Utilisez ces correctifs avancés pour une solution à long terme.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Optez pour un SSD
 
@@ -375,6 +382,19 @@ Ouvrez votre Windows Éditeur de registre en cliquant sur la   **touche Windows*
 Pour trouver votre adresse IP, appuyez sur la   **touche Windows** \+ **X** et suivez ces étapes : **Panneau de configuration** \- **Réseau et Internet** \- **Centre Réseau et partage** \- **Connexions** \- **Détails** \- **Adresse IPv4**.
 
 Vous pouvez maintenant retrouver le dossier avec la bonne adresse IP. Cliquez avec le bouton droit de la souris sur ce dossier et sélectionnez **Nouveau** \- **Valeur DWORD (32 bits)**. Vous devrez créer deux de ces valeurs : **TcpAckFrequency** et **TCPNoDelay**. Double-cliquez sur chacune d'elles et réglez leurs paramètres sur **1**. L'algorithme de Nagle est maintenant désactivé.
+
+<!-- affiliate ads begin -->
+<span id="1328683">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Surcadencez votre carte graphique
 
@@ -416,13 +436,6 @@ Comment accélérer l'exécution des jeux sur un ordinateur portable Windows 10
 ![](https://cdn.staticont.net/pages/0013/24/e045d566ab9cee25f15459463af7614838747945.webp)
 
 Vous voulez savoir comment améliorer les performances de jeu sur un ordinateur portable Windows 10 ? Ces conseils vous aideront à accélérer les choses !
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Utiliser une alimentation externe
 
@@ -499,13 +512,6 @@ Il y a une longue liste de choses qui pourraient ralentir votre ordinateur. Voic
 4. Vous utilisez DirectX 11 et devez effectuer une mise à jour.
 5. Le système fonctionne avec des paramètres de performance inférieurs pour économiser la batterie.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120867/26400?prodsku=mars" target="_top" id="2120867">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120867" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120867/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Comment faire fonctionner un ordinateur plus rapidement ?
 
 Si vous voulez savoir comment rendre votre ordinateur plus rapide pour jouer, voici quelques conseils rapides :
@@ -516,16 +522,16 @@ Si vous voulez savoir comment rendre votre ordinateur plus rapide pour jouer, vo
 4. Passez en revue votre programme de démarrage et désactivez ceux que vous n'utilisez pas.
 5. Installez de la RAM supplémentaire
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1884002/19272" target="_top" id="1884002">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884002" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884002/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Windows 10 est-il meilleur pour les jeux ?
 
 Lorsque l'on compare l'expérience de jeu des versions précédentes de Windows à Windows 10, l'amélioration des performances est extraordinaire. Si vous n'êtes pas sûr de vouloir faire une mise à jour, la décision est simple. Windows 10 offrira toujours une meilleure expérience.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Comment obtenir 60 fps dans un jeu ?
 
@@ -580,21 +586,20 @@ En vous inscrivant, vous acceptez de recevoir nos courriels de marketing et acce
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-innovative-venues-for-immersive-media/"><u>[New] Innovative Venues for Immersive Media</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-laugh-ledger-pinpointing-prime-meme-generators-for-2024/"><u>[Updated] Laugh Ledger Pinpointing Prime Meme Generators for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-optimizing-engagement-using-cards-and-annotations/"><u>[Updated] Optimizing Engagement Using Cards and Annotations</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-streamlining-ad-revenue-post-monetization-yt-tips-and-tricks/"><u>2024 Approved Streamlining Ad Revenue Post-Monetization YT Tips & Tricks</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/champion-of-chiseled-cheeks-starting-your-youtube-aesthetic-venture/"><u>Champion of Chiseled Cheeks Starting Your YouTube Aesthetic Venture</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/enhance-user-experience-with-our-cookiebot-integration-services/"><u>Enhance User Experience with Our Cookiebot Integration Services</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/enhancing-business-efficiency-through-abbyy-signatures-strategic-collaborations-in-process-intelligence/"><u>Enhancing Business Efficiency Through ABBYY Signature's Strategic Collaborations in Process Intelligence</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/implementing-efficient-automated-doc-handling-with-abbyy-insights-from-the-official-blog/"><u>Implementing Efficient Automated Doc Handling with ABBYY: Insights From the Official Blog</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/leverage-cookiebot-technology-for-improved-user-experience-and-seo-on-your-site/"><u>Leverage Cookiebot Technology for Improved User Experience & SEO on Your Site</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/mastering-the-digital-arena-winning-strategies-against-online-native-banking-services-an-abbyy-guide/"><u>Mastering the Digital Arena: Winning Strategies Against Online-Native Banking Services - An ABBYY Guide</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/nero-burning-rom-zum-dvd-kopieren-umfassende-anleitung-fur-heterogene-videodateien/"><u>Nero Burning ROM Zum DVD-Kopieren: Umfassende Anleitung Für Heterogene Videodateien</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/neue-ara-fur-abbyy-industrieveteran-robert-youngjohns-wird-als-geschaftsfuhrer-eingesetzt/"><u>Neue Ära Für ABBYY: Industrieveteran Robert Youngjohns Wird Als Geschäftsführer Eingesetzt</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/nouvelles-perspectives-sur-le-travail-automatise-en-france-selon-letude-abbyy-la-plupart-des-citoyens-sont-ouverts-a-la-delegation-de-roles-aux-machines/"><u>Nouvelles Perspectives Sur Le Travail Automatisé en France Selon L’Étude ABBYY : La Plupart Des Citoyens Sont Ouverts À La Délegation De Rôles Aux Machines</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/samsung-chromebook-2-assessment-a-perfect-blend-of-portability-and-efficiency/"><u>Samsung Chromebook 2 Assessment: A Perfect Blend of Portability and Efficiency</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/step-by-step-tutorial-on-updating-your-intel-rst-driver-with-ease/"><u>Step-by-Step Tutorial on Updating Your Intel RST Driver with Ease</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/updated-in-2024-best-free-online-video-editors-for-movies/"><u>Updated In 2024, Best Free Online Video Editors for Movies</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-shining-a-light-top-photo-illumination-hacks/"><u>[Updated] Shining a Light Top Photo Illumination Hacks</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/6-ultimate-free-film-editor-applications-no-cost-options/"><u>6 Ultimate Free Film Editor Applications - No Cost Options</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/movavi-ogv-mov/"><u>免費線上服務：Movavi提供的 OGV 和 MOV 影片專家轉換器</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/beginners-guide-the-15-leading-video-editing-programs-easy-to-use/"><u>Beginner's Guide: The 15 Leading Video Editing Programs Easy To Use</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-app-not-available-in-your-country-play-store-problem-on-oppo-a1x-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix App Not Available in Your Country Play Store Problem on Oppo A1x 5G | Dr.fone</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/gratis-digitaal-converter-versterk-uw-soundfiles-van-wav-tot-flacaiff-via-movavi/"><u>Gratis Digitaal Converter: Versterk Uw Soundfiles Van WAV Tot FLAC/AIFF via Movavi</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-best-beginner-drones-kids-edition-top-10-list/"><u>In 2024, Best Beginner Drones - Kids' Edition Top 10 List</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-vivo-y200e-5g-to-new-android-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from Vivo Y200e 5G to New Android? | Dr.fone</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/in-2024-quick-reference-how-to-insert-vimeo-media-into-powerpoint-files/"><u>In 2024, Quick Reference How to Insert Vimeo Media Into PowerPoint Files</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-vcs-vision-recorder-check-detailed-scrutiny/"><u>In 2024, VCS Vision Recorder Check Detailed Scrutiny</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/innovative-apps-for-mastering-dji-footage-quality/"><u>Innovative Apps for Mastering DJi Footage Quality</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-reveal-flatulent-whispering-waves-compilation/"><u>New Reveal Flatulent Whispering Waves Compilation</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/top-18-editores-de-peliculas-sin-costo-para-windows-11-8-y-7-guia-completa/"><u>Top 18 Editores De Películas Sin Costo Para Windows 11, 8 Y 7: Guía Completa</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/transform-your-mp4-footage-into-high-quality-content-using-movavis-editing-tool/"><u>Transform Your MP4 Footage Into High-Quality Content Using Movavi's Editing Tool</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/transform-your-photos-downloadable-no-cost-arw-to-png-converter-by-movavi/"><u>Transform Your Photos: Downloadable, No-Cost ARW to PNG Converter by Movavi</u></a></li>
 </ul></div>
 

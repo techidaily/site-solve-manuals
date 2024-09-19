@@ -1,7 +1,7 @@
 ---
 title: "ABBYY FineReader Powers Preservation: Safeguarding Over 4 Million Pages From Latvia's National Library Across 20 Languages"
-date: 2024-09-13T20:53:31.837Z
-updated: 2024-09-14T21:17:01.053Z
+date: 2024-09-17T01:49:16.753Z
+updated: 2024-09-18T23:31:33.773Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/da7fa3270346efb8a59ee9a2227fafe39fab3e8091406f28b8c4b7ad88c22375.jpg
@@ -68,6 +68,13 @@ The National Library of Latvia (NLL) has amassed 4.5 million paper units, includ
 
 ##### pages of ancient and modern books and periodicals
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 20
 
 ##### different languages
@@ -108,27 +115,20 @@ After the processing, the documents were exported into various formats (PDF, JPE
 
 [![FineReader Engine](https://static2.abbyy.com/abbyycommedia/14346/3-finereader-engine.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FineReader Engine](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![Education](https://static1.abbyy.com/abbyycommedia/14365/15-education.jpg)](https://tools.techidaily.com/abbyy/products/) [Education](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![PDF Version](https://static4.abbyy.com/abbyycommedia/15840/library-of-latvia-pic2.jpg)](https://static3.abbyy.com/abbyycommedia/21239/case-study-latvia-national-library-education-en.pdf "PDF version") [PDF version](https://static3.abbyy.com/abbyycommedia/21239/case-study-latvia-national-library-education-en.pdf "PDF version") 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 [read more](https://static3.abbyy.com/abbyycommedia/21239/case-study-latvia-national-library-education-en.pdf "PDF version") 
 
@@ -161,13 +161,17 @@ We'd love to help you along your automation journey.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/levate-your-videography-7-free-sound-effects-collection/"><u>[New] Elevate Your Videography - 7 Free Sound Effects Collection</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-eco-filmmaking-simplified-youtubes-green-screen-wonders-for-2024/"><u>[Updated] Eco-Filmmaking Simplified YouTube's Green Screen Wonders for 2024</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/convert-your-scanned-documents-and-books-into-editable-text-with-iphone-scanner-app/"><u>Convert Your Scanned Documents & Books Into Editable Text with iPhone Scanner App</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-fueled-solutions-enhancing-user-experience-with-smart-data-tracking/"><u>Cookiebot-Fueled Solutions: Enhancing User Experience with Smart Data Tracking</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-the-essential-ai-driven-tool-enhancing-your-websites-seo/"><u>Cookiebot: The Essential AI-Driven Tool Enhancing Your Website's SEO</u></a></li>
-<li><a href="https://games-able.techidaily.com/elevate-gaming-choose-large-format-cabinet-fronts/"><u>Elevate Gaming: Choose Large-Format Cabinet Fronts!</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-top-10-oppo-a56s-5g-android-sim-unlock-apk-by-drfone-android/"><u>In 2024, Top 10 Oppo A56s 5G Android SIM Unlock APK</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/top-iphone-models-ranked-by-gaming-performance/"><u>Top iPhone Models Ranked by Gaming Performance</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-fostering-connection-through-respectful-engagement/"><u>[New] 2024 Approved Fostering Connection Through Respectful Engagement</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-enhancing-insta-videos-3-simple-border-techniques/"><u>[Updated] 2024 Approved Enhancing Insta Videos 3 Simple Border Techniques</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-leading-picture-holding-portals/"><u>[Updated] Leading Picture Holding Portals</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1-no-cost-online-conversion-transforming-ts-files-into-avi-with-moveavi/"><u>1. No Cost Online Conversion: Transforming TS Files Into AVI with Moveavi</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-behind-the-lens-innovative-techniques-using-hero5-black/"><u>2024 Approved Behind the Lens Innovative Techniques Using Hero5 Black</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1726227018906-webmgif-movavi/"><u>無料でWebMを動画GIFに変換する: Movaviの使い方 - 詳しく解説!</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/free-online-converter-swf-to-wmv-by-movavi-no-cost-transformation/"><u>Free Online Converter: SWF to WMV by Movavi - No Cost Transformation</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-all-about-firefoxs-split-screen-feature/"><u>In 2024, All About Firefox's Split Screen Feature</u></a></li>
+<li><a href="https://extra-support.techidaily.com/luts-application-in-movie-post-production-coloring-for-2024/"><u>Luts Application in Movie Post-Production Coloring for 2024</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/online-flvogg-movavi/"><u>Online FLV/OGG 영상 무료 전환 - Movavi</u></a></li>
+<li><a href="https://fox-that.techidaily.com/solving-iphone-and-computer-connection-issues-a-simple-guide/"><u>Solving iPhone and Computer Connection Issues: A Simple Guide</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-ultimate-guide-mastering-your-chromecast-with-the-perfect-remote-connection/"><u>The Ultimate Guide: Mastering Your Chromecast with the Perfect Remote Connection</u></a></li>
 </ul></div>
 

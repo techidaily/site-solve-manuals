@@ -1,7 +1,7 @@
 ---
 title: ABBYY-Tools Optimieren Den Historiadruckzugang, Fördern Das Verständnis Der Vergangenheit
-date: 2024-09-13T22:15:57.086Z
-updated: 2024-09-14T20:32:56.162Z
+date: 2024-09-12T16:31:18.834Z
+updated: 2024-09-19T03:06:28.816Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b77f4a1b111b54e2805878ed9aa3d1afc9409a9f5cc36ff257194dcf6821d1ac.jpg
@@ -38,6 +38,13 @@ software (OCR) zur Umwandlung der Dokumente in editierbaren Text die ehren amtli
 
 Die Organisation formulierte einige Anforderungen: Zunächst sollte die Software komplexe Layouts in der digitalen Version beibehalten, wie bei farbigen, gescannten Schreibmaschinenseiten in DIN A4-Format mit unterschiedlichen Schriftarten. Weiter war es wichtig, dass das Programm Tabellen erkennen würde, da zahlreiche Quellinformationen in dieser Form vorlagen. Schließlich sollte die gesuchte Software editierbare Tabellenseiten erstellen, als CSV-Dateien ausgeben und direkt in die Datenbank übertragen können.
 
+<!-- affiliate ads begin -->
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
+  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Lösung
 
 DIS-Hordaland untersuchte und testete eine Reihe von OCR-Programmen. Nach reiflicher Überlegung und überzeugt durch die vielfache Listung des Produktes in den Bestenlisten der OCR-Programme entschied sich Tore J. Mehl, eine Lizenz von ABBYY FineReader Professional Edition zu erwerben, um die Funktionen des Programms kennenzulernen. Nach weiteren Untersuchungen und Tests der Software-Funktionalitäten wählte DIS-Hordaland schließlich [ABBYY FineReader](https://tools.techidaily.com/abbyy/products/) als die geeignetste Lösung für ihre Anforderungen aus. „Das letzte Argument, das uns davon überzeugte, dass ABBYY FineReader das richtige Produkt ist, war die Zuverlässigkeit in der Umwandlung von Tabellen – was für uns geschäftsentscheidend ist, da Informationen in Tabellenform so häufig in den Quellen vorkommen. Kein anderes Tool bot eine mit ABBYY vergleichbare Tabellenverarbeitungs - funktion“, erklärt Tore J. Mehl. „Ein weiterer Vorteil war die einfache Bedienung der Software. Wir benötigten ein Programm, das unser Team ohne großes Training sofort einsetzen konnte.“
@@ -46,10 +53,10 @@ Die ehrenamtlichen Mitarbeiter des Projekts belegten einen kurzen Einführungsku
 Handhabung von ABBYY FineReader und zur Erläuterung weiterer wichtiger Aspekte des Projekts. Sie waren mit den Ergebnissen mehr als zufrieden: Die Erkennungstechnologie in ABBYY FineReader ermöglichte es ihnen, die auf Papier und in Bildern enthaltene Information auszulesen und machte das zeitaufwendige Abtippen und manuelle Formatieren so gut wie überflüssig. Der Ablauf gestaltet sich für die Mitarbeiter recht einfach: Papier - dokumente werden gescannt und in ABBYY FineReader geladen. Die Bilder werden in Text umgewandelt und, gemäß DIS-Hordalands Anforderungen, im Microsoft® Excel®-Format ausgegeben. Die Tabelle wird dann in eine Datenbank exportiert und veröffentlicht, sodass sie privaten Nutzern und Forschern auf der ganzen Welt online zur Verfügung steht.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Ergebnis
@@ -65,13 +72,6 @@ Dank ABBYY FineReader sparte DIS-Hordaland signifikant Zeit und Ressourcen ein. 
 [Kontakt ›](https://tools.techidaily.com/abbyy/products/)
 
 Teilen 
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Sind Sie bereit, mit einem Experten zu sprechen?
 
@@ -94,13 +94,21 @@ Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-a-seamless-journey-from-blurred-borders-to-sharp-focus/"><u>[New] A Seamless Journey From Blurred Borders to Sharp Focus</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-a-list-mobile-applications-for-enhanced-gopro-videos/"><u>[Updated] 2024 Approved A-List Mobile Applications for Enhanced GoPro Videos</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/in-2024-2023s-approach-tweeting-from-tiktok/"><u>In 2024, 2023'S Approach Tweeting From TikTok</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/optimize-your-digital-footprint-using-smart-tracking-technology-powered-by-cookiebot/"><u>Optimize Your Digital Footprint Using Smart Tracking Technology - Powered by Cookiebot</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/optimized-with-the-help-of-cookiebot-boost-your-websites-performance/"><u>Optimized with the Help of Cookiebot: Boost Your Website's Performance</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/optimizing-with-cookiebot-smart-website-analytics-and-personalization-tools/"><u>Optimizing with Cookiebot: Smart Website Analytics and Personalization Tools</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/ultimate-capture-app-windows-10-edition-for-2024/"><u>Ultimate Capture App - Windows 10 Edition for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/unmatched-quick-windows-picture-browser-for-2024/"><u>Unmatched Quick Windows Picture Browser for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-smiles-to-text-where-to-find-amusing-tones/"><u>[New] 2024 Approved Smiles to Text Where to Find Amusing Tones?</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1-quick-guide-watching-your-videos-anywhere-convert-wmv-files-to-vob-format-with-ease/"><u>1. Quick Guide: Watching Your Videos Anywhere - Convert WMV Files to VOB Format with Ease!</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/10-guide-complet-des-11-meilleurs-choix/"><u>10 - Guide Complet Des 11 Meilleurs Choix</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-fastest-8-capture-tools-unveiled/"><u>2024 Approved Fastest 8 Capture Tools Unveiled</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1726222165241-mpeg-movavi/"><u>電腦平台MPEG靜止及動態視頻形式改變 – Movavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/movavi-vob-mjpeg/"><u>完美解決方法：以Movavi 轉換器將線上VOB文件自動改為 MJPEG格式</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/capturando-solo-una-parte-de-la-pantalla-con-windows/"><u>Capturando Solo Una Parte De La Pantalla Con Windows</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/descargar-y-convertir-archivos-mkv-a-formato-wav-sin-coste-guia-paso-a-paso-con-movavi/"><u>Descargar Y Convertir Archivos MKV a Formato WAV Sin Coste: Guía Paso a Paso Con Movavi</u></a></li>
+<li><a href="https://video-capture.techidaily.com/effortless-conversion-techniques-from-dvds-to-ipod-touch-a-step-by-step-tutorial/"><u>Effortless Conversion Techniques From DVDs to iPod Touch – A Step-by-Step Tutorial</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/exploring-the-latest-gadgets-with-toms-computer-diary/"><u>Exploring the Latest Gadgets with Tom's Computer Diary</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/free-video-openings-that-stand-out-today-for-2024/"><u>Free Video Openings That Stand Out Today for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-trouble-with-apple-iphone-14-plus-swipe-up-try-these-11-solutions-drfone-by-drfone-ios/"><u>In 2024, Trouble with Apple iPhone 14 Plus Swipe-Up? Try These 11 Solutions | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-unlock-the-magic-creating-breathtaking-gopro-time-lapse-videos/"><u>In 2024, Unlock the Magic Creating Breathtaking GoPro Time-Lapse Videos</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/rapid-video-capture-software-w-audible-commentaries/"><u>Rapid Video Capture Software W/ Audible Commentaries</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/top-10-budget-friendly-jpeg-to-gif-conversion-tools-online-for-2024/"><u>Top 10 Budget-Friendly JPEG to GIF Conversion Tools Online for 2024</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/top-10-risorse-online-per-scaricare-cartoons-free-nel-2024-guida-seo/"><u>Top 10 Risorse Online Per Scaricare Cartoons Free Nel 2024 - Guida SEO</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Leading Identity Provider Applications in the USA, Europe, and Asia-Pacific Regions
-date: 2024-09-08T19:17:10.519Z
-updated: 2024-09-14T21:08:27.178Z
+date: 2024-09-18T01:30:49.460Z
+updated: 2024-09-18T22:00:12.718Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7491070a9335b06cf0f788f98c5ea183aa46a07a80cbbf656563b42cbf1b4542.jpg
@@ -40,13 +40,6 @@ Invoice processing has long been a priority for ABBYY customers and represents a
 
 [ABBYY customer JLL](https://tools.techidaily.com/abbyy/products/)—a commercial real estate giant—used ABBYY’s cloud-based IDP solution to save millions of dollars by automating invoicing and payment processes. This global Source-to-Pay (S2P) automation initiative exceeded the Fortune 500 company’s business goals and led to the CIO 100 award, acknowledging ABBYY and JLL’s success in setting a new standard in Source-to-Pay.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Europe
 
 In Europe, document processing priorities for ABBYY customers focus highly on transportation-and-logistics-related documents, with 41 percent requesting document processing skills for **air waybills** and 27 percent requesting skills for **customs declarations documents and international consignment notes**. We attribute this trend to the high prevalence of commerce between the European Union (EU) and non-EU member countries, particularly following Brexit.
@@ -67,6 +60,13 @@ The full report can be accessed [here](https://tools.techidaily.com/abbyy/produc
 
 ![Slavenahristova 99X99](https://static4.abbyy.com/abbyycommedia/25713/slavenahristova-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Slavena Hristova
 
 Director of Product Marketing, Vantage group at ABBYY
@@ -75,18 +75,18 @@ Slavena Hristova is Director of Product Marketing, Vantage at ABBYY. Hristova le
 
 Connect with Slavena on [LinkedIn](https://www.linkedin.com/in/slavena-hristova-r%C3%B6%C3%9Fler-044aa05a/).
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Additional Insights:
 
 1 / 3 
 
 [![Are Large Language Models (LLMs) the Future?](https://static2.abbyy.com/abbyycommedia/37511/are-llms-the-future_848x444.jpg) **Are Large Language Models (LLMs) the Future?** Read more](https://tools.techidaily.com/abbyy/products/) [![The Gap Is Closing Between AI Innovation and Time-to-Value](https://static4.abbyy.com/abbyycommedia/37512/executive-insight_848x444.jpg) **The Gap Is Closing Between AI Innovation and Time-to-Value** Read more](https://tools.techidaily.com/abbyy/products/) [![How Banks Are Meeting Compliance Regulations and Fighting Fraud with AI and Machine Learning](https://static3.abbyy.com/abbyycommedia/37506/how-banks-fight-fraud-with-ai-and-ml_848x444.jpg) **How Banks Are Meeting Compliance Regulations and Fighting Fraud with AI and Machine Learning** Read more](https://tools.techidaily.com/abbyy/products/) [![How Process Mining Improves Business Processes and Prevents Cyber Threats](https://static3.abbyy.com/abbyycommedia/37507/howprocessminingpreventscyberthreats_848x444.jpg) **How Process Mining Improves Business Processes and Prevents Cyber Threats** Read more](https://tools.techidaily.com/abbyy/products/) [![Customer Point of View: Process Mining Reveals $6 Million in Savings](https://static2.abbyy.com/abbyycommedia/37509/leading-financial-institution-saves-millions_848x444.jpg) **Customer Point of View: Process Mining Reveals $6 Million in Savings** Read more](https://tools.techidaily.com/abbyy/products/) [![The Second Tax Revolution—How Trustworthy AI Transforms Online Tax Filing](https://static1.abbyy.com/abbyycommedia/37510/the-second-tax-revolution_848x444.jpg) **The Second Tax Revolution—How Trustworthy AI Transforms Online Tax Filing** Read more](https://tools.techidaily.com/abbyy/products/) [![Is Generative AI Trustworthy?](https://static2.abbyy.com/abbyycommedia/37531/ai-and-the-big-question_848x444.jpg) **Is Generative AI Trustworthy?** Read more](https://tools.techidaily.com/abbyy/products/) [![How AI Can Help Government Agencies Win at Total Experience (TX)](https://static5.abbyy.com/abbyycommedia/37014/government_1214434168_848x444.jpg) **How AI Can Help Government Agencies Win at Total Experience (TX)** Read more](https://tools.techidaily.com/abbyy/products/) [![Creating an Intelligent Automation Symphony](https://static1.abbyy.com/abbyycommedia/36940/tlp_ia_orchestra_485765348_848x444.jpg) **Creating an Intelligent Automation Symphony** Read more](https://tools.techidaily.com/abbyy/products/) [![Document AI Creating a Safer World](https://static1.abbyy.com/abbyycommedia/37016/saferworld_863497498_848x444.jpg) **Document AI Creating a Safer World** Read more](https://tools.techidaily.com/abbyy/products/) [![Customer Point of View: Approach Automation Step by Step](https://static4.abbyy.com/abbyycommedia/37013/fte_613347676_848x444.jpg) **Customer Point of View: Approach Automation Step by Step** Read more](https://tools.techidaily.com/abbyy/products/) [![Top Reasons Why Customers Abandon Your Onboarding Processes...and How to Fix Them](https://static1.abbyy.com/abbyycommedia/37015/onboarding_875247286_848x444.jpg) **Top Reasons Why Customers Abandon Your Onboarding Processes...and How to Fix Them** Read more](https://tools.techidaily.com/abbyy/products/) 
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### Subscribe for updates
 
@@ -145,19 +145,15 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-inaugural-vision-preservation-review-and-alternate-suggestions/"><u>[Updated] 2024 Approved Inaugural Vision Preservation Review & Alternate Suggestions</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/2024-approved-best-ringtones-roundup-essential-sites/"><u>2024 Approved Best Ringtones Roundup Essential Sites</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/abbey/"><u>損害賠償申請プロセスの流れを適切にコントロールしている方法 | ABBEYブック</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/a-retrospective-journey-through-2018-what-has-changed-thought-leadership-at-abbyy-blog/"><u>A Retrospective Journey Through 2018: What Has Changed? | Thought Leadership at ABBYY Blog</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/abbyy-study-shows-finance-professionals-uphold-regulations-more-than-public-servants-exclusive-insights/"><u>ABBYY Study Shows Finance Professionals Uphold Regulations More Than Public Servants - Exclusive Insights</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/abbyy-welcomes-torsten-malchow-as-new-vp-and-head-of-worldwide-enterprise-solutions/"><u>ABBYY Welcomes Torsten Malchow as New VP and Head of Worldwide Enterprise Solutions</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/abbyys-growth-trajectory-accelerates-in-asia-pacific-with-key-acquisition-of-pericom-singapore/"><u>ABBYY's Growth Trajectory Accelerates in Asia Pacific with Key Acquisition of Pericom Singapore</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/boost-conversion-rates-discover-the-advanced-capabilities-of-cookiebot-analytics/"><u>Boost Conversion Rates: Discover the Advanced Capabilities of Cookiebot Analytics</u></a></li>
-<li><a href="https://os-tips.techidaily.com/effortlessly-restore-from-backup-discover-these-3-key-techniques-for-your-iphone/"><u>Effortlessly Restore From Backup: Discover These 3 Key Techniques for Your iPhone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-stop-google-chrome-from-tracking-your-location-on-motorola-edge-40-pro-drfone-by-drfone-virtual-android/"><u>How to Stop Google Chrome from Tracking Your Location On Motorola Edge 40 Pro? | Dr.fone</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-the-art-of-accompanying-visual-content-with-music/"><u>In 2024, The Art of Accompanying Visual Content with Music</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/mastering-the-art-of-keeping-a-record-accessing-past-chatgpt-exchanges-easily/"><u>Mastering the Art of Keeping a Record: Accessing Past ChatGPT Exchanges Easily</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/mastering-the-fix-strategies-to-repair-videodxgkrnl-catastrophic-failures-in-windows/"><u>Mastering the Fix: Strategies to Repair Video_dxgkrnl Catastrophic Failures in Windows</u></a></li>
-<li><a href="https://win-able.techidaily.com/ultimate-guide-to-prevent-hitman-3-from-freezing-on-pc-expert-tips-inside/"><u>Ultimate Guide to Prevent Hitman 3 From Freezing on PC - Expert Tips Inside</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-boost-viewers-interaction-via-youtube-cards-for-2024/"><u>[Updated] Boost Viewers Interaction via YouTube Cards for 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-how-to-share-facebook-videos-to-whatsapp/"><u>[Updated] In 2024, How to Share Facebook Videos to WhatsApp?</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/disney-dvddvd/"><u>如何去除Disney DVD的安全锁和将DVD刻录成其他格式指南</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/best-5-web-video-recorders/"><u>Best 5 Web Video Recorders</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/building-business-via-beauty-vlogs/"><u>Building Business via Beauty Vlogs</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/gratis-digitaal-converter-versterk-uw-soundfiles-van-wav-tot-flacaiff-via-movavi/"><u>Gratis Digitaal Converter: Versterk Uw Soundfiles Van WAV Tot FLAC/AIFF via Movavi</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-6-appsservices-to-trace-any-vivo-v30-pro-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, Top 6 Apps/Services to Trace Any Vivo V30 Pro Location By Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-final-cut-pro-vs-lumafusion-a-comprehensive-guide-to-choosing-the-best-video-editor/"><u>New Final Cut Pro vs LumaFusion A Comprehensive Guide to Choosing the Best Video Editor</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/transform-your-photos-downloadable-no-cost-arw-to-png-converter-by-movavi/"><u>Transform Your Photos: Downloadable, No-Cost ARW to PNG Converter by Movavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/wmv-gif/"><u>WMV를 GIF으로 자유성: 인터넷 연구소의 오픈 마이크스 비디오 변환 도구</u></a></li>
 </ul></div>
 

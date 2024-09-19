@@ -1,7 +1,7 @@
 ---
 title: ABBYY Welcomes Torsten Malchow as New VP and Head of Worldwide Enterprise Solutions
-date: 2024-09-08T22:04:16.074Z
-updated: 2024-09-14T18:41:07.104Z
+date: 2024-09-12T21:31:14.079Z
+updated: 2024-09-19T03:36:41.964Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/aeb1adbf149584a341fb74f49144490d740789721f41a9cf0edd89a122f69cd4.jpg
@@ -59,27 +59,28 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-in-depth-recmaster-screen-capture-analysis/"><u>[New] 2024 Approved In-Depth Recmaster Screen Capture Analysis</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/xploring-biggest-fifa-footage-trends-in-graphics-for-2024/"><u>[New] Exploring Biggest FIFA Footage Trends in Graphics for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-top-10-iphone-and-android-video-editing-apps-for-gopro/"><u>[New] In 2024, Top 10 iPhone & Android Video Editing Apps for GoPro</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-navigating-the-nuances-of-ppt-voiceover-performance-for-2024/"><u>[New] Navigating the Nuances of PPT Voiceover Performance for 2024</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/1724313535664-abbyy/"><u>「タスクマイニングの基礎: 効率的なワークフローへの道」 - ABBYYブログで探るタスク分析と自動化</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-the-ultimate-hdr-conversion-playbook-starting-with-sdr/"><u>2024 Approved The Ultimate HDR Conversion Playbook - Starting with SDR</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-top-pick-screen-capture-tools-for-apple-devices/"><u>2024 Approved Top Pick Screen Capture Tools for Apple Devices</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/abbyy-welcomes-tomohito-shimizu-as-new-head-of-its-japan-operations/"><u>ABBYY Welcomes Tomohito Shimizu as New Head of Its Japan Operations</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/boost-your-sites-traffic-with-cookiebot-the-smart-way/"><u>Boost Your Site's Traffic with Cookiebot - The Smart Way</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/boosting-efficiency-in-rhenus-logistics-through-abbyy-intelligent-document-processor/"><u>Boosting Efficiency in Rhenus Logistics Through ABBYY Intelligent Document Processor</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/comprehensive-analysis-on-ai-driven-customer-onboarding-key-trends-challenges-and-strategies/"><u>Comprehensive Analysis on AI-Driven Customer Onboarding: Key Trends, Challenges & Strategies</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/1724313295714-dx/"><u>DX初心者をサポートする入門書リスト</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-spoofing-life360-how-to-do-it-on-vivo-v30-lite-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Spoofing Life360 How to Do it on Vivo V30 Lite 5G? | Dr.fone</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-depth-review-picsart-features-and-use-for-2024/"><u>In-Depth Review PicsArt Features and Use for 2024</u></a></li>
-<li><a href="https://techtrends.techidaily.com/ultimate-list-of-66-twitter-accounts-for-savvy-travelers-discounts-insights-and-journeys/"><u>Ultimate List of 66 Twitter Accounts for Savvy Travelers: Discounts, Insights & Journeys</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-pioneering-affordable-switch-emulators/"><u>[New] In 2024, Pioneering Affordable Switch Emulators</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-seamless-transition-turning-mac-videos-into-discs/"><u>[New] Seamless Transition Turning Mac Videos Into Discs</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-discovering-an-original-tiktok-identifier-code-for-2024/"><u>[Updated] Discovering an Original TikTok Identifier Code for 2024</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/descubre-el-secreto-de-uniformizar-ediciones-en-adobe-after-effects-una-guia-completa/"><u>Descubre El Secreto De Uniformizar Ediciones en Adobe After Effects: Una Guía Completa</u></a></li>
+<li><a href="https://change-location.techidaily.com/home-button-not-working-on-motorola-moto-g24-here-are-real-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Home Button Not Working on Motorola Moto G24? Here Are Real Fixes | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-iphone-15-pro-max-without-swiping-up-6-ways-by-drfone-ios/"><u>How To Unlock iPhone 15 Pro Max Without Swiping Up? 6 Ways</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-content-spotlight-platform-perks-compared/"><u>In 2024, Content Spotlight Platform Perks Compared</u></a></li>
+<li><a href="https://win-blog.techidaily.com/resolved-issues-with-starting-red-dead-redemption-2-now-fixed/"><u>Resolved: Issues with Starting Red Dead Redemption 2 Now Fixed</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/transfer-data-seamlessly-from-ios-to-windows-11-explore-the-top-7-mirroring-solutions-tips-from-movavi/"><u>Transfer Data Seamlessly From iOS to Windows 11: Explore the Top 7 Mirroring Solutions - Tips From Movavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/online-wma-to-flac-movavi/"><u>우아하고 응답성 있는 Online WMA to FLAC 전환 서비스 – Movavi가 제공합니다</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983549">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

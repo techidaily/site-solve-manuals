@@ -1,7 +1,7 @@
 ---
 title: "人工知能文字認識の新時代:株式会社MAIAがABBYY FlexiCapture用に最適化したAI-OCR学習キット - ABBYYニュース"
-date: 2024-09-09T19:06:03.323Z
-updated: 2024-09-14T21:36:47.154Z
+date: 2024-09-15T02:16:04.074Z
+updated: 2024-09-18T20:10:24.393Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1dd490a8bd0fd9490b2a1a7e2f3e07f4fe288167493a224a8c1401933c662484.jpeg
@@ -59,22 +59,31 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/nteractive-elements-crafting-effective-youtube-annotations/"><u>[New] Interactive Elements Crafting Effective YouTube Annotations</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-premier-mp4-to-fb-video-transforming-tools/"><u>[Updated] Premier MP4 to FB Video Transforming Tools</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/achieve-better-insights-without-compromising-on-data-security-discover-our-automated-tracking-technology/"><u>Achieve Better Insights without Compromising on Data Security: Discover Our Automated Tracking Technology</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/automated-conversion-tracking-with-advanced-analytics-by-cookiebot/"><u>Automated Conversion Tracking with Advanced Analytics by Cookiebot</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/boost-your-online-presence-using-cookiebot-technology-tailored-analytics-and-targeting-solutions/"><u>Boost Your Online Presence Using Cookiebot Technology - Tailored Analytics & Targeting Solutions</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-teleport-your-gps-location-on-nokia-c12-drfone-by-drfone-virtual-android/"><u>How To Teleport Your GPS Location On Nokia C12? | Dr.fone</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-mastering-image-warping-techniques/"><u>In 2024, Mastering Image Warping Techniques</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-stay-in-the-limelight-how-to-keep-youtube-cc-and-boost-views/"><u>In 2024, Stay in the Limelight How to Keep YouTube CC and Boost Views</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-transform-spaces-and-elevate-brands-the-ultimate-apps-list-for-youtube-artistry/"><u>In 2024, Transform Spaces & Elevate Brands The Ultimate Apps List for YouTube Artistry</u></a></li>
-<li><a href="https://win-answers.techidaily.com/1722982694034-unlock-your-game-overcoming-launch-hurdles-with-dead-space-remake-tips-for-202-grooping-the-latest-trends-in-gaming-troubleshooting/"><u>Unlock Your Game: Overcoming Launch Hurdles with Dead Space Remake, Tips for 202 Grooping the Latest Trends in Gaming Troubleshooting.</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-capture-and-record-every-sound-on-your-pc-with-x-recorder/"><u>[New] In 2024, Capture & Record Every Sound on Your PC with X-Recorder</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-practical-guide-to-swapping-gender-representation-online-from-basics-to-expertise/"><u>[New] Practical Guide to Swapping Gender Representation Online From Basics to Expertise</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-expert-schematic-designing-stopwatches-for-streaming-software-for-2024/"><u>[Updated] Expert Schematic Designing Stopwatches for Streaming Software for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-food-filmmakers-blueprint-techniques-and-tricks/"><u>[Updated] The Food Filmmaker’s Blueprint Techniques and Tricks</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-xiaomi-13t-pro-drfone-by-drfone-virtual-android/"><u>Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Xiaomi 13T Pro? | Dr.fone</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/conversion-bmp-a-tiff-gratuite-sur-ligne-utilisez-movavi/"><u>Conversion BMP À TIFF Gratuite Sur Ligne - Utilisez Movavi</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/expertise-in-windows-media-player-for-streamlined-audio-conversion-for-2024/"><u>Expertise in Windows Media Player for Streamlined Audio Conversion for 2024</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/free-conversion-change-your-files-from-aiff-to-wma-using-an-online-tool/"><u>Free Conversion: Change Your Files From AIFF to WMA Using an Online Tool</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/grabacion-de-audio-gratuita-para-windows-y-macos/"><u>Grabación De Audio Gratuita Para Windows Y macOS</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-expertly-easy-timekeepers-without-a-price-tag/"><u>In 2024, Expertly Easy Timekeepers Without a Price Tag</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/os-9-melhores-concorrentes-gratuitos-online-ideais-para-fazer-videos-perfeitos-no-youtube/"><u>Os 9 Melhores Concorrentes Gratuitos Online Ideais Para Fazer Vídeos Perfeitos No YouTube</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/transformez-gratuitement-un-fichier-pbm-en-format-png-avec-movavi-convertissez-facilement-et-sans-frais/"><u>Transformez Gratuitement Un Fichier PBM en Format PNG Avec Movavi - Convertissez Facilement Et Sans Frais !</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/ultimate-window-cleaner-stellar-file-eraser-pro-v5-securely-wipe-out-files-and-folders/"><u>Ultimate Window Cleaner: Stellar File Eraser Pro V5 - Securely Wipe Out Files & Folders</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982461">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

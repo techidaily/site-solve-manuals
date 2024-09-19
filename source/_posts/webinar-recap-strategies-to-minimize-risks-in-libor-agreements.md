@@ -1,7 +1,7 @@
 ---
 title: "Webinar Recap: Strategies to Minimize Risks in LIBOR Agreements"
-date: 2024-09-07T21:56:43.369Z
-updated: 2024-09-14T17:15:59.701Z
+date: 2024-09-14T17:02:13.097Z
+updated: 2024-09-18T17:59:38.406Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/de4f0312e209bc69406fe77be7db4ffab9fd4723c69e6ec9a49854fd1e940559.jpg
@@ -36,27 +36,27 @@ How ready is your organization, and where do you stand in comparison to other fi
 Please note that progressive profiling is used on this form to incrementally collect profile data over time.   
 All personal information collected via this method is under full scope of all provisions in our privacy policy.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115911/19272" target="_top" id="2115911">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115911" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115911/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Thank you for registering!
 
 [![Mitigating Risk from LIBOR Contracts](https://static3.abbyy.com/abbyycommedia/29685/01-mitigating-risk-from-libor-contracts-en-643x363.jpg)](https://www.youtube.com/watch?v=aftXSUvP4JU) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115940/19272" target="_top" id="2115940">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115940" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115940/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Please check your inbox, we have sent you a confirmation email.
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087390/7443" target="_top" id="2087390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)
 
@@ -123,18 +123,17 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-easy-methods-for-saving-youtube-videos-for-2024/"><u>[New] Easy Methods for Saving YouTube Videos for 2024</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/1-automated-conversion-tracking-enhanced-with-cookiebot-technology/"><u>1. Automated Conversion Tracking: Enhanced with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/1724313623358-abbyy-flexicapture/"><u>高付加価値への転換:ABBYY FlexiCapture®による請求書プロセス改革とデジタル技術活用</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/abbyy-launches-cutting-edge-research-facility-in-india/"><u>ABBYY Launches Cutting-Edge Research Facility in India</u></a></li>
-<li><a href="https://win-dash.techidaily.com/effortless-download-of-corsair-driver-software-for-your-windows-pc/"><u>Effortless Download of Corsair Driver Software for Your Windows PC</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-your-oppo-a78-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Your Oppo A78 Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/precision-control-for-incredible-android-time-lapses-for-2024/"><u>Precision Control for Incredible Android Time-Lapses for 2024</u></a></li>
-<li><a href="https://win-answers.techidaily.com/resolving-gpeditmsc-missing-on-windows-home-systems/"><u>Resolving 'gpedit.msc' Missing on Windows Home Systems</u></a></li>
-<li><a href="https://win-blog.techidaily.com/solving-phasmophobia-vr-malfunctions-a-step-by-step-guide/"><u>Solving Phasmophobia VR Malfunctions: A Step-by-Step Guide</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/to-trust-or-not-to-trust-in-local-llm-heres-the-scoop/"><u>To Trust or Not to Trust in Local LLM? Here's the Scoop</u></a></li>
-<li><a href="https://some-skills.techidaily.com/top-open-source-video-tools-for-every-desktop-environment-for-2024/"><u>Top Open Source Video Tools for Every Desktop Environment for 2024</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/unleashing-potential-with-cookiebot-technology-for-websites/"><u>Unleashing Potential with Cookiebot Technology for Websites</u></a></li>
-<li><a href="https://howto.techidaily.com/what-to-do-if-your-nokia-c22-auto-does-not-work-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do if Your Nokia C22 Auto Does Not Work | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nending-shutdown-method-how-to-kill-off-youtube-shorts-for-2024/"><u>[New] Unending Shutdown Method How to Kill Off Youtube Shorts for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-ideal-echo-reapers-in-colleges/"><u>2024 Approved Ideal Echo Reapers in Colleges</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/conversion-gratuite-dimage-tiff-en-jpeg-enligne-utilisez-le-service-de-convertisseur-de-movavi/"><u>Conversion Gratuite D'Image TIFF en JPEG Enligne - Utilisez Le Service De Convertisseur De Movavi</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-techniques-for-discarding-backlogged-youtube-videos/"><u>In 2024, Techniques for Discarding Backlogged YouTube Videos</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/maximizing-performance-ideal-obs-setup-tips-for-entry-level-desktops-and-laptops/"><u>Maximizing Performance: Ideal OBS Setup Tips for Entry-Level Desktops and Laptops</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/overcome-load-issues-in-cold-war-solutions-for-gamers-using-pc-or-consoles/"><u>Overcome Load Issues in 'Cold War': Solutions for Gamers Using PC or Consoles</u></a></li>
+<li><a href="https://windows11.techidaily.com/rog-ally-vs-asus-who-wins-the-steam-deck-war/"><u>ROG Ally Vs. ASUS: Who Wins the Steam Deck War?</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/sharing-screens-seamlessly-across-pc-and-mobile-with-discord/"><u>Sharing Screens Seamlessly Across PC & Mobile with Discord</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/the-definitive-guide-to-fixing-ksuserdll-not-detected-error-for-smooth-operations/"><u>The Definitive Guide to Fixing 'ksuser.dll' Not Detected Error for Smooth Operations</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/the-messenger-maestros-guide-to-capturing-social-media-videos-for-2024/"><u>The Messenger Maestro's Guide to Capturing Social Media Videos for 2024</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/ultimate-guide-the-13-premier-recording-tools-for-your-pcs-webcam-on-windows/"><u>Ultimate Guide: The 13 Premier Recording Tools for Your PC's Webcam on Windows</u></a></li>
+<li><a href="https://some-skills.techidaily.com/understanding-the-process-of-wireless-electric-vehicle-charging/"><u>Understanding the Process of Wireless Electric Vehicle Charging</u></a></li>
 </ul></div>
 

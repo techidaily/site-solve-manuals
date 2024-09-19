@@ -1,7 +1,7 @@
 ---
 title: Top-Ranked Transpo Cost Control Firm Accelerates Bill Approvals via Intelligent Data Systems
-date: 2024-09-12T20:35:37.388Z
-updated: 2024-09-14T18:33:35.517Z
+date: 2024-09-17T21:45:21.643Z
+updated: 2024-09-18T18:00:58.907Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4703b9d657812b3886216df90e44b1d9ef5fb3878b6869f4909ce7c65740d3ae.jpg
@@ -58,22 +58,16 @@ AFS, a world-leader in transportation cost management, processes 70,000,000 invo
 
 paper invoices a year
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1167086/14483" target="_top" id="1167086">
+  <img src="//a.impactradius-go.com/display-ad/14483-1167086" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1167086/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### a **50**% drop
 
 of turnaround time
-
-<!-- affiliate ads begin -->
-<span id="1542129">
-					<video width="864" height="1152" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### $**60,000** of
 
@@ -116,10 +110,10 @@ And how has FlexiCapture delivered during this hectic growth period? “Brillian
 [![PDF Version](https://static3.abbyy.com/abbyycommedia/38090/ds-260_afs-case-study_thumbnails-gray-360-162.jpg)](https://static3.abbyy.com/abbyycommedia/38077/customer-story-intelligent-document-processing-transportation-afs-en.pdf "PDF version") [PDF version](https://static3.abbyy.com/abbyycommedia/38077/customer-story-intelligent-document-processing-transportation-afs-en.pdf "PDF version") 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [read more](https://static3.abbyy.com/abbyycommedia/38077/customer-story-intelligent-document-processing-transportation-afs-en.pdf "PDF version") 
@@ -153,19 +147,20 @@ We'd love to help you along your automation journey.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-discover-sj7s-breakthrough-in-high-definition-4k-action-cameras-for-2024/"><u>[New] Discover SJ7’s Breakthrough in High-Definition 4K Action Cameras for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-enhancing-professionalism-blurring-teambackgrounds-effectively/"><u>[New] Enhancing Professionalism Blurring TeamBackgrounds Effectively</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-efficiently-embedding-your-imovie-clips-in-a-vimeo-account/"><u>[New] In 2024, Efficiently Embedding Your iMovie Clips in a Vimeo Account</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-little-drivers-lively-gameplay/"><u>[New] Little Drivers' Lively Gameplay</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-mastering-pc-gaming-capturing-your-adventures-on-win10-for-2024/"><u>[Updated] Mastering PC Gaming Capturing Your Adventures on Win10 for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-art-of-affordable-video-ad-design-for-youtube-success/"><u>[Updated] The Art of Affordable Video Ad Design for YouTube Success</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-solutions-enhance-your-websites-performance/"><u>Cookiebot-Enabled Solutions: Enhance Your Website's Performance</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-enhancing-your-sites-user-experience-with-personalized-tracking/"><u>Cookiebot-Enabled: Enhancing Your Site's User Experience with Personalized Tracking</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-enhanced-sites-experience-advanced-personalization-and-analytics/"><u>Cookiebot-Enhanced Sites: Experience Advanced Personalization and Analytics</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-enhanced-tailored-experiences-with-smart-tracking-technology/"><u>Cookiebot-Enhanced: Tailored Experiences with Smart Tracking Technology</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/deloitte-et-abbyy-unissent-forces-pour-transformer-les-processus-operationnels-clientiels-par-lautomatisation/"><u>Deloitte Et ABBYY Unissent Forces Pour Transformer Les Processus Opérationnels Clientiels Par L'Automatisation</u></a></li>
-<li><a href="https://location-social.techidaily.com/simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-realme-12-5g-drfone-by-drfone-virtual-android/"><u>Simple and Effective Ways to Change Your Country on YouTube App Of your Realme 12 5G | Dr.fone</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/the-playback-paradox-starting-at-the-finish-line-on-youtube-for-2024/"><u>The Playback Paradox Starting at the Finish Line on YouTube for 2024</u></a></li>
-<li><a href="https://fox-that.techidaily.com/1721466911363-the-ultimate-guide-to-fixing-ghost-touch-on-iphones-learn-from-the-top-10-tips/"><u>The Ultimate Guide to Fixing Ghost Touch on iPhones - Learn From the Top 10 Tips!</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-7-comedy-youtube-video-ideas-that-funny-people-can-try/"><u>[Updated] 7 Comedy YouTube Video Ideas That Funny People Can Try</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/6-ultimate-free-film-editor-applications-no-cost-options/"><u>6 Ultimate Free Film Editor Applications - No Cost Options</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/movavi-ogv-mov/"><u>免費線上服務：Movavi提供的 OGV 和 MOV 影片專家轉換器</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/beginners-guide-the-15-leading-video-editing-programs-easy-to-use/"><u>Beginner's Guide: The 15 Leading Video Editing Programs Easy To Use</u></a></li>
+<li><a href="https://fox-access.techidaily.com/fast-forward-altering-instagram-stories-tempo/"><u>Fast-Forward Altering Instagram Stories' Tempo</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/gratis-digitaal-converter-versterk-uw-soundfiles-van-wav-tot-flacaiff-via-movavi/"><u>Gratis Digitaal Converter: Versterk Uw Soundfiles Van WAV Tot FLAC/AIFF via Movavi</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-vivo-x-fold-2-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Vivo X Fold 2 | Dr.fone</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/in-2024-discord-broadcast-mastery-the-ultimate-guide-for-novices-and-pros/"><u>In 2024, Discord Broadcast Mastery The Ultimate Guide for Novices and Pros</u></a></li>
+<li><a href="https://techtrends.techidaily.com/leading-retailers-for-high-quality-smartphone-shopping/"><u>Leading Retailers for High-Quality Smartphone Shopping</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1726227583001-movavi-video-editor/"><u>Movavi Video Editor: 高效下载与使用指南</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/top-18-editores-de-peliculas-sin-costo-para-windows-11-8-y-7-guia-completa/"><u>Top 18 Editores De Películas Sin Costo Para Windows 11, 8 Y 7: Guía Completa</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-stories-googles-pivotal-news-highlights/"><u>Top Stories: Google's Pivotal News Highlights</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/transform-your-mp4-footage-into-high-quality-content-using-movavis-editing-tool/"><u>Transform Your MP4 Footage Into High-Quality Content Using Movavi's Editing Tool</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/unveiling-the-ultimate-vr-experience-the-htc-vive-story-for-2024/"><u>Unveiling the Ultimate VR Experience The HTC Vive Story for 2024</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-2024-approved-catchy-counterpoint-the-best-backwards-song-videos-of-this-year/"><u>Updated 2024 Approved Catchy Counterpoint The Best Backwards Song Videos of This Year</u></a></li>
 </ul></div>
 

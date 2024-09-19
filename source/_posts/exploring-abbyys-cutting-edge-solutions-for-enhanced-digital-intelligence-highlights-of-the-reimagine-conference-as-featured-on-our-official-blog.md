@@ -1,7 +1,7 @@
 ---
 title: Exploring ABBYY's Cutting-Edge Solutions for Enhanced Digital Intelligence – Highlights of the Reimagine Conference as Featured on Our Official Blog
-date: 2024-09-07T18:03:40.129Z
-updated: 2024-09-14T18:51:28.717Z
+date: 2024-09-16T18:43:17.009Z
+updated: 2024-09-19T00:19:24.912Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d67db43bd99257f0af99e68e427f312b6fcddd2d0ff0d753e05a7e79c9663b0b.jpg
@@ -64,13 +64,6 @@ Visit the FlexiCapture web page for more information about the [Timeline for Fle
 
 ABBYY will have several technology partners share how they integrate ABBYY Digital Intelligence to achieve intelligent automation leveraging multiple tools ranging from machine learning, analytics, process mining, business intelligence, and RPA. The integrated approach promotes what Gartner refers to as hyperautomation using best-in-breed technology. Partners presenting during ABBYY Reimagine sessions include Gold sponsors EXL, Blue Prism, and Alteryx, as well as other technology partners PwC and Capitalize Analytics.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123479/16836" target="_top" id="2123479">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123479" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123479/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **ABBYY partners with Capitalize Analytics to deliver end-to-end process insight to achieve operational excellence**
 
 ABBYY has partnered with Capitalize Analytics, a business intelligence and consulting firm that specializes in leveraging data automation and monitorization tools to provide end-to-end process understanding of organizations’ operations. Capitalize Analytics provides consulting services to companies that leverage various platforms such as ABBYY Timeline, Tableau, Power BI, and UiPath and is an Alteryx North American Partner of the Year.
@@ -78,6 +71,19 @@ ABBYY has partnered with Capitalize Analytics, a business intelligence and consu
 Capitalize leverages industry-leading solutions to enable companies to make better decisions by uncovering, discovering, and extracting what’s hidden within data, so leaders can understand that data, and make informed decisions to improve operational performance.
 
 ![digital transformation technology](https://static1.abbyy.com/abbyycommedia/32426/b-4.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1630055">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 During the ABBYY Reimagine Reveal session, Capitalize demonstrates using the Alteryx platform to analyze and monitor data from multiple sources. It starts with data incoming from unstructured invoices via ABBYY Vantage, customer information sourced from Salesforce, and purchase order information pulled from Microsoft Dynamics and shows how the various data can be fed into ABBYY Timeline for process understanding and also into Excel, Power BI, and Tableau Dashboard for additional analytics information.
 
@@ -91,13 +97,6 @@ If you are unable to join us live, ABBYY Reimagine sessions will be available on
 
 ![Bruce Orcutt ABBYY](https://static5.abbyy.com/abbyycommedia/25719/bruceorcutt-99x99.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Bruce Orcutt
 
 Senior Vice President of Product Marketing at ABBYY
@@ -105,6 +104,13 @@ Senior Vice President of Product Marketing at ABBYY
 Bruce Orcutt is a veteran Product Marketing and Product Management professional with over 20 years’ experience in Enterprise Software. Bruce drives global product marketing for ABBYY's intelligent automation solutions that create business value for organizations. His go-to-market strategies accelerate the adoption of ABBYY solutions worldwide.
 
 Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094428/7443" target="_top" id="2094428">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094428" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094428/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -169,18 +175,20 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-spy-on-fb-chronicles-discreetly/"><u>[New] 2024 Approved Spy on FB Chronicles Discreetly</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/updated-architecting-top-quality-canon-chrono-films/"><u>[Updated] Architecting Top Quality Canon Chrono Films</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-building-your-brand-through-effective-fb-reel-strategies/"><u>[Updated] Building Your Brand Through Effective FB Reel Strategies</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-mini-stories-decoded-whats-inside/"><u>[Updated] Mini Stories Decoded What's Inside?</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-launchpad-essentials-your-first-steps-in-streaming/"><u>2024 Approved Launchpad Essentials Your First Steps in Streaming</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/expanding-capabilities-with-cloud-based-ocr-sdks-insights-from-the-abbyy-experts/"><u>Expanding Capabilities with Cloud-Based OCR SDKs – Insights From the ABBYY Experts</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/harness-the-power-of-cookiebot-revolutionize-seo-and-skyrocket-online-engagement/"><u>Harness the Power of Cookiebot: Revolutionize SEO and Skyrocket Online Engagement</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/harnessing-cutting-edge-ocr-technology-for-effective-learning-explore-with-abbyy-experts-on-our-blog/"><u>Harnessing Cutting-Edge OCR Technology for Effective Learning | Explore with ABBYY Experts on Our Blog</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/introducing-the-latest-milestone-abbyy-opens-a-state-of-the-art-innovation-center-for-smart-automation-in-serbia/"><u>Introducing the Latest Milestone: ABBYY Opens a State-of-the-Art Innovation Center for Smart Automation in Serbia</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-infinix-zero-5g-2023-turbo-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Infinix Zero 5G 2023 Turbo | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/top-5-from-xiaomi-redmi-13c-5g-to-iphone-contacts-transfer-apps-and-software-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Top 5 from Xiaomi Redmi 13C 5G to iPhone Contacts Transfer Apps and Software | Dr.fone</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-royalty-free-video-heaven-top-download-sites/"><u>Updated In 2024, Royalty-Free Video Heaven Top Download Sites</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/why-is-ipogo-not-working-on-oppo-reno-9a-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Oppo Reno 9A? Fixed | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-streamline-markings-ultimate-tiktok-eraser-tools/"><u>[New] Streamline Markings Ultimate TikTok Eraser Tools</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nleash-your-channels-premium-cost-free-intro-makers/"><u>[New] Unleash Your Channels Premium, Cost-Free Intro Makers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-how-to-edit-youtube-videos-in-finalcut-pro/"><u>[Updated] In 2024, How to Edit YouTube Videos in Finalcut Pro</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-jump-into-action-how-to-start-someones-tiktok-session/"><u>[Updated] In 2024, Jump Into Action How To Start Someone's TikTok Session</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-browsing-made-memorable-the-leading-screen-recorder-software/"><u>2024 Approved Browsing Made Memorable The Leading Screen Recorder Software</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/convert-mov-avi-and-more-in-a-flash-free-webmwmv-tools-with-movavis-powerful-software/"><u>Convert MOV, AVI & More in a Flash: Free Webm/WMV Tools with Movavi's Powerful Software</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/convertir-un-fichier-ogm-en-format-mov-facilement-sur-internet-sans-frais-movavi/"><u>Convertir Un Fichier OGM en Format MOV Facilement Sur Internet Sans Frais - Movavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/convertissez-gratuitement-un-fichier-ts-en-mp4-sur-internet-avec-movavi/"><u>Convertissez Gratuitement Un Fichier .TS en MP4 Sur Internet Avec Movavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/descubre-el-secreto-de-uniformizar-ediciones-en-adobe-after-effects-una-guia-completa/"><u>Descubre El Secreto De Uniformizar Ediciones en Adobe After Effects: Una Guía Completa</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/free-conversion-change-mod-files-to-mov-format-with-online-tools/"><u>Free Conversion: Change .MOD Files to .MOV Format with Online Tools</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-memetic-innovations-ideas-that-delight-any-audience/"><u>In 2024, Memetic Innovations Ideas That Delight Any Audience</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/microsoft-outlook-alert-what-you-need-to-know-about-recalling-a-message-after-sending/"><u>Microsoft Outlook Alert: What You Need To Know About Recalling a Message After Sending</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/the-best-27-text-to-speech-applications-of-2024-reviewed-by-movavi/"><u>The Best 27 Text-to-Speech Applications of 2024 Reviewed by Movavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/transfer-data-seamlessly-from-ios-to-windows-11-explore-the-top-7-mirroring-solutions-tips-from-movavi/"><u>Transfer Data Seamlessly From iOS to Windows 11: Explore the Top 7 Mirroring Solutions - Tips From Movavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/online-wma-to-flac-movavi/"><u>우아하고 응답성 있는 Online WMA to FLAC 전환 서비스 – Movavi가 제공합니다</u></a></li>
 </ul></div>
 

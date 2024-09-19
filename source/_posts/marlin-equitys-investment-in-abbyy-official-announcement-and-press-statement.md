@@ -1,7 +1,7 @@
 ---
 title: "Marlin Equity's Investment in ABBYY: Official Announcement & Press Statement"
-date: 2024-09-12T00:42:31.263Z
-updated: 2024-09-14T19:22:52.828Z
+date: 2024-09-12T02:27:42.335Z
+updated: 2024-09-19T03:27:11.646Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f7008ec86977e694421ef724a35a33c6fec32d45741490d50d66c52b24ae9074.jpg
@@ -75,26 +75,21 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-grasping-the-basics-of-telegram-marketing-strategies/"><u>[New] Grasping the Basics of Telegram Marketing Strategies</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-quickguide-optimizingyoucamrecord-for-2024/"><u>[New] QuickGuide OptimizingYouCamRecord for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-how-to-custom-your-youtube-channel-url-super-easy-for-2024/"><u>[Updated] How to Custom Your YouTube Channel URL – Super Easy for 2024</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/600-high-capacity-liquid-cooler-with-industrial-strength-mo-ra-iv-s-six-thousand-pound-radiator-nine-top-of-the-line-fans-at-less-than-seven-hundred-dollars14/"><u>$600 High-Capacity Liquid Cooler with Industrial Strength: MO-RA IV S Six Thousand Pound Radiator, Nine Top-of-the-Line Fans at Less than Seven Hundred Dollars</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-apowersoft-screen-recordings-critical-insights-and-alternatives/"><u>2024 Approved Apowersoft Screen Recordings - Critical Insights and Alternatives</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/boost-your-sites-performance-with-the-robust-features-of-cookiebot-technology/"><u>Boost Your Site's Performance with the Robust Features of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/boost-your-website-with-advanced-tracking-the-power-of-cookiebot-technology/"><u>Boost Your Website with Advanced Tracking: The Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/comprehensive-security-report-understanding-organizational-safeguards/"><u>Comprehensive Security Report: Understanding Organizational Safeguards</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/comprehensive-step-by-step-tutorial-on-preparing-datasets-for-artificnial-intelligence/"><u>Comprehensive Step-by-Step Tutorial on Preparing Datasets for Artificnial Intelligence</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-personalization-enhancing-your-sites-user-experience/"><u>Cookiebot-Driven Personalization: Enhancing Your Site's User Experience</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-best-3-honor-90-lite-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>In 2024, Best 3 Honor 90 Lite Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-superior-photo-inspector-fast-and-reliable/"><u>In 2024, Superior Photo Inspector, Fast & Reliable</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/telegram-marketing-101-a-step-by-step-guide-for-starters/"><u>Telegram Marketing 101 A Step-by-Step Guide for Starters</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/top-10-places-for-accessible-photography-loot-for-2024/"><u>Top 10 Places for Accessible Photography Loot for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-insta-popularity-boost-mastering-the-25-essential-hashtags-for-2024/"><u>[Updated] Insta-Popularity Boost Mastering the 25 Essential Hashtags for 2024</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cambiar-videoes-mjpeg-a-otros-formatos-gratis-con-conversion-online-de-movavi/"><u>Cambiar Videoes .mjpeg a Otros Formatos Gratis Con Conversión Online De Movavi</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/cookiebot-enhanced-site-performance-and-analytics/"><u>Cookiebot-Enhanced Site Performance & Analytics</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/getting-your-corsair-virtuoso-microphone-up-and-running-again-a-fix-guide/"><u>Getting Your Corsair Virtuoso Microphone Up and Running Again – A Fix Guide</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/hoe-je-beeld-van-rechts-het-onderscheppen-kun-je-met-movavis-foto-draaidorser/"><u>Hoe Je Beeld Van Rechts Het Onderscheppen Kun Je Met Movavi's Foto Draaidorser</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/movavis-free-web-service-convert-videos-from-flv-format-to-swf-online-instantly/"><u>Movavi's Free Web Service: Convert Videos From FLV Format to SWF Online Instantly!</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/understanding-bmp-files-a-comprehensive-guide-on-the-basics-of-bmp-images-and-viewing-them/"><u>Understanding BMP Files: A Comprehensive Guide on the Basics of .bmp Images & Viewing Them</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unleashing-durability-with-urban-armor-gears-rugged-macbook-pro-protector/"><u>Unleashing Durability with Urban Armor Gear's Rugged MacBook Pro Protector</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-editing-essentials-building-youtube-trailers-in-filmora-for-2024/"><u>Video Editing Essentials Building YouTube Trailers in Filmora for 2024</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

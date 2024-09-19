@@ -1,7 +1,7 @@
 ---
 title: "パーソルグループの名刺管理システムにABBYY AI OCRを実装: モバイル且つ4枚まとめて高精度読み取り"
-date: 2024-09-09T19:44:58.925Z
-updated: 2024-09-14T17:14:11.363Z
+date: 2024-09-14T18:05:15.131Z
+updated: 2024-09-19T03:17:46.956Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f55494b1c8843bed72fd409a0474603bdb628f91806cf12974c661e4f3ab93d8.jpg
@@ -156,31 +156,20 @@ FlexiCaptureはさまざまな工夫を加えることにより、導入後も�
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-how-to-flip-your-video-collection-in-a-flash/"><u>[New] 2024 Approved How to Flip Your Video Collection in a Flash</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/tream-like-never-before-turning-on-youtubes-av1/"><u>[New] Stream Like Never Before Turning On YouTube's AV1</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-efficient-selections-top-picks-for-6-fb-lite-vids/"><u>[Updated] 2024 Approved Efficient Selections Top Picks for 6 FB Lite Vids</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-transforming-xbox-experiences-through-effective-capture-techniques-for-2024/"><u>[Updated] Transforming Xbox Experiences Through Effective Capture Techniques for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/behind-the-scenes-music-insights-for-ig-for-2024/"><u>Behind the Scenes Music Insights for IG for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-messages-files-from-rog-phone-7-ultimate-by-fonelab-android-recover-messages/"><u>How To Restore Missing Messages Files from ROG Phone 7 Ultimate</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/mastering-efficiency-through-the-integration-of-process-mining-techniques-and-robotic-process-automation/"><u>Mastering Efficiency Through the Integration of Process Mining Techniques and Robotic Process Automation</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/secure-your-data-with-abbyy-cloud-implementing-gdpr-ready-processing-agreements/"><u>Secure Your Data with ABBYY Cloud: Implementing GDPR-Ready Processing Agreements</u></a></li>
-<li><a href="https://common-error.techidaily.com/solution-provided-trouble-in-establishing-connection-between-windows-and-sensvc/"><u>Solution Provided: Trouble in Establishing Connection Between Windows and SENSVC</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/torsten-malchow-takes-on-role-of-senior-vp-for-worldwide-enterprise-sales-at-abbyy/"><u>Torsten Malchow Takes on Role of Senior VP for Worldwide Enterprise Sales at ABBYY</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/trusted-ai-driven-invoice-management-solutions-your-step-by-step-guide-in-an-ebook/"><u>Trusted AI-Driven Invoice Management Solutions - Your Step by Step Guide in an EBook</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/understanding-identity-verification-exploring-its-limitations-in-comprehensive-security/"><u>Understanding Identity Verification: Exploring Its Limitations in Comprehensive Security</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/unveiling-the-power-of-chatgpt-in-conversational-ai/"><u>Unveiling the Power of ChatGPT in Conversational AI</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-perfecting-gopro-cinematography-with-these-15-luts/"><u>[Updated] 2024 Approved Perfecting GoPro Cinematography with These 15 LUTs</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-science-of-effective-spotify-promotions/"><u>[Updated] The Science of Effective Spotify Promotions</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-visionarys-list-the-finest-26-video-to-text-converters-available/"><u>[Updated] The Visionary’s List The Finest 26 Video-to-Text Converters Available</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cambiar-videoes-mjpeg-a-otros-formatos-gratis-con-conversion-online-de-movavi/"><u>Cambiar Videoes .mjpeg a Otros Formatos Gratis Con Conversión Online De Movavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/hoe-je-beeld-van-rechts-het-onderscheppen-kun-je-met-movavis-foto-draaidorser/"><u>Hoe Je Beeld Van Rechts Het Onderscheppen Kun Je Met Movavi's Foto Draaidorser</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-unveiling-hand-trackings-evolution-and-practice/"><u>In 2024, Unveiling Hand Tracking's Evolution and Practice</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/movavis-free-web-service-convert-videos-from-flv-format-to-swf-online-instantly/"><u>Movavi's Free Web Service: Convert Videos From FLV Format to SWF Online Instantly!</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1726026659355-nhk/"><u>NHK高校講座レッスンダウンロードの秘密トリック</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<span id="1982508">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

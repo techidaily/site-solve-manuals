@@ -1,7 +1,7 @@
 ---
 title: Zeitreisen Durch Digitalisierung – ABBYY Verbindet Universitätsbibliothek Frankfurt Mit Der Vergangenheit
-date: 2024-09-08T21:23:00.386Z
-updated: 2024-09-14T22:22:40.638Z
+date: 2024-09-14T17:31:35.864Z
+updated: 2024-09-19T01:23:48.102Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/02e725c673b3c10c639720505ea896a1091c0eab71839b6a6c2629d037059245.jpg
@@ -123,21 +123,23 @@ Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-windows-11-photos-setup-guide-adding-aesthetic-overlays-and-music/"><u>[New] 2024 Approved Windows 11 Photos Setup Guide Adding Aesthetic Overlays & Music</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-instantaneously-record-and-image-on-the-go-iphone-edition/"><u>[Updated] Instantaneously Record & Image on the Go - iPhone Edition</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-firefox-video-capture-utilities/"><u>2024 Approved Firefox Video Capture Utilities</u></a></li>
-<li><a href="https://driver-download.techidaily.com/effortless-microsoft-ergosculpt-keyboard-driver-upgrade-how-to/"><u>Effortless Microsoft ErgoSculpt Keyboard Driver Upgrade - How To</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/harnessing-cutting-edge-ocr-technology-for-effective-learning-explore-with-abbyy-experts-on-our-blog/"><u>Harnessing Cutting-Edge OCR Technology for Effective Learning | Explore with ABBYY Experts on Our Blog</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/introducing-the-latest-milestone-abbyy-opens-a-state-of-the-art-innovation-center-for-smart-automation-in-serbia/"><u>Introducing the Latest Milestone: ABBYY Opens a State-of-the-Art Innovation Center for Smart Automation in Serbia</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/leveraging-cookiebot-technology-for-enhanced-user-engagement-and-growth/"><u>Leveraging Cookiebot Technology for Enhanced User Engagement and Growth</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/leveraging-cookiebot-technology-for-improved-website-personalization-and-retargeting/"><u>Leveraging Cookiebot Technology for Improved Website Personalization and Retargeting</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/secure-your-kids-online-experience-limiting-youtube-usage-on-an-ipad/"><u>Secure Your Kids' Online Experience: Limiting YouTube Usage on an iPad</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-in-2024-limited-time-dji-drone-visual-enhancements-no-pay-required/"><u>[New] In 2024, Limited-Time DJI Drone Visual Enhancements No Pay Required</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-best-practice-for-incorporating-gopro-clips-into-360-video-tapestries/"><u>[Updated] Best Practice for Incorporating GoPro Clips Into 360 Video Tapestries</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-deep-dive-into-polarr-photo-editor-comprehensive-review/"><u>[Updated] Deep Dive Into Polarr Photo Editor Comprehensive Review</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-precision-sculpting-perfect-circles-spheres-in-minecraft-world/"><u>2024 Approved Precision Sculpting Perfect Circles, Spheres in Minecraft World</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/online-m4b-and-m4a-movavi/"><u>最適な無料Online M4B & M4Aファイル変換 - Movaviでお試しください</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/baixando-o-editor-capcut-para-windows-tutoriais-completos-de-instalacao-e-operacao/"><u>Baixando O Editor CapCut Para Windows: Tutoriais Completos De Instalação E Operação</u></a></li>
+<li><a href="https://driver-download.techidaily.com/free-csr-bluetooth-module-drivers-download-now/"><u>Free CSR Bluetooth Module Drivers - Download Now</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/honterus-spurring-aspiration-and-achievement/"><u>Honterus: Spurring Aspiration and Achievement</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/mastering-iphone-x-the-ultimate-guide-for-users/"><u>Mastering iPhone X The Ultimate Guide for Users</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/premium-android-photography-alterations/"><u>Premium Android Photography Alterations</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1726221741653-webm-mp4/"><u>WebM 표현식을 다원성 멀티미디어 MP4 형식으로 효율적으로 변환하는 방법</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

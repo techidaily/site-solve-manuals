@@ -1,7 +1,7 @@
 ---
 title: IDP革命帷幄，IDP斐然！ - Revolutionary Victories in Investment Decision Processes!
-date: 2024-09-10T18:25:41.844Z
-updated: 2024-09-14T23:35:57.182Z
+date: 2024-09-12T02:45:56.526Z
+updated: 2024-09-19T02:34:28.207Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/dbe86ec4eee57de28307f7a87e5d2dc26b222d4d704a45568094d723e05d6df4.jpg
@@ -27,15 +27,28 @@ January 18, 2023
 
 今日の [OCR](https://tools.techidaily.com/abbyy/products/)は、単にテキストを読むだけでなく、テキスト全体を理解することが求められます。企業はこれまで以上に高い精度とより深いデータ洞察を求めているため、IDP技術はより高度で微妙なニュアンスを理解する必要があります。しかし、この進化には課題もあります。精度とコンテキスト理解のバランスが重要になってきます。AI システムに投入するデータは、正確であるだけでなく、文脈的にも関連性があるものであることをどのように保証するのでしょうか？
 
+<!-- affiliate ads begin -->
+<span id="1702748">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### インテリジェント文書処理（IDP）の未来
 
 本当に理解力のある「IDP」こそが、データとAIに対する考え方そのものを革新し、未来を切り拓く鍵となります。単に文書を処理するだけでなく、内容を理解し、データだけでなくそこからインサイトを引き出すシステムの構築が求められています。 この新しいIDPこそが、絶え間なく進化を遂げるAIのランドマークとなり、より知的で効率的、そして直感的なシステム構築において欠かせない要素となるでしょう。
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 現代のIDPの内幕
@@ -85,19 +98,6 @@ IDP プロセスは、データ収集から始まります。OCR などの IDP �
 ABBYY が 4 年連続で IDP リーダーに選出された理由をご報告書でご覧ください[Everest Groupのレポートをダウンロー](https://tools.techidaily.com/abbyy/products/)ド。ABBYY Vantageは、あらゆるインテリジェントオートメーションプラットフォームに統合できる、業界唯一のローコード／ノーコードIDPプラットフォームです。事前学習済みAI スキルで自動化を加速しましょう。ぜひ、[Vantageのデモ](https://tools.techidaily.com/abbyy/products/)をご予約ください。
 
 ![Maxime Vermier ABBYY](https://static3.abbyy.com/abbyycommedia/37004/maxime-vermeir_110x110-1.png)
-
-<!-- affiliate ads begin -->
-<span id="1492813">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Maxime Vermeir
 
@@ -166,15 +166,16 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-boosting-sales-via-high-roi-animated-fb-ad-campaigns/"><u>[Updated] In 2024, Boosting Sales via High-ROI Animated FB Ad Campaigns</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/1724313535664-abbyy/"><u>「タスクマイニングの基礎: 効率的なワークフローへの道」 - ABBYYブログで探るタスク分析と自動化</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/2024-approved-best-free-and-paid-blu-ray-video-player-software-for-pcandmac/"><u>2024 Approved Best Free and Paid Blu-Ray Video Player Software for PC&Mac</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/2024-approved-top-10-gif-apps-for-iphone-x876/"><u>2024 Approved Top 10 GIF Apps for iPhone X/8/7/6</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/1724313295714-dx/"><u>DX初心者をサポートする入門書リスト</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/master-your-hardware-choices-the-ultimate-guide-by-toms-tech-specialists/"><u>Master Your Hardware Choices - The Ultimate Guide by Tom's Tech Specialists</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/quick-and-simple-access-high-res-youtube-images-for-free-here-for-2024/"><u>Quick & Simple Access High-Res YouTube Images for Free Here for 2024</u></a></li>
-<li><a href="https://network-issues.techidaily.com/restarting-asus-for-webcam-activation/"><u>Restarting Asus for Webcam Activation</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/unveiling-synergy-webinar-on-analytics-automation-and-process-insight-as-interconnected-strategies/"><u>Unveiling Synergy: Webinar on Analytics Automation & Process Insight as Interconnected Strategies</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/webinar-on-smart-data-extraction-techniques-enhancing-business-insights/"><u>Webinar on Smart Data Extraction Techniques: Enhancing Business Insights</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-elevate-your-media-content-via-youtube-studio-editing-skills/"><u>[New] In 2024, Elevate Your Media Content via YouTube Studio Editing Skills</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-insta-stats-spotlight-pinpointing-viewers-of-your-photos/"><u>[Updated] In 2024, Insta Stats Spotlight Pinpointing Viewers of Your Photos</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/conversione-veloce-di-file-video-flv-e-mp4-in-formato-swf-gratuito-utilizzo-online-di-movavi/"><u>Conversione Veloce Di File Video FLV E MP4 in Formato SWF Gratuito - Utilizzo Online Di Movavi</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/enhance-wellness-and-fitness-goals-with-the-power-of-8-chatgpt-integrations/"><u>Enhance Wellness and Fitness Goals with the Power of 8 ChatGPT Integrations</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/mastering-the-art-of-capturing-images-5-simple-methods-to-take-a-screenshot-on-your-acer-notebook-expert-tips-from-movavi/"><u>Mastering the Art of Capturing Images: 5 Simple Methods to Take a Screenshot on Your Acer Notebook - Expert Tips From Movavi</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/mastering-xbox-livestreaming-on-facebook-platform/"><u>Mastering Xbox Livestreaming on Facebook Platform</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/screen-shot-entire-page-view/"><u>Screen Shot Entire Page View</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/the-ultimate-evaluation-of-apple-watch-series-6-upgraded-features-with-a-touch-of-perfection/"><u>The Ultimate Evaluation of Apple Watch Series 6: Upgraded Features with a Touch of Perfection</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/uncover-hidden-gems-discover-the-six-coolest-chatgpt-compatible-games/"><u>Uncover Hidden Gems: Discover The Six Coolest ChatGPT-Compatible Games!</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/w64wav/"><u>W64ファイルを対象にしたコストなしウェブ上の波形(WAV)変換 - ムーバビ</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/syggeneia-eyxes-mhtropolitikh-gkreman/"><u>Συγγένεια Ευχές Μητροπολιτική Γκρεμάν</u></a></li>
 </ul></div>
 
