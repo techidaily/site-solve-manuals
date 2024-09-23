@@ -1,7 +1,7 @@
 ---
 title: Elevating Enterprise Success Through Process Intelligence - Explore Innovations on the ABBYY Platform
-date: 2024-09-12T23:30:07.836Z
-updated: 2024-09-18T17:35:18.895Z
+date: 2024-09-20T17:43:58.059Z
+updated: 2024-09-23T18:58:42.992Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8408c21b7cbd2d9f3e166f2aa500c9f7130f2d3b305b1fab49ef5afa3945895c.jpg
@@ -63,6 +63,13 @@ Scott Opitz is Chief Technology Officer and responsible for the global product s
 A 30-year veteran of the computer industry, Scott has founded and built companies in the application integration, business process management, and business intelligence spaces. Scott founded and served as President and Chief Executive Officer of Altosoft Corporation, a business intelligence software company that was ultimately acquired by Kofax. Following the acquisition of Altosoft, Scott served as Senior Vice President & General Manager for Analytics.
 
 In previous positions, Scott served as Senior Vice President, Worldwide Marketing & Business Development for webMethods (now Software AG), where he was responsible for webMethods’ marketing, business development, and strategic product planning. He joined webMethods as a result of its acquisition of IntelliFrame Corporation, a provider of data integration products and the InVista integrated workflow and BPM platform that he co-founded. Scott has also held numerous executive-level positions in technology, marketing and business development roles for public and private companies.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -127,33 +134,16 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-how-to-join-google-meet-on-laptop-and-mobile-for-2024/"><u>[New] How to Join Google Meet On Laptop and Mobile for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-make-facebook-videos-extend-the-wallpaper/"><u>[Updated] 2024 Approved Make Facebook Videos Extend the Wallpaper</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-explore-these-non-periscope-video-platforms-for-iphones-and-androids/"><u>[Updated] Explore These Non-Periscope Video Platforms for iPhones & Androids</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-the-insiders-handbook-for-instagrams-audio-emoji-placement/"><u>[Updated] In 2024, The Insider’s Handbook for Instagram's Audio Emoji Placement</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-unmatched-8-visual-effects-for-smooth-live-videos/"><u>2024 Approved Unmatched 8 Visual Effects for Smooth Live Videos</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/convertir-un-fichier-ogm-en-format-mov-facilement-sur-internet-sans-frais-movavi/"><u>Convertir Un Fichier OGM en Format MOV Facilement Sur Internet Sans Frais - Movavi</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/convertissez-gratuitement-un-fichier-ts-en-mp4-sur-internet-avec-movavi/"><u>Convertissez Gratuitement Un Fichier .TS en MP4 Sur Internet Avec Movavi</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/descubre-el-secreto-de-uniformizar-ediciones-en-adobe-after-effects-una-guia-completa/"><u>Descubre El Secreto De Uniformizar Ediciones en Adobe After Effects: Una Guía Completa</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/free-conversion-change-mod-files-to-mov-format-with-online-tools/"><u>Free Conversion: Change .MOD Files to .MOV Format with Online Tools</u></a></li>
-<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-15-plus-to-other-iphone-12-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone 15 Plus to other iPhone 12 devices? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-itel-a60s-drfone-by-drfone-virtual-android/"><u>In 2024, Planning to Use a Pokemon Go Joystick on Itel A60s? | Dr.fone</u></a></li>
-<li><a href="https://techtrends.techidaily.com/seamless-audiovisual-integration-in-just-four-steps/"><u>Seamless Audiovisual Integration in Just Four Steps!</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/simplify-your-snapchat-circle-tips-for-removing-multiple-friends-at-once/"><u>Simplify Your Snapchat Circle: Tips for Removing Multiple Friends at Once</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/the-best-27-text-to-speech-applications-of-2024-reviewed-by-movavi/"><u>The Best 27 Text-to-Speech Applications of 2024 Reviewed by Movavi</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/online-wma-to-flac-movavi/"><u>우아하고 응답성 있는 Online WMA to FLAC 전환 서비스 – Movavi가 제공합니다</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-what-lies-beneath-the-surface-of-instagrams-reels/"><u>[New] In 2024, What Lies Beneath the Surface of Instagram's Reels</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-harnessing-skypes-potential-on-pc-and-mac-with-ease/"><u>[Updated] In 2024, Harnessing Skype's Potential on PC & Mac with Ease</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-share-a-world-view-iphone-360-film-techniques-for-2024/"><u>[Updated] Share a World View IPhone 360 Film Techniques for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-crafting-cinematic-magic-a-filmmakers-guide-to-light/"><u>2024 Approved Crafting Cinematic Magic A Filmmaker's Guide to Light</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/conversion-gratuite-mp4-a-format-m4a-online-movavi/"><u>Conversion Gratuite MP4 À Format M4A Online - Movavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/conversione-veloce-di-file-video-flv-e-mp4-in-formato-swf-gratuito-utilizzo-online-di-movavi/"><u>Conversione Veloce Di File Video FLV E MP4 in Formato SWF Gratuito - Utilizzo Online Di Movavi</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/creative-couture-top-trendy-filters-on-ig/"><u>Creative Couture Top Trendy Filters on IG</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-blurring-backgrounds-a-visual-hideaway-guide/"><u>In 2024, Blurring Backgrounds A Visual Hideaway Guide</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/mastering-the-art-of-capturing-images-5-simple-methods-to-take-a-screenshot-on-your-acer-notebook-expert-tips-from-movavi/"><u>Mastering the Art of Capturing Images: 5 Simple Methods to Take a Screenshot on Your Acer Notebook - Expert Tips From Movavi</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-in-2024-the-ultimate-list-10-best-free-avi-joiner-software-for-windows-and-mac/"><u>Updated In 2024, The Ultimate List 10 Best Free AVI Joiner Software for Windows and Mac</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/w64wav/"><u>W64ファイルを対象にしたコストなしウェブ上の波形(WAV)変換 - ムーバビ</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1993651">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

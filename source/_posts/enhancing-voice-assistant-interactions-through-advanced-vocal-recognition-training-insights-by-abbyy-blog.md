@@ -1,7 +1,7 @@
 ---
 title: Enhancing Voice Assistant Interactions Through Advanced Vocal Recognition Training | Insights by ABBYY Blog
-date: 2024-09-17T18:41:14.551Z
-updated: 2024-09-18T23:23:16.630Z
+date: 2024-09-19T17:29:59.282Z
+updated: 2024-09-23T16:25:46.062Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c68e5dfe066870e624209e946a88b5eb21db8406cf2fae44c9a446c53d02efdc.jpg
@@ -23,6 +23,13 @@ _Editorial note: FineReader PDF Mobile for Android, Business Card Reader for And
 
 Even though smartphone voice assistants are useful for helping with routine tasks, sometimes you just can’t talk. Today, we’ll show you how to text your assistant. We’ll also talk about re-recognition in FineScanner and do some voice training.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **iOS Tip: Texting Siri** 
 
 While you might not be able to have a truly meaningful conversation with Apple’s voice helper, it still manages to perform its functions well. You don’t have to talk to her using your voice though: you can input your queries via text. This might be useful when you are stuck in public transport or in a meeting. By default, this function is turned off. However, enabling it is easy.
@@ -35,9 +42,23 @@ Don’t forget to select the appropriate reply mode for Siri so that you don’t
 
 ![siri settings](https://static1.abbyy.com/abbyycommedia/26890/golosovoy-vvod-dlya-siri.jpeg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 To have a chat with Siri, tap and hold either the **Home** button (on devices that have one) or the side button. If you want to have an audio conversation, don’t forget to check whether long press is enabled: **Settings** → **Siri &** Search → Press Side (Home) Button for Siri. Now, when you call up your digital assistant by saying **Hey Siri!**, she’ll be waiting for voice commands only and won’t reply to text queries.
 
 By the way, Siri can also be used with FineScanner and TextGrabber. For example, you can use voice commands to [open a document in FineScanner](https://tools.techidaily.com/abbyy/products/) or [recognize your last gallery image in TextGrabber](https://tools.techidaily.com/abbyy/products/).
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Android Tip: Texting Google Assistant** 
 
@@ -56,10 +77,10 @@ In one of the recent FineScanner updates, we have added an offline text recognit
 ![abbyy finescanner](https://static1.abbyy.com/abbyycommedia/26892/abbyy-finescanner.jpeg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/1062450/7443" target="_top" id="1062450">
-  <img src="//a.impactradius-go.com/display-ad/7443-1062450" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062450/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **App of the Week: Vanido** 
@@ -75,13 +96,6 @@ _Try if you dare_.
 That’s all from us for today. Until next time!
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -147,19 +161,18 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-historical-discoveries-at-your-screen-10-best-educational-youtubers/"><u>[New] 2024 Approved Historical Discoveries at Your Screen - 10 Best Educational YouTubers</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-affordable-panoramic-cameras-revolutionizing-media-production/"><u>[Updated] 2024 Approved Affordable Panoramic Cameras Revolutionizing Media Production</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-strategies-for-success-in-online-content-creation/"><u>[Updated] 2024 Approved Strategies for Success in Online Content Creation</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-the-ultimate-list-of-10-vectors-stock-pics-websites/"><u>[Updated] The Ultimate List of 10 Vectors Stock Pics Websites</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-the-complete-obs-android-manual-for-professionals/"><u>2024 Approved The Complete OBS Android Manual for Professionals</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/gifpng-movavi/"><u>免費線上改造GIF成PNG格式：如何利用 Movavi 工具</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/convertir-un-fichier-ogm-en-format-mov-facilement-sur-internet-sans-frais-movavi/"><u>Convertir Un Fichier OGM en Format MOV Facilement Sur Internet Sans Frais - Movavi</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/convertissez-gratuitement-un-fichier-ts-en-mp4-sur-internet-avec-movavi/"><u>Convertissez Gratuitement Un Fichier .TS en MP4 Sur Internet Avec Movavi</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/decoding-the-belgian-tongue-conundrum/"><u>Decoding the Belgian Tongue Conundrum</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/different-methods-to-unlock-your-iphone-11-pro-max-drfone-by-drfone-ios/"><u>Different Methods To Unlock Your iPhone 11 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/free-conversion-change-mod-files-to-mov-format-with-online-tools/"><u>Free Conversion: Change .MOD Files to .MOV Format with Online Tools</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/megoldas-az-mxf-a-mp4-konvertalasa-modjairol-8-as-kiadasu-konverter-tenyezoknek-a-macwindows-rendszerrel/"><u>Megoldás Az MXF a MP4 Konvertálása Módjairol 8-as Kiadású Konverter Tényezőknek A Mac/Windows Rendszerrel</u></a></li>
-<li><a href="https://video-capture.techidaily.com/rapid-pause-video-snapshot-manual-for-2024/"><u>Rapid Pause Video Snapshot Manual for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/revolutionizing-video-quality-with-nikon-j5-for-2024/"><u>Revolutionizing Video Quality with Nikon J5 for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-20-must-have-video-tools-for-new-creators/"><u>[Updated] In 2024, 20 Must-Have Video Tools For New Creators</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-top-editors-secret-best-free-premiere-pro-resources/"><u>[Updated] Top Editors' Secret Best FREE Premiere Pro Resources</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-navigating-through-ioss-recording-software-landscape/"><u>2024 Approved Navigating Through iOS's Recording Software Landscape</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/achieving-peak-performance-zoom-plus-fb-live-techniques/"><u>Achieving Peak Performance ZOOM + FB Live Techniques</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/appreciation-and-thanks-for-joining-forces-with-us/"><u>Appreciation and Thanks for Joining Forces with Us</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/best-drone-buddies-kids-most-enjoyed-toy-companions/"><u>Best Drone Buddies Kids' Most Enjoyed Toy Companions</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/free-online-converter-easily-convert-wma-to-wmv-with-movavis-tools/"><u>Free Online Converter: Easily Convert WMA to WMV with Movavi's Tools</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/gratis-omzetten-van-mxf-bestandjes-veilige-en-vrije-conversie-met-movavi/"><u>Gratis Omzetten Van MXF-Bestandjes: Veilige en Vrije Conversie Met Movavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/guia-completa-para-transformar-tu-contenido-vob-en-avi-mediante-movavi-una-solucion-de-cambio-digital-sin-gastos/"><u>Guía Completa Para Transformar Tu Contenido VOB en AVI Mediante MÓVAVI: Una Solución De Cambio Digital Sin Gastos</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-error-495-while-downloadupdating-android-apps-on-tecno-spark-20-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Error 495 While Download/Updating Android Apps On Tecno Spark 20 | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/streaming-showdown-how-netflix-stands-up-against-competitors-like-hulu-disneyplus-and-apple-tvplus/"><u>Streaming Showdown: How Netflix Stands Up Against Competitors Like Hulu, Disney+, and Apple TV+</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/transforma-tu-video-en-un-gif-gratuito-guia-paso-a-paso-para-crear-archivos-animados-online/"><u>Transforma Tu Vídeo en Un GIF Gratuito: Guía Paso a Paso Para Crear Archivos Animados Online</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/transforming-mp3s-into-perfect-iphone-ringtones-discover-the-top-two-techniques/"><u>Transforming MP3s Into Perfect iPhone Ringtones: Discover the Top Two Techniques</u></a></li>
 </ul></div>
 

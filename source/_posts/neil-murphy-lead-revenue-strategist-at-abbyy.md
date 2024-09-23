@@ -1,7 +1,7 @@
 ---
 title: "Neil Murphy: Lead Revenue Strategist at ABBYY"
-date: 2024-09-16T18:49:24.154Z
-updated: 2024-09-18T20:26:53.224Z
+date: 2024-09-20T16:33:48.136Z
+updated: 2024-09-23T16:37:38.914Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/75ed7dc872027e37ee776fcbd41ee515ad71f0c8336694d98304c7450ff8c427.png
@@ -20,6 +20,19 @@ Chief Revenue Officer
 Neil's deep experience working with data capture, cognitive understanding and process automation technologies derives from a multitude of strategic roles at leading organisations such as Kodak Alaris and now ABBYY. While at Kodak Alaris, Neil was responsible for the start-up and development of AI Foundry in EMEA, a technology start-up within Kodak Alaris focused on the AI and RPA markets.
 
 Over the years, Neil has worked with a variety of industry sectors ranging from Finance, Insurance, Healthcare to Government focusing on transforming their legacy approach to back and front office processes such as Accounts Payable, customer onboarding, and consumer loyalty programmes to name a few.
+
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Ready to speak with an expert?
 
@@ -40,25 +53,20 @@ Over the years, Neil has worked with a variety of industry sectors ranging from 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/ost-effective-subscriber-growth-hundreds-at-a-bargain-price-for-2024/"><u>[New] Cost-Effective Subscriber Growth - Hundreds at a Bargain Price for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-crucial-steps-in-archiving-lol-matchups/"><u>[Updated] In 2024, Crucial Steps in Archiving LOL Matchups</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-inshot-video-magic-mastering-segment-shifts/"><u>[Updated] In 2024, Inshot Video Magic Mastering Segment Shifts</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/gifpng-movavi/"><u>免費線上改造GIF成PNG格式：如何利用 Movavi 工具</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/convertissez-gratuitement-un-fichier-ts-en-mp4-sur-internet-avec-movavi/"><u>Convertissez Gratuitement Un Fichier .TS en MP4 Sur Internet Avec Movavi</u></a></li>
-<li><a href="https://driver-download.techidaily.com/easy-access-to-the-latest-driver-updates-for-your-hp-deskjet-2540-printer/"><u>Easy Access to the Latest Driver Updates for Your HP Deskjet 2540 Printer</u></a></li>
-<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-from-samsung-galaxy-s23-tactical-edition-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock from Samsung Galaxy S23 Tactical Edition Phones with/without a PC</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-3-facts-you-need-to-know-about-screen-mirroring-samsung-galaxy-a05-drfone-by-drfone-android/"><u>In 2024, 3 Facts You Need to Know about Screen Mirroring Samsung Galaxy A05 | Dr.fone</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-graduating-from-novice-to-3d-lut-maestro/"><u>In 2024, Graduating From Novice to 3D LUT Maestro</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-will-the-ipogo-get-you-banned-and-how-to-solve-it-on-vivo-s17-drfone-by-drfone-virtual-android/"><u>In 2024, Will the iPogo Get You Banned and How to Solve It On Vivo S17 | Dr.fone</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/megoldas-az-mxf-a-mp4-konvertalasa-modjairol-8-as-kiadasu-konverter-tenyezoknek-a-macwindows-rendszerrel/"><u>Megoldás Az MXF a MP4 Konvertálása Módjairol 8-as Kiadású Konverter Tényezőknek A Mac/Windows Rendszerrel</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/movavis-no-cost-ogg-to-aiff-converter-perfect-solution-for-your-file-needs/"><u>Movavi's No-Cost OGG to AIFF Converter - Perfect Solution for Your File Needs!</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/transformer-des-fichiers-audio-3gp-en-formats-wav-sans-frais-methode-facile-et-gratuit-de-la-plateforme-enligne/"><u>Transformer Des Fichiers Audio 3GP en Formats WAV Sans Frais - Méthode Facile Et Gratuit De La Plateforme Enligne</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-navigating-through-challenges-with-non-functional-fb-video-share/"><u>[New] In 2024, Navigating Through Challenges with Non-Functional FB Video Share</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-mastering-the-art-with-sony-fdr-x1000v-action-footage/"><u>[New] Mastering the Art with Sony FDR-X1000V Action Footage</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-video-crafting-for-the-modern-youtube-creator/"><u>[New] Video Crafting for the Modern YouTube Creator</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-convert-your-room-into-a-professional-studio-via-vlc/"><u>[Updated] 2024 Approved Convert Your Room Into a Professional Studio via VLC</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-enhancing-speed-for-vimeo-playback-for-2024/"><u>[Updated] Enhancing Speed for Vimeo Playback for 2024</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/mp3-3gpp-movavi/"><u>簡便高效：以 Mp3 形式解決方案，自動將 3GPP 轉換 - Movavi 無償版</u></a></li>
+<li><a href="https://techtrends.techidaily.com/ace-the-run-game-expert-tips-to-skyrocket-your-score-on-subway-surfers/"><u>Ace the Run Game: Expert Tips to Skyrocket Your Score on Subway Surfers</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/conversion-gratuite-de-fichiers-jp2-a-ligne-movavi/"><u>Conversion Gratuite De Fichiers JP2 À Ligne - Movavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/conversione-video-mp4-a-formato-m4a-gratuiti-su-internet-con-movavi/"><u>Conversione Video MP4 a Formato M4A Gratuiti Su Internet Con Movavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/download-and-convert-audiovideo-files-from-wav-to-wmv-online-at-no-cost-movavi-converter/"><u>Download and Convert Audio/Video Files From WAV to WMV Online at No Cost - Movavi Converter</u></a></li>
+<li><a href="https://win-outstanding.techidaily.com/easily-transform-your-wmv-media-into-high-quality-mp4-no-cost-allowed-by-movavi-technology/"><u>Easily Transform Your WMV Media Into High-Quality MP4 - No Cost, Allowed by Movavi Technology</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/gratuit-konverteren-van-mp3-naar-aac-onlinereptiel-met-movavi/"><u>Gratuit Konverteren Van MP3 Naar AAC - Onlinereptiel Met Movavi</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-enable-usb-debugging-on-a-locked-poco-m6-5g-phone-by-drfone-android/"><u>How To Enable USB Debugging on a Locked Poco M6 5G Phone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-navigating-price-variations-in-cloud-services/"><u>In 2024, Navigating Price Variations in Cloud Services</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/transfert-gratuit-3gp-vers-lignes-numeriques-solution-movavi/"><u>Transfert Gratuit 3GP Vers Lignes Numériques - Solution Movavi</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
-  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "Streamline Your Logistics: The Power of Smart Automation"
-date: 2024-09-16T17:26:16.760Z
-updated: 2024-09-18T18:37:28.923Z
+date: 2024-09-19T16:55:00.587Z
+updated: 2024-09-23T16:25:19.397Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/907f940c68ac3ee45f8b59683cc047cc04665184817513adef7255fa53df8a70.jpg
@@ -13,13 +13,34 @@ eBook
 
 ## Keep Shipments Moving with Intelligent Automation
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 5 ways shippers are future-proofing operations with intelligent document processing
 
 ![](https://static1.abbyy.com/abbyycommedia/37819/ebook-use-case-financial-services-intelligent-document-processing_tn_360x232-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Autonomous driverless trucks, drone delivery, exoskeletons, and artificial intelligence are exciting players in the automation journey within transportation and logistics. But these advanced technologies can’t be fully embraced before fundamental aspects of process automation are in place. 
 
 Intelligent automation in shipping begins with the digitization and automation of the documents that drive transportation and logistics processes. 
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Download it now!
 
@@ -28,10 +49,10 @@ _“While a cross-border transaction involves multiple actors and requires the e
 Shippers are implementing low-code intelligent document processing to sustainably improve accuracy, expedite processes, and increase traceability in freight forwarding and other transportation/logistics processes. Download this eBook to find out what those automated processes look like, and what sort of results are possible to achieve.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915870/19272" target="_top" id="1915870">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915870" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915870/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Thank you for your interest in ABBYY.
@@ -39,13 +60,6 @@ Shippers are implementing low-code intelligent document processing to sustainabl
 [Read eBook](https://abbyy.com/-/jssmedia/project/abbyy/abbyy/insights/resource-center/pdfs/ebook-intelligent-automation-transportation-shipping-en.pdf "Read eBook") 
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)
 
@@ -116,15 +130,20 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-skills.techidaily.com/new-step-into-better-imaging-with-these-gopro-extras/"><u>[New] Step Into Better Imaging with These GoPro Extras</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-unlocking-the-potential-of-capturing-digital-entertainment/"><u>[New] Unlocking the Potential of Capturing Digital Entertainment</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-recorder-royalty-best-premium-recording-software-on-pc-and-macos-free/"><u>[Updated] In 2024, Recorder Royalty Best Premium Recording Software on PC & MacOS FREE</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cambia-archivos-de-sonido-ogg-a-formato-m4a-sin-coste-con-herramientas-en-linea-ejemplos-y-guias/"><u>Cambia Archivos De Sonido OGG a Formato M4A Sin Coste Con Herramientas en Línea - Ejemplos Y Guías</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/experience-breathtaking-picture-quality-a-detailed-review-of-the-best-features-on-the-samsung-qn55q60rafxza-tv-with-hdr10plus-support/"><u>Experience Breathtaking Picture Quality: A Detailed Review of the Best Features on the Samsung QN55Q60RAFXZA TV with HDR10+ Support</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-full-guide-to-fix-itoolab-anygo-not-working-on-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>In 2024, Full Guide to Fix iToolab AnyGO Not Working On Apple iPhone 12 | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-preparation-to-beat-giovani-in-pokemon-go-for-lava-yuva-2-drfone-by-drfone-virtual-android/"><u>In 2024, Preparation to Beat Giovani in Pokemon Go For Lava Yuva 2 | Dr.fone</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/movavi-gravar-mp3-e-ogg-offline-gratuito-facil-de-usar-e-rapido/"><u>Movavi: Gravar MP3 E OGG Offline Gratuito - Fácil De Usar E Rápido</u></a></li>
-<li><a href="https://common-error.techidaily.com/ultimate-fixes-for-windows-10-error-understanding-and-solving-code-80240020/"><u>Ultimate Fixes for Windows 10 Error: Understanding and Solving Code 80240020</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/pcxjpeg-movavi/"><u>オンラインで手軽な無料変換: PCX画像をJPEGへ - Movaviの使い方</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-taking-command-with-custom-character-sounds-in-free-fire-no-expense-involved/"><u>[New] 2024 Approved Taking Command with Custom Character Sounds in Free Fire - No Expense Involved</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-mastering-time-lapse-a-guide-with-gopro-studio-for-2024/"><u>[New] Mastering Time-Lapse A Guide with GoPro Studio for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-the-ultimate-guide-to-podcast-outros-and-examples-for-2024/"><u>[Updated] The Ultimate Guide to Podcast Outros & Examples for 2024</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1726227954884-mpemp4-movavi/"><u>在線無成本地改編MPE影片成MP4格式 - Movavi導航指南</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/appreciation-and-thanks-for-joining-forces-with-us/"><u>Appreciation and Thanks for Joining Forces with Us</u></a></li>
+<li><a href="https://techidaily.com/asus-expertbook-p5-advanced-energy-saving-performance-with-up-to/"><u>ASUS ExpertBook P5: Advanced Energy-Saving Performance with Up To</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/discover-fun-explore-these-top-6-games-available-on-chatgpt/"><u>Discover Fun: Explore These Top 6 Games Available on ChatGPT</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/easy-steps-to-secure-no-cost-licensing-approvals/"><u>Easy Steps to Secure No-Cost Licensing Approvals</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/enhance-tweet-management-the-most-effective-apps-for-tweets/"><u>Enhance Tweet Management The Most Effective Apps for Tweets</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/get-your-free-professional-image-editor-now-premium-tools-at-zero-price/"><u>Get Your Free Professional Image Editor Now: Premium Tools at Zero Price</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/guide-to-reducing-mp4-file-size-using-movavi-on-pc-and-mac-platforms/"><u>Guide to Reducing MP4 File Size Using Movavi on PC & Mac Platforms</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-top-7-instagram-money-sources-a-comprehensive-guide/"><u>In 2024, Top 7 Instagram Money Sources - A Comprehensive Guide</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/oamenii-favorite-lista-decem-legii-de-serii-tv-mai-uimitoare-pe-movaviro/"><u>Oamenii Favorite - Lista Decem Legii De Serii TV Mai Uimitoare Pe Movavi.ro</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/transforma-tu-video-en-un-gif-gratuito-guia-paso-a-paso-para-crear-archivos-animados-online/"><u>Transforma Tu Vídeo en Un GIF Gratuito: Guía Paso a Paso Para Crear Archivos Animados Online</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/transforming-mp3s-into-perfect-iphone-ringtones-discover-the-top-two-techniques/"><u>Transforming MP3s Into Perfect iPhone Ringtones: Discover the Top Two Techniques</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Webinar Recap: Strategies to Minimize Risks in LIBOR Agreements"
-date: 2024-09-14T17:02:13.097Z
-updated: 2024-09-18T17:59:38.406Z
+date: 2024-09-19T16:00:57.163Z
+updated: 2024-09-23T18:03:44.403Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/de4f0312e209bc69406fe77be7db4ffab9fd4723c69e6ec9a49854fd1e940559.jpg
@@ -31,20 +31,34 @@ How ready is your organization, and where do you stand in comparison to other fi
 
 ### Fill in the form to register for the webinar now
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Get in touch with us
 
 Please note that progressive profiling is used on this form to incrementally collect profile data over time.   
 All personal information collected via this method is under full scope of all provisions in our privacy policy.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Thank you for registering!
 
 [![Mitigating Risk from LIBOR Contracts](https://static3.abbyy.com/abbyycommedia/29685/01-mitigating-risk-from-libor-contracts-en-643x363.jpg)](https://www.youtube.com/watch?v=aftXSUvP4JU) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Please check your inbox, we have sent you a confirmation email.
@@ -52,10 +66,10 @@ Please check your inbox, we have sent you a confirmation email.
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087390/7443" target="_top" id="2087390">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)
@@ -123,17 +137,19 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/nending-shutdown-method-how-to-kill-off-youtube-shorts-for-2024/"><u>[New] Unending Shutdown Method How to Kill Off Youtube Shorts for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-ideal-echo-reapers-in-colleges/"><u>2024 Approved Ideal Echo Reapers in Colleges</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/conversion-gratuite-dimage-tiff-en-jpeg-enligne-utilisez-le-service-de-convertisseur-de-movavi/"><u>Conversion Gratuite D'Image TIFF en JPEG Enligne - Utilisez Le Service De Convertisseur De Movavi</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-techniques-for-discarding-backlogged-youtube-videos/"><u>In 2024, Techniques for Discarding Backlogged YouTube Videos</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/maximizing-performance-ideal-obs-setup-tips-for-entry-level-desktops-and-laptops/"><u>Maximizing Performance: Ideal OBS Setup Tips for Entry-Level Desktops and Laptops</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/overcome-load-issues-in-cold-war-solutions-for-gamers-using-pc-or-consoles/"><u>Overcome Load Issues in 'Cold War': Solutions for Gamers Using PC or Consoles</u></a></li>
-<li><a href="https://windows11.techidaily.com/rog-ally-vs-asus-who-wins-the-steam-deck-war/"><u>ROG Ally Vs. ASUS: Who Wins the Steam Deck War?</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/sharing-screens-seamlessly-across-pc-and-mobile-with-discord/"><u>Sharing Screens Seamlessly Across PC & Mobile with Discord</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/the-definitive-guide-to-fixing-ksuserdll-not-detected-error-for-smooth-operations/"><u>The Definitive Guide to Fixing 'ksuser.dll' Not Detected Error for Smooth Operations</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/the-messenger-maestros-guide-to-capturing-social-media-videos-for-2024/"><u>The Messenger Maestro's Guide to Capturing Social Media Videos for 2024</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/ultimate-guide-the-13-premier-recording-tools-for-your-pcs-webcam-on-windows/"><u>Ultimate Guide: The 13 Premier Recording Tools for Your PC's Webcam on Windows</u></a></li>
-<li><a href="https://some-skills.techidaily.com/understanding-the-process-of-wireless-electric-vehicle-charging/"><u>Understanding the Process of Wireless Electric Vehicle Charging</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-definitive-top-5-agile-camcorders-for-adventure/"><u>[New] 2024 Approved Definitive Top 5 Agile Camcorders for Adventure</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-tech-tips-how-to-get-fcp-without-money/"><u>[Updated] 2024 Approved Tech Tips How to Get FCP Without Money</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-effortless-transferring-5-pathways-to-download-igtv-on-computers/"><u>[Updated] Effortless Transferring 5 Pathways to Download IGTV on Computers</u></a></li>
+<li><a href="https://fox-that.techidaily.com/10-fixes-for-when-you-cant-make-phone-calls-on-your-iphone/"><u>10 Fixes for When You Can’t Make Phone Calls on Your iPhone</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1726224446806-2024/"><u>2024上市最新型高級音樂編曲軟件 - 自由使用或付費選擇</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cambiar-video-mov-en-vivo-sin-coste-guia-paso-a-paso-para-convertirlo-a-formato-avi/"><u>Cambiar Video MOV en Vivo Sin Coste: Guía Paso a Paso Para Convertirlo a Formato AVI</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/comprendre-lenregistrement-ecran-plus-audio-en-quick-time-une-approche-complete-et-simple-a-suivre/"><u>Comprendre L’Enregistrement Écran + Audio en QuiC(k-Time): Une Approche Complète Et Simple À Suivre !</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/crear-gifs-sin-costo-desde-archivos-ogv-online-con-movavi/"><u>Crear GIFs Sin Costo Desde Archivos OGV Online Con Movavi</u></a></li>
+<li><a href="https://driver-download.techidaily.com/download-and-install-hp-printer-scan-utility-on-your-windows-pc/"><u>Download & Install HP Printer Scan Utility on Your Windows PC</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/grabacion-de-audio-gratuita-para-windows-y-macos/"><u>Grabación De Audio Gratuita Para Windows Y macOS</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-itel-s23plus-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Itel S23+ | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/mastery-over-instagram-video-playback-pace/"><u>Mastery Over Instagram Video Playback Pace</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/unlocking-your-epson-printers-full-potential-in-windows-11/"><u>Unlocking Your Epson Printer's Full Potential in Windows 11</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/webm-a-mp4-ele-alir-online-doldurmak-hassaslarin-uzerinde-ozellikle-hizli-ve-kolay-bir-etkinlige/"><u>WebM a MP4 Ele Alır Online Doldurmak Hassasların Üzerinde Özellikle Hızlı Ve Kolay Bir Etkinliğe</u></a></li>
 </ul></div>
 

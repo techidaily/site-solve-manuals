@@ -1,7 +1,7 @@
 ---
 title: Leading Identity Provider Applications in the USA, Europe, and Asia-Pacific Regions
-date: 2024-09-18T01:30:49.460Z
-updated: 2024-09-18T22:00:12.718Z
+date: 2024-09-18T18:49:01.446Z
+updated: 2024-09-23T18:53:58.599Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7491070a9335b06cf0f788f98c5ea183aa46a07a80cbbf656563b42cbf1b4542.jpg
@@ -26,11 +26,25 @@ But before investing, customers want to see the results IDP has delivered in oth
 
 While certain trends demonstrated global impact, such as the need to accelerate processing of invoices and identity documents, each region demonstrated a different focus area for their most requested [document processing skills](https://tools.techidaily.com/abbyy/products/). This article summarizes the top document types being prioritized for IDP in each region, along with examples of how ABBYY customers are using IDP to achieve the business results they desire.
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Global Intelligent Document Processing Trends & Outcomes Report
 
 Report
 
 [Explore full findings](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### North America
 
@@ -39,6 +53,13 @@ ABBYY customer data from the United States and Canada revealed that the top thre
 Invoice processing has long been a priority for ABBYY customers and represents a key document use case for IDP that repeatedly delivers significant impact on processing efficiency and effectiveness.
 
 [ABBYY customer JLL](https://tools.techidaily.com/abbyy/products/)—a commercial real estate giant—used ABBYY’s cloud-based IDP solution to save millions of dollars by automating invoicing and payment processes. This global Source-to-Pay (S2P) automation initiative exceeded the Fortune 500 company’s business goals and led to the CIO 100 award, acknowledging ABBYY and JLL’s success in setting a new standard in Source-to-Pay.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Europe
 
@@ -52,6 +73,13 @@ In Asia-Pacific, the need for international shipping document process skills als
 
 The [Tokyo district of Nakano-Ku](https://tools.techidaily.com/abbyy/products/), an ABBYY customer, reduced their work volume by 30 percent and cut outsourcing costs by 25 percent by using IDP to digitally transform its resident tax collection process. Their solution automated the extraction of over 100 different handwritten and printed paper forms of various sizes and shapes, which had previously been done manually. Even with the differing tax rates, structures, and data formats of districts across Japanese local governments, IDP offers a repeatable and scalable solution to be used nationwide.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2145009/26400" target="_top" id="2145009">
+  <img src="//a.impactradius-go.com/display-ad/26400-2145009" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2145009/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Download the full report for detailed insights
 
 In addition to revealing the top five most requested document types for IDP in each region, the [ABBYY Global Intelligent Document Processing Trends & Outcomes Report](https://tools.techidaily.com/abbyy/products/) also shares data about providers of partner IDP solutions, as well as connectors that our customers are using to integrate IDP into third-party automation platforms from Microsoft, UiPath, and others. Based on what we have observed with our customer base, we identify current trends that are driving IDP adoption in the market today and recommendations for implementation.
@@ -60,13 +88,6 @@ The full report can be accessed [here](https://tools.techidaily.com/abbyy/produc
 
 ![Slavenahristova 99X99](https://static4.abbyy.com/abbyycommedia/25713/slavenahristova-99x99.png)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Slavena Hristova
 
 Director of Product Marketing, Vantage group at ABBYY
@@ -74,13 +95,6 @@ Director of Product Marketing, Vantage group at ABBYY
 Slavena Hristova is Director of Product Marketing, Vantage at ABBYY. Hristova leads the global product marketing of the ABBYY Vantage product line. She manages the complete product lifecycle from market requirement and go-to-market strategy development, to sales enablement and training offerings for channel partners. She has several years of experience in product management and marketing in the areas of text recognition, information and document management.
 
 Connect with Slavena on [LinkedIn](https://www.linkedin.com/in/slavena-hristova-r%C3%B6%C3%9Fler-044aa05a/).
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Additional Insights:
 
@@ -145,15 +159,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/ed-boost-viewers-interaction-via-youtube-cards-for-2024/"><u>[Updated] Boost Viewers Interaction via YouTube Cards for 2024</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-how-to-share-facebook-videos-to-whatsapp/"><u>[Updated] In 2024, How to Share Facebook Videos to WhatsApp?</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/disney-dvddvd/"><u>如何去除Disney DVD的安全锁和将DVD刻录成其他格式指南</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/best-5-web-video-recorders/"><u>Best 5 Web Video Recorders</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/building-business-via-beauty-vlogs/"><u>Building Business via Beauty Vlogs</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/gratis-digitaal-converter-versterk-uw-soundfiles-van-wav-tot-flacaiff-via-movavi/"><u>Gratis Digitaal Converter: Versterk Uw Soundfiles Van WAV Tot FLAC/AIFF via Movavi</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-6-appsservices-to-trace-any-vivo-v30-pro-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, Top 6 Apps/Services to Trace Any Vivo V30 Pro Location By Mobile Number | Dr.fone</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/new-final-cut-pro-vs-lumafusion-a-comprehensive-guide-to-choosing-the-best-video-editor/"><u>New Final Cut Pro vs LumaFusion A Comprehensive Guide to Choosing the Best Video Editor</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/transform-your-photos-downloadable-no-cost-arw-to-png-converter-by-movavi/"><u>Transform Your Photos: Downloadable, No-Cost ARW to PNG Converter by Movavi</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/wmv-gif/"><u>WMV를 GIF으로 자유성: 인터넷 연구소의 오픈 마이크스 비디오 변환 도구</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/nvestigating-profit-per-viewer-engagement-on-video-platforms/"><u>[New] Investigating Profit per Viewer Engagement on Video Platforms</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-prime-mobile-tools-to-enhance-dji-drone-imagery/"><u>[New] Prime Mobile Tools to Enhance DJi Drone Imagery</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-gimbal-mastery-seamless-camera-handling-and-tracking-for-2024/"><u>[Updated] Gimbal Mastery Seamless Camera Handling & Tracking for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-ultimate-compilation-best-tools-for-vimeo-files/"><u>[Updated] Ultimate Compilation Best Tools for Vimeo Files</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/movavi-ogg-mpeg/"><u>無版稅的MOVAVI 工具: 從 OGG 到 MPEG 在線上進行直接過渡</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1726227954884-mpemp4-movavi/"><u>在線無成本地改編MPE影片成MP4格式 - Movavi導航指南</u></a></li>
+<li><a href="https://windows11.techidaily.com/effective-file-system-in-windows-unveiled-max-156/"><u>Effective File System in Windows Unveiled (Max 156)</u></a></li>
+<li><a href="https://driver-install.techidaily.com/efficiently-refreshing-wireless-drivers-on-pcs/"><u>Efficiently Refreshing Wireless Drivers on PCs</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/embracing-the-future-with-benq-sw320s-4k-display-technology/"><u>Embracing the Future with BenQ SW320's 4K Display Technology</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/get-your-free-professional-image-editor-now-premium-tools-at-zero-price/"><u>Get Your Free Professional Image Editor Now: Premium Tools at Zero Price</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/guide-to-reducing-mp4-file-size-using-movavi-on-pc-and-mac-platforms/"><u>Guide to Reducing MP4 File Size Using Movavi on PC & Mac Platforms</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-easy-steps-on-how-to-create-a-new-apple-id-account-on-iphone-12-pro-by-drfone-ios/"><u>In 2024, Easy Steps on How To Create a New Apple ID Account On iPhone 12 Pro</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-enriched-visuals-and-melodies-the-art-of-integrating-filters-and-music-windows-photos/"><u>In 2024, Enriched Visuals & Melodies The Art of Integrating Filters & Music (Windows Photos)</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/les-meilleurs-outils-en-ligne-pour-capturer-des-contenu-video-a-partir-de-la-toile/"><u>Les Meilleurs Outils en Ligne Pour Capturer Des Contenu Vidéo À Partir De La Toile</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/oamenii-favorite-lista-decem-legii-de-serii-tv-mai-uimitoare-pe-movaviro/"><u>Oamenii Favorite - Lista Decem Legii De Serii TV Mai Uimitoare Pe Movavi.ro</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/online-free-solutions-for-transforming-dts-format-into-multiple-audio-formats/"><u>Online Free Solutions for Transforming DTS Format Into Multiple Audio Formats</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/purchase-movavi-business-video-editor-professional-tools-for-your-company/"><u>Purchase Movavi Business Video Editor: Professional Tools for Your Company</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/understanding-the-eu-ai-regulation-impact-on-tools-like-chatgpt/"><u>Understanding the EU AI Regulation: Impact on Tools Like ChatGPT</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/mxfmp4movavi/"><u>コピーレスオンラインで無料MXFをMP4に変換：Movaviの解決策</u></a></li>
 </ul></div>
 

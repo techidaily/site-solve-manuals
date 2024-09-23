@@ -1,7 +1,7 @@
 ---
 title: Zeitreisen Durch Digitalisierung – ABBYY Verbindet Universitätsbibliothek Frankfurt Mit Der Vergangenheit
-date: 2024-09-14T17:31:35.864Z
-updated: 2024-09-19T01:23:48.102Z
+date: 2024-09-18T18:50:40.447Z
+updated: 2024-09-23T17:38:14.575Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/02e725c673b3c10c639720505ea896a1091c0eab71839b6a6c2629d037059245.jpg
@@ -19,11 +19,25 @@ Education/Research | Education | PDF and Document Conversion
 
 [Zurück zu den Kundenreferenzen](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148646/16836" target="_top" id="2148646">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148646" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148646/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Universitätsbibliothek Frankfurt macht mit ABBYY historische Dokumente online verfügbar
 
 Bildungswesen | PDF- und Dokumentenumwandlung 
 
 ![](https://static1.abbyy.com/abbyycommedia/15018/library-pic1.jpg) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Über den Kunden
 
@@ -92,6 +106,13 @@ Nach einer Phase der Adaption lief die OCR-Erkennung reibungslos zur vollsten Zu
 
 [![cs-texthelp-360x162](https://static2.abbyy.com/abbyycommedia/15361/cs-texthelp-360x162.jpg)](https://static5.abbyy.com/abbyycommedia/6165/cs%5Funiversitaet%5Ffrankfurt%5Ffr%5Fd.pdf "PDF-Version") [PDF-Version](https://static5.abbyy.com/abbyycommedia/6165/cs%5Funiversitaet%5Ffrankfurt%5Ffr%5Fd.pdf "PDF-Version") 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012429/19272" target="_top" id="2012429">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012429" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012429/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Zum Dokument](https://static5.abbyy.com/abbyycommedia/6165/cs%5Funiversitaet%5Ffrankfurt%5Ffr%5Fd.pdf "PDF-Version") 
 
 ###### Like, share or repost
@@ -101,6 +122,19 @@ Teilen  True ?  : ""
 [Mehr über ABBYY](https://tools.techidaily.com/abbyy/products/) 
 
 [Alle ABBYY-Niederlassungen](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<span id="1983552">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Sind Sie bereit, mit einem Experten zu sprechen?
 
@@ -123,23 +157,24 @@ Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-in-2024-limited-time-dji-drone-visual-enhancements-no-pay-required/"><u>[New] In 2024, Limited-Time DJI Drone Visual Enhancements No Pay Required</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-best-practice-for-incorporating-gopro-clips-into-360-video-tapestries/"><u>[Updated] Best Practice for Incorporating GoPro Clips Into 360 Video Tapestries</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-deep-dive-into-polarr-photo-editor-comprehensive-review/"><u>[Updated] Deep Dive Into Polarr Photo Editor Comprehensive Review</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/2024-approved-precision-sculpting-perfect-circles-spheres-in-minecraft-world/"><u>2024 Approved Precision Sculpting Perfect Circles, Spheres in Minecraft World</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/online-m4b-and-m4a-movavi/"><u>最適な無料Online M4B & M4Aファイル変換 - Movaviでお試しください</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/baixando-o-editor-capcut-para-windows-tutoriais-completos-de-instalacao-e-operacao/"><u>Baixando O Editor CapCut Para Windows: Tutoriais Completos De Instalação E Operação</u></a></li>
-<li><a href="https://driver-download.techidaily.com/free-csr-bluetooth-module-drivers-download-now/"><u>Free CSR Bluetooth Module Drivers - Download Now</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/honterus-spurring-aspiration-and-achievement/"><u>Honterus: Spurring Aspiration and Achievement</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/mastering-iphone-x-the-ultimate-guide-for-users/"><u>Mastering iPhone X The Ultimate Guide for Users</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/premium-android-photography-alterations/"><u>Premium Android Photography Alterations</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/1726221741653-webm-mp4/"><u>WebM 표현식을 다원성 멀티미디어 MP4 형식으로 효율적으로 변환하는 방법</u></a></li>
+<li><a href="https://driver-install.techidaily.com/download-amd-rx-570-drivers-for-windows-11107/"><u>[Download] AMD RX 570 Drivers for Windows 11/10/7</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-big-sur-essentials-system-and-hardware-upgrade/"><u>[New] 2024 Approved Big Sur Essentials System and Hardware Upgrade</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-essential-insights-for-crafting-youtube-intros-aplusb-methods/"><u>[New] 2024 Approved Essential Insights for Crafting YouTube Intros A+B Methods</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-deciphering-the-common-thought-on-vllo-for-2024/"><u>[New] Deciphering the Common Thought on VLLO for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-precision-close-up-techniques-with-kinemaster-software/"><u>[Updated] Precision Close-Up Techniques with Kinemaster Software</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/2024s-top-free-audio-converter-software-a-comprehensive-list-of-the-best-14-programs/"><u>2024'S Top Free Audio Converter Software: A Comprehensive List of the Best 14 Programs</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/ai-video-editing-software-and-top-recommendations/"><u>AI, Video Editing Software, and Top Recommendations.</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/conversione-gratuita-da-avi-a-flv-su-internet-scopri-come-usare-movavi-per-la-tua-conversione-senza-costi-aggiuntivi/"><u>Conversione Gratuita Da AVI a FLV Su Internet - Scopri Come Usare Movavi per La Tua Conversione Senza Costi Aggiuntivi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/convertissez-vos-videos-en-un-clin-doeil-avec-movavi-achetez-votre-licence-standard-des-maintenant/"><u>Convertissez Vos Vidéos en Un Clin D'œil Avec Movavi : Achetez Votre Licence Standard Dès Maintenant</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/effortless-transformation-from-mts-to-mp4-files-using-top-video-converters/"><u>Effortless Transformation From MTS to MP4 Files Using Top Video Converters</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/excelente-software-gratuito-de-captura-de-tela-movavi-compativel-com-pcs-e-notebooks-sem-estresse-ou-custo/"><u>Excelente Software Gratuito De Captura De Tela - MovaVi, Compatível Com PCs E Notebooks Sem Estresse Ou Custo</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/free-online-conversion-transforming-asf-files-into-mp3-format-with-movavi/"><u>Free Online Conversion: Transforming ASF Files Into MP3 Format with Movavi</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-insert-sign-in-uot-file-by-ldigisigner-sign-a-word-sign-a-word/"><u>How to insert sign in .uot file</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-videos-from-honor-play-40c-by-fonelab-android-recover-video/"><u>How to Rescue Lost Videos from Honor Play 40C</u></a></li>
+<li><a href="https://techidaily.com/how-to-soft-reset-vivo-s18e-phone-drfone-by-drfone-reset-android-reset-android/"><u>How to Soft Reset Vivo S18e phone? | Dr.fone</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/moving-3gp-video-files-online-free-of-charge-with-movavi-omzetten-ingenomheidsbeveiliging/"><u>Moving 3GP Video Files Online Free of Charge with Movavi - Omzetten Ingenomheidsbeveiliging</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/ogg-mp4mp3/"><u>OGG 형식으로 무료 MP4/MP3 변환 - 원형 이식 기능으로 쉽게 수행하세요!</u></a></li>
+<li><a href="https://article-tips.techidaily.com/tips-for-staying-positive-in-the-face-of-critical-youtube-comments-for-2024/"><u>Tips for Staying Positive in the Face of Critical YouTube Comments for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/top-10-games-like-ghost-of-tsushima-you-must-try/"><u>Top 10 Games Like Ghost of Tsushima You Must Try</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

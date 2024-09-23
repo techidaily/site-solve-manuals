@@ -1,7 +1,7 @@
 ---
 title: "Implementing Efficient Automated Doc Handling with ABBYY: Insights From the Official Blog"
-date: 2024-09-16T23:48:18.348Z
-updated: 2024-09-18T16:15:17.002Z
+date: 2024-09-18T18:36:21.325Z
+updated: 2024-09-23T17:22:14.181Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/bdc516c407f1c047ce69fce10934901af5b77e56306af6bf8cabd1b35043cc3e.jpg
@@ -34,6 +34,19 @@ ABBYY’s FlexiCapture platform is unique in being able to handle documents of a
 Invoices, which vary by supplier, are automatically read and processed, providing all necessary data to Kryon Systems’ Leo platform to execute the remainder of the process – checking and approval procedures, and posting to ERP systems for payment. Used in combination, both platforms automate and streamline document processes, driving operational efficiencies, reducing unnecessary costs and freeing up staff to focus on value-adding financial activities.
 
 [Digital Transformation](https://tools.techidaily.com/abbyy/products/) [Artificial Intelligence (AI)](https://www.abbyy.com/blog/artificial-intelligence-ai/ "Artificial Intelligence (AI)") [Robotic Process Automation (RPA)](https://www.abbyy.com/blog/robotic-process-automation-rpa/ "Robotic Process Automation (RPA)") [Intelligent Document Processing (IDP)](https://www.abbyy.com/blog/intelligent-document-processing-idp/ "Intelligent Document Processing (IDP)") 
+
+<!-- affiliate ads begin -->
+<span id="1542129">
+					<video width="864" height="1152" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -98,24 +111,20 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-unleash-your-inner-documentarian-comprehensive-guide-for-recording-sims-4-gameplay-triumphantly/"><u>[New] Unleash Your Inner Documentarian Comprehensive Guide for Recording Sims 4 Gameplay Triumphantly</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-innovative-video-strategies-navigating-the-top-20-fb-marketing-tactics/"><u>[Updated] In 2024, Innovative Video Strategies Navigating the Top 20 FB Marketing Tactics</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-into-the-depths-of-screen-capture-a-youtube-perspective-for-idevices/"><u>2024 Approved Into the Depths of Screen Capture A YouTube Perspective for iDevices</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/2024s-top-free-audio-converter-software-a-comprehensive-list-of-the-best-14-programs/"><u>2024'S Top Free Audio Converter Software: A Comprehensive List of the Best 14 Programs</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/boosting-visual-clarity-mastering-video-upgrades-with-adobe-premiere-pro/"><u>Boosting Visual Clarity: Mastering Video Upgrades with Adobe Premiere Pro</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/guia-rapida-para-transformar-tu-musica-ape-directamente-en-mp3-gratuito-online-mediante-movavi/"><u>Guía Rápida Para Transformar Tu Música APE Directamente en MP3 Gratuito Online Mediante Movavi</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-spotify-location-after-moving-to-another-country-on-honor-magic-6-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Spotify Location After Moving to Another Country On Honor Magic 6 | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-pc-screen-to-nubia-z50s-pro-phones-drfone-by-drfone-android/"><u>In 2024, How to Mirror PC Screen to Nubia Z50S Pro Phones? | Dr.fone</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/new-the-ultimate-list-of-10-free-online-video-trimmers-2023-edition/"><u>New The Ultimate List of 10 Free Online Video Trimmers (2023 Edition)</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/top-tips-para-otimizacao-de-gravacoes-obs-em-2024-com-melavvi-guia-definitivo/"><u>Top Tips Para Otimização De Gravações OBS Em 2024 Com Melavvi: Guia Definitivo</u></a></li>
-<li><a href="https://blog-min.techidaily.com/1725284939830-windows-11dvd/"><u>Windows 11へようこそ：スマートなDVD作成が今日から始まる！</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/your-instagram-photo-journey-starts-here/"><u>Your Instagram Photo Journey Starts Here</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-locate-hidden-watch-video-preview/"><u>[New] Locate Hidden Watch Video Preview</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-optimizing-nintendo-switch-controller-for-steam-games-for-2024/"><u>[Updated] Optimizing Nintendo Switch Controller for Steam Games for 2024</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/mp3-3gpp-movavi/"><u>簡便高效：以 Mp3 形式解決方案，自動將 3GPP 轉換 - Movavi 無償版</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/boosting-mobile-photography-tips-for-enhancing-iphoneipad-camera-quality/"><u>Boosting Mobile Photography: Tips for Enhancing iPhone/iPad Camera Quality</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/bypassing-css-drm-on-dvds-a-step-by-step-guide-for-transferring-to-iosipados-devices-and-android/"><u>Bypassing CSS DRM on DVDs: A Step-by-Step Guide for Transferring to iOS/iPadOS Devices & Android</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/conversion-gratuite-de-fichiers-jp2-a-ligne-movavi/"><u>Conversion Gratuite De Fichiers JP2 À Ligne - Movavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/conversione-video-mp4-a-formato-m4a-gratuiti-su-internet-con-movavi/"><u>Conversione Video MP4 a Formato M4A Gratuiti Su Internet Con Movavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/download-and-convert-audiovideo-files-from-wav-to-wmv-online-at-no-cost-movavi-converter/"><u>Download and Convert Audio/Video Files From WAV to WMV Online at No Cost - Movavi Converter</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/gratuit-konverteren-van-mp3-naar-aac-onlinereptiel-met-movavi/"><u>Gratuit Konverteren Van MP3 Naar AAC - Onlinereptiel Met Movavi</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-samsung-galaxy-a24-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Samsung Galaxy A24 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/inspiring-lives-the-honterus-effect/"><u>Inspiring Lives: The Honterus Effect</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/insta-pros-guide-accelerate-your-path-to-social-media-stardom/"><u>Insta Pro's Guide Accelerate Your Path to Social Media Stardom</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/transfert-gratuit-3gp-vers-lignes-numeriques-solution-movavi/"><u>Transfert Gratuit 3GP Vers Lignes Numériques - Solution Movavi</u></a></li>
+<li><a href="https://blog-min.techidaily.com/1726030242576-youtube/"><u>YouTube動画の音声コンテンツを正しくダウンロードする手引き</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/zakonove-pripravene-pruvodectvi-jak-snadno-pokusit-sebe-oblasti-obrazovky-s-obs-movavi/"><u>Zákonové Přípravené Průvodectví Jak Snadno Pokusit Sebe Oblasti Obrazovky S OBS - Movavi</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

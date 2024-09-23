@@ -1,7 +1,7 @@
 ---
 title: "Charting the Path of Auto-Advancement in InsurTech: An IDC Visual Guide"
-date: 2024-09-13T23:29:56.043Z
-updated: 2024-09-18T16:56:48.417Z
+date: 2024-09-19T19:07:06.543Z
+updated: 2024-09-23T17:29:51.266Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/011cd437a5e5d10d41a78dcfee8a0e614c88ee22e859cb58cb87727b51edba04.jpg
@@ -21,19 +21,26 @@ As “born-in-tech” insurance providers are emerging, traditional insurers are
 
 But unlike the “rip-and-replace” projects of the past, they are using technology to transform discrete parts of the business, rather than broadly transforming the entire organization. And the results are promising: Insurers implementing AI and automation have experienced improved CX and increased revenue.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Download this infographic to see IDC’s research about the latest approach to Intelligent Automation in insurance.
 
 <!-- affiliate ads begin -->
-<span id="1516072">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
+<span id="1977006">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Thank you for your interest in ABBYY.
@@ -41,10 +48,10 @@ But unlike the “rip-and-replace” projects of the past, they are using techno
 [Read the report](https://digital.abbyy.com/hubfs/documents/content/infographic-insurance-IDC-process-automation-strategy-innovation-en.pdf "Read the report") 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### You might also be interested in...
@@ -52,6 +59,13 @@ But unlike the “rip-and-replace” projects of the past, they are using techno
 [![ABBYY for Insurance](https://static2.abbyy.com/abbyycommedia/31575/03a-insurance-cases-process.jpg) Intelligent Automation for Insurers: Strategically Automate and Digitize Policy and Claims Processes Learn more](https://www.abbyy.com/solutions/insurance/ "Intelligent Automation for Insurers: Strategically Automate and Digitize Policy and Claims Processes")[![ABBYY Timeline Process Mining](https://static4.abbyy.com/abbyycommedia/34808/vantage-new-product-video.jpg) ABBYY Vantage Intelligent Document Processing for Insurance Watch video](https://www.youtube.com/watch?v=LcNkRzqhgRY "ABBYY Vantage Intelligent Document Processing for Insurance")[![Optimize your claims processes from intake to close - ABBYY eBook](https://static3.abbyy.com/abbyycommedia/34064/104-how-well-does-your-clain-management-lifecycle-perform-en-360x232.jpg) How Well Does Your Claims Management Lifecycle Perform? Download eBook](https://digital.abbyy.com/hubfs/documents/content/ebook-insurance-claims-management-lifecycle-en.pdf "How Well Does Your Claims Management Lifecycle Perform?") 
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)
 
@@ -122,15 +136,25 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-crafting-a-scintillating-trailer-tale/"><u>[Updated] In 2024, Crafting A Scintillating Trailer Tale</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/free-conversion-change-your-files-from-aiff-to-wma-using-an-online-tool/"><u>Free Conversion: Change Your Files From AIFF to WMA Using an Online Tool</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/full-fix-protocol-troubleshooting-and-restoring-beyond-the-wire-microphone-functionality/"><u>Full Fix Protocol: Troubleshooting and Restoring 'Beyond The Wire' Microphone Functionality</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/grabacion-de-audio-gratuita-para-windows-y-macos/"><u>Grabación De Audio Gratuita Para Windows Y macOS</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-bypass-android-lock-screen-using-emergency-call-on-sony-xperia-1-v-by-drfone-android/"><u>How to Bypass Android Lock Screen Using Emergency Call On Sony Xperia 1 V?</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-ispoofer-on-meizu-21-pro-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Meizu 21 Pro? | Dr.fone</u></a></li>
-<li><a href="https://win-dash.techidaily.com/mastering-excel-to-powerpoint-integration-a-comprehensive-guide/"><u>Mastering Excel to PowerPoint Integration: A Comprehensive Guide</u></a></li>
-<li><a href="https://program-issues.techidaily.com/overcoming-installation-problems-for-football-manager-2023-on-pc-and-consoles/"><u>Overcoming Installation Problems for Football Manager 2023 on PC and Consoles</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/the-art-of-cross-promotion-twitters-to-facebooks/"><u>The Art of Cross-Promotion Twitters to Facebooks</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/transformez-gratuitement-un-fichier-pbm-en-format-png-avec-movavi-convertissez-facilement-et-sans-frais/"><u>Transformez Gratuitement Un Fichier PBM en Format PNG Avec Movavi - Convertissez Facilement Et Sans Frais !</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-5-best-snipping-tool-for-chromebook/"><u>[New] In 2024, 5 Best Snipping Tool For Chromebook</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-maximizing-memories-techniques-for-gameplay-recording/"><u>[New] In 2024, Maximizing Memories Techniques for Gameplay Recording</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/6-ultimate-free-film-editor-applications-no-cost-options/"><u>6 Ultimate Free Film Editor Applications - No Cost Options</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/movavi-ogv-mov/"><u>免費線上服務：Movavi提供的 OGV 和 MOV 影片專家轉換器</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/beginners-guide-the-15-leading-video-editing-programs-easy-to-use/"><u>Beginner's Guide: The 15 Leading Video Editing Programs Easy To Use</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cambiar-formatos-de-archivo-sin-coste-convertir-pgm-a-imagenes-bitmap-libremente-con-movavi/"><u>Cambiar Formatos De Archivo Sin Coste - Convertir PGM a Imagenes Bitmap Libremente Con Movavi</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/discover-best-free-video-screen-recorder-options-for-2024/"><u>Discover Best Free Video Screen Recorder Options for 2024</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/gratis-digitaal-converter-versterk-uw-soundfiles-van-wav-tot-flacaiff-via-movavi/"><u>Gratis Digitaal Converter: Versterk Uw Soundfiles Van WAV Tot FLAC/AIFF via Movavi</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/how-to-secure-your-canon-printer-mg3cu22-with-the-newest-update/"><u>How to Secure Your Canon Printer (MG3cu22) With the Newest Update!</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-frp-hijacker-by-hagard-download-and-bypass-your-tecno-pop-7-pro-frp-locks-by-drfone-android/"><u>In 2024, FRP Hijacker by Hagard Download and Bypass your Tecno Pop 7 Pro FRP Locks</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-share-mac-to-apple-iphone-se-drfone-by-drfone-ios/"><u>In 2024, How to Screen Share Mac to Apple iPhone SE? | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-scope-of-panoramic-filmmaking-explained/"><u>In 2024, The Scope of Panoramic Filmmaking Explained</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1726227583001-movavi-video-editor/"><u>Movavi Video Editor: 高效下载与使用指南</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-neon-typography-made-easy-9-best-online-text-generator-tools/"><u>New Neon Typography Made Easy 9 Best Online Text Generator Tools</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/top-18-editores-de-peliculas-sin-costo-para-windows-11-8-y-7-guia-completa/"><u>Top 18 Editores De Películas Sin Costo Para Windows 11, 8 Y 7: Guía Completa</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/transform-your-mp4-footage-into-high-quality-content-using-movavis-editing-tool/"><u>Transform Your MP4 Footage Into High-Quality Content Using Movavi's Editing Tool</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/transform-your-photos-downloadable-no-cost-arw-to-png-converter-by-movavi/"><u>Transform Your Photos: Downloadable, No-Cost ARW to PNG Converter by Movavi</u></a></li>
+<li><a href="https://fox-links.techidaily.com/unselect-recommended-podcasts-efficiently-on-spotify/"><u>Unselect Recommended Podcasts Efficiently on Spotify</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-filmora-for-beginners-a-comprehensive-guide-to-creating-stunning-reaction-videos-for-2024/"><u>Updated Filmora for Beginners A Comprehensive Guide to Creating Stunning Reaction Videos for 2024</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1726222869124-wmvgif-movavi/"><u>オンラインで無料WMVからGIFへの高速変換 - Movaviサポート</u></a></li>
 </ul></div>
 

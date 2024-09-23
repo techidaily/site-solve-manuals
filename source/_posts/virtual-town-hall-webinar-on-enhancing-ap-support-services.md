@@ -1,7 +1,7 @@
 ---
 title: Virtual Town Hall Webinar on Enhancing AP Support Services
-date: 2024-09-12T21:06:38.383Z
-updated: 2024-09-18T19:09:43.138Z
+date: 2024-09-19T18:31:30.826Z
+updated: 2024-09-23T18:19:29.203Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/77a0a1507f5da99a4dd0db6a1e358f4e656bf9fb2de63da75eb278005236e188.jpg
@@ -15,6 +15,19 @@ thumbnail: https://thmb.techidaily.com/77a0a1507f5da99a4dd0db6a1e358f4e656bf9fb2
 
 English
 
+<!-- affiliate ads begin -->
+<span id="1484963">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Featuring
 
 ![18 Reggietwigg 198X198](https://static4.abbyy.com/abbyycommedia/25122/logo-2021-76x23.svg) 
@@ -27,11 +40,25 @@ Director, Automation Solutions and Product Marketing, Digital Enterprise, **ABBY
 
 ![Stephanie Ryan 198X198](https://static4.abbyy.com/abbyycommedia/33066/stephanie-ryan-198x198.png)
 
+<!-- affiliate ads begin -->
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
+  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Stephanie Ryan
 
 Senior Services Sales Manager, **Basware**
 
 ![Anand Misra](https://static2.abbyy.com/abbyycommedia/33068/anand-misra-198x198.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1884017/19272" target="_top" id="1884017">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884017" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884017/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Anand Misra
 
@@ -40,10 +67,10 @@ Director of Product & Partner Marketing, **Tipalti**
 ![Byron Biggins](https://static4.abbyy.com/abbyycommedia/33070/byron-biggins-198x198.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Byron Biggins
@@ -51,10 +78,10 @@ Director of Product & Partner Marketing, **Tipalti**
 Senior Vice President of Strategic Partnerships, **Nvoicepay**
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Overview
@@ -67,14 +94,14 @@ From best practices in supplier management and invoice processing to electronic 
 
 Moderated by Mark Brousseau. Panelists from: **Basware, Tipalti, Nvoicepay,** and **ABBYY**
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Watch now
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Get in touch with us
 
@@ -86,13 +113,6 @@ All personal information collected via this method is under full scope of all pr
 [![The Accounts Payable Help Line 750X422](https://static4.abbyy.com/abbyycommedia/33063/the-accounts-payable-help-line-750x422.png)](https://www.youtube.com/watch?v=BcT5h41xgBg) 
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)
 
@@ -159,21 +179,19 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-maximize-your-videos-with-top-youtube-rippers/"><u>[New] 2024 Approved Maximize Your Videos with Top YouTube Rippers</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-take-your-smartphone-cinematography-to-new-heights-with-these-9-accessories/"><u>[New] 2024 Approved Take Your Smartphone Cinematography to New Heights with These 9 Accessories</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-a-visual-journey-to-crafting-a-user-friendly-subscribe-link/"><u>[New] A Visual Journey to Crafting a User-Friendly Subscribe Link</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-momentary-motion-picture-manuscript/"><u>[New] Momentary Motion Picture Manuscript</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-exclusive-list-of-windows-10-recording-software/"><u>[Updated] Exclusive List of Windows 10 Recording Software</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-the-ultimate-image-sharing-blueprint-for-youtube-enthusiasts/"><u>[Updated] The Ultimate Image Sharing Blueprint for YouTube Enthusiasts</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/1726223557441-movavijpg/"><u>「Movaviで簡単なJPGへの変換 - 無料オンラインツール」</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/conversion-gratuita-di-file-pef-in-formato-png-con-movavi-strategie-seo-per-massimizzare-il-tuo-traffico-web/"><u>Conversion Gratuita Di File PEF in Formato PNG Con Movavi - Strategie SEO per Massimizzare Il Tuo Traffico Web</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/effortless-audio-and-video-editing-convert-wav-tracks-to-premium-mkv-on-movavi-for-free/"><u>Effortless Audio and Video Editing: Convert WAV Tracks to Premium MKV on Movavi for Free!</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/gratis-mp4-videos-in-asf-konverteren-met-de-vervangbare-online-oplossing-van-movavi/"><u>Gratis MP4-Video's in ASF Konverteren Met De Vervangbare Online Oplossing Van Movavi</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/gratuito-conversion-de-mpeg-a-flac-online-con-movavi-pasos-simples/"><u>Gratuito Conversión De MPEG a FLAC Online Con Movavi: Pasos Simples</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/movavis-easy-guide-convert-aif-files-into-high-quality-m4a-format-at-no-cost/"><u>Movavi's Easy Guide - Convert AIF Files Into High-Quality M4A Format at No Cost</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/record-your-mac-livestreams-like-a-pro-top-5-free-tools-and-techniques/"><u>Record Your Mac Livestreams Like a Pro: Top 5 FREE Tools & Techniques</u></a></li>
-<li><a href="https://video-capture.techidaily.com/solve-invisible-frames-in-video-capture-software/"><u>Solve Invisible Frames in Video Capture Software</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/the-best-practices-for-timing-user-removals-on-formerly-twitter/"><u>The Best Practices for Timing User Removals on [Formerly Twitter]</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/the-pathway-to-personalizing-your-virtual-existence/"><u>The Pathway to Personalizing Your Virtual Existence</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-reddits-supreme-judges-the-most-upvoted-posts-ever/"><u>[New] Reddit's Supreme Judges The Most Upvoted Posts Ever</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-gradual-volume-curve-of-audio-reduction-in-fl-studio/"><u>[New] The Gradual Volume Curve of Audio Reduction in FL Studio</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-8-compelling-no-cost-video-calls-applications-for-pc-and-mac-users/"><u>[Updated] 2024 Approved 8 Compelling No-Cost Video Calls Applications for PC and MAC Users</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-iphone-tips-mastering-video-replay-for-2024/"><u>[Updated] IPhone Tips Mastering Video Replay for 2024</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/mp3-3gpp-movavi/"><u>簡便高效：以 Mp3 形式解決方案，自動將 3GPP 轉換 - Movavi 無償版</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/conversione-video-mp4-a-formato-m4a-gratuiti-su-internet-con-movavi/"><u>Conversione Video MP4 a Formato M4A Gratuiti Su Internet Con Movavi</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/diy-battery-swap-recharging-your-ipad-like-a-pro/"><u>DIY Battery Swap - Recharging Your iPad Like a Pro</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/download-and-convert-audiovideo-files-from-wav-to-wmv-online-at-no-cost-movavi-converter/"><u>Download and Convert Audio/Video Files From WAV to WMV Online at No Cost - Movavi Converter</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/explore-the-new-samsung-galaxy-z-flip-6-costs-introduction-dates-and-innovative-features/"><u>Explore the New Samsung Galaxy Z Flip 6 – Costs, Introduction Dates & Innovative Features</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-revolutionizing-video-quality-with-nikon-j5/"><u>In 2024, Revolutionizing Video Quality with Nikon J5</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-ultimate-guide-to-free-pptp-vpn-for-beginners-on-realme-c55-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Free PPTP VPN For Beginners On Realme C55 | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ring-youtube-metrics-for-effective-content-strategy/"><u>Mastering YouTube Metrics for Effective Content Strategy</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/transfert-gratuit-3gp-vers-lignes-numeriques-solution-movavi/"><u>Transfert Gratuit 3GP Vers Lignes Numériques - Solution Movavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/zakonove-pripravene-pruvodectvi-jak-snadno-pokusit-sebe-oblasti-obrazovky-s-obs-movavi/"><u>Zákonové Přípravené Průvodectví Jak Snadno Pokusit Sebe Oblasti Obrazovky S OBS - Movavi</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Customized Audience Tracking with Cookiebot: Enhance Your Website's Engagement"
-date: 2024-09-12T00:11:23.639Z
-updated: 2024-09-18T22:08:00.406Z
+date: 2024-09-22T17:24:14.330Z
+updated: 2024-09-23T18:48:50.424Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/bc4c1fafbeb0a4b8e3066f1ca761f451b6c08fbe8e8ce84b7a7a9649ff05ac95.jpg
@@ -29,6 +29,19 @@ thumbnail: https://thmb.techidaily.com/bc4c1fafbeb0a4b8e3066f1ca761f451b6c08fbe8
 
 驚いたのは、職場の課題に対するもう1つの主要な要因がプロセスであったことです。 効率性、コンプライアンス、そして、より良いビジネス成果を促進するために業務プロセスが用意されていることには、ほとんどの人が同意します。しかしながら、回答者のほぼ半数（48％）が、業務プロセスが仕事をより困難にした、つまり不十分であると非難し、それを理由に4人に1人が仕事を辞めたいと考えています。 別の36％は、プロセスが時間を無駄にし、プロセスを使えなくしたと述べています。
 
+<!-- affiliate ads begin -->
+<span id="1983582">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### では、プロセスは従業員の仕事にどのように悪影響を及ぼしますか？ そして、これに対処するために何ができるでしょうか？
 
 答えは、多くの組織が、人々がシステム、アプリケーションと対話しながら異常値のイベントを処理するような方法ではなく、どうプロセスが流れるべきかの考えに基づいてプロセスを開発することにあります。 業務内の複数のプロセスを分析し、業務オペレーションと業務プロセスのデジタルプロセスモデル（「デジタルツイン」）を提供できる[プロセスインテリジェンス](https://tools.techidaily.com/abbyy/products/)を活用して、ABBYYはこの問題を解決します。
@@ -38,6 +51,13 @@ thumbnail: https://thmb.techidaily.com/bc4c1fafbeb0a4b8e3066f1ca761f451b6c08fbe8
 調査からわかったもう1つの興味深いことは、新型コロナウィルス感染拡大時のテクノロジーの導入でした。 回答者の企業の64％は、WFH（Work From Home, 在宅勤務）のストレスを軽減するために、ロックダウン中に初めて新しいテクノロジーとプロセスを迅速に採用しました。自動で紙をデジタル化してプロセスを支援するツールとこのツールを使った新規顧客申込処理は、回答者に成功したと見なされました（76％）。 これには、従業員のタスクとパフォーマンスを監視するためのツールも含まれていました。
 
 ![COVID Impact on Business, Employees](https://static1.abbyy.com/abbyycommedia/30408/abbyy-global-covid-technology-survey_us_1200x628.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 従業員がタスクを実行する方法を監視することは、タスクマイニングと呼ばれる、プロセスインテリジェンスの初期のカテゴリのものにあたります。 タスクマイニングを使用すると、ユーザの操作を収集して分析することにより、どのようにタスクをやりくりしているのかを理解できます。 このような深い理解は、プロセスを自動化、そして改善するのに役立ちます。 タスクマイニングはプロセスマイニングと類似していますが、システムのログファイルやビジネス指標ではなく、ユーザとアプリとの相互やり取りのデータを使用してプロセスを分析します。 [ABBYY Task Mining（英語版）](https://tools.techidaily.com/abbyy/products/) は、デスクトップ上のユーザインタラクションデータ（ユーザとアプリとの相互やり取りデータ）を分析し、システムイベントデータからマイニング（取り出）されたプロセスの詳細とシームレスにリンクします。これにより、プロセスを遅くしている反復的で非効率的なタスクとタスクシーケンスを特定し、適切な場所にリソースを割り当て、解決することが可能となります。
 
@@ -61,9 +81,23 @@ thumbnail: https://thmb.techidaily.com/bc4c1fafbeb0a4b8e3066f1ca761f451b6c08fbe8
 
 ![Bruce Orcutt ABBYY](https://static5.abbyy.com/abbyycommedia/25719/bruceorcutt-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Bruce Orcutt
 
 Vice President of Product Marketing at ABBYY
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### いいね！、シェア、再投稿
 
@@ -128,25 +162,19 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-skills.techidaily.com/updated-the-step-by-step-guide-for-vintage-photo-conversion-and-storage/"><u>[Updated] The Step-by-Step Guide for Vintage Photo Conversion & Storage</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-elevate-your-social-story-essential-tactics-for-facebook-profiles/"><u>2024 Approved Elevate Your Social Story Essential Tactics for Facebook Profiles</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/1726222165241-mpeg-movavi/"><u>電腦平台MPEG靜止及動態視頻形式改變 – Movavi</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/movavi-vob-mjpeg/"><u>完美解決方法：以Movavi 轉換器將線上VOB文件自動改為 MJPEG格式</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/bereikbare-leseinspanningen-met-movavi-leerportaal-nutte-gidsen-en-tips/"><u>Bereikbare Leseinspanningen Met Movavi-Leerportaal: Nutte Gidsen en Tips</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/descargar-y-convertir-archivos-mkv-a-formato-wav-sin-coste-guia-paso-a-paso-con-movavi/"><u>Descargar Y Convertir Archivos MKV a Formato WAV Sin Coste: Guía Paso a Paso Con Movavi</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-track-motorola-edge-2023-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>How to Track Motorola Edge 2023 Location without Installing Software? | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-14-pro-max-to-other-iphone-12-pro-max-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 14 Pro Max To Other iPhone 12 Pro Max devices? | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-honor-v-purse-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Honor V Purse to Samsung Phone | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-xiaomi-redmi-k70e-drfone-by-drfone-virtual-android/"><u>In 2024, Planning to Use a Pokemon Go Joystick on Xiaomi Redmi K70E? | Dr.fone</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/mastering-the-art-of-total-iphone-data-erasure-a-strategic-approach-from-stellar/"><u>Mastering the Art of Total iPhone Data Erasure - A Strategic Approach From Stellar</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/top-10-risorse-online-per-scaricare-cartoons-free-nel-2024-guida-seo/"><u>Top 10 Risorse Online Per Scaricare Cartoons Free Nel 2024 - Guida SEO</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-honor-x9b-drfone-by-drfone-virtual-android/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Honor X9b | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-highly-effective-ways-to-stream-and-record-sports-games/"><u>[New] 2024 Approved Highly Effective Ways to Stream and Record Sports Games</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/202ncdmp3/"><u>「如何在202n年有效地從CD升級到MP3：初學者友好版指南」</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-best-route-generator-apps-you-should-try-on-tecno-spark-10-4g-drfone-by-drfone-virtual-android/"><u>5 Best Route Generator Apps You Should Try On Tecno Spark 10 4G | Dr.fone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/beat-speaker-delay-woes-with-this-essential-2024-troubleshooting-guide/"><u>Beat Speaker Delay Woes with This Essential 2024 Troubleshooting Guide</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/conversion-gratuita-online-de-archivos-asf-a-avi-mediante-movavi-compruebe-la-oferta-hoy/"><u>Conversión Gratuita Online De Archivos ASF a AVI Mediante Movavi - Compruebe La Oferta Hoy!</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/effective-strategies-for-recording-conferences-using-zoom-skype-and-similar-platforms/"><u>Effective Strategies for Recording Conferences Using Zoom, Skype, and Similar Platforms</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/free-online-converter-mp4-to-wma-format-moveit/"><u>Free Online Converter: MP4 to WMA Format - MoveIt</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/funimate-android-gameplay-apk-to-victory-guide-for-2024/"><u>Funimate Android Gameplay - APK to Victory Guide for 2024</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/gratuit-gebaseerd-wma-omzetter-onlinerepti-matige-geheugen-moviva/"><u>Gratuit Gebaseerd WMA-Omzetter: Onlinerepti Matige Geheugen - MoviVa</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-poco-x5-pro-drfone-by-drfone-virtual-android/"><u>How to Come up With the Best Pokemon Team On Poco X5 Pro? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-iphone-7-plus-3-ways-to-unlock-by-drfone-ios/"><u>How To Unlock iPhone 7 Plus 3 Ways To Unlock</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-will-ispoofer-update-on-realme-10t-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Will iSpoofer update On Realme 10T 5G | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-comprehensive-tutorial-activating-and-leveraging-copilot-for-microsoft-teams-efficiency/"><u>The Comprehensive Tutorial: Activating and Leveraging Copilot for Microsoft Teams Efficiency</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1726226824751-mp4mp3/"><u>オンラインで手軽にMP4からMP3へ変換!? 無料動画コンバーター</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

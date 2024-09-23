@@ -1,7 +1,7 @@
 ---
 title: "Digitales Spiegelbild Für Unternehmensabläufe: Einführungsbuch – ABBEY-Linie"
-date: 2024-09-12T19:58:18.239Z
-updated: 2024-09-18T16:50:56.623Z
+date: 2024-09-19T17:32:24.996Z
+updated: 2024-09-23T16:45:58.924Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1ccc74ee674e5bb21d96568f803e367c477d95c5c3cb7fed4a8969e3e80f00a3.jpg
@@ -15,11 +15,25 @@ Datenblatt
 
 ![Der Digitale Zwilling für Geschäftsprozesse](https://static1.abbyy.com/abbyycommedia/34351/80b-rise-of-the-process-digital-twin-de-262x340.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Steuern Sie Ihre Daten. Verstehen Sie Ihre Prozesse. Sehen Sie die Zukunft voraus. Handeln Sie effizienter.
 
 Dieses Untersuchungsgebiet hat sich zu einer Produktklasse entwickelt, die zusammenfassend als Process-Mining- oder Process-Analytics-Anwendungen bezeichnet wird. Die Entwicklung dieses Untersuchungsgebiets hat eine neue Art von Analytik hervorgebracht; sie läuft unter dem Begriff Process Intelligence.
 
 Process Intelligence geht über einfaches Process Mining hinaus und bietet dem Benutzer im Unternehmen eine einfach zu verwendende Point-and-Click-Oberfläche ohne Programmier-Anforderungen. Es ist eine unverzichtbare und sich schnell entwickelnde Geschäftsstrategie, die es Unternehmen ermöglicht, die Kontrolle über ihre Prozesse zu übernehmen. Sie erhalten damit die Möglichkeit, auf dem Weg zu kontinuierlicher und nachhaltiger Prozessqualität voranzukommen.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Jetzt herunterladen!
 
@@ -28,10 +42,10 @@ Wie können Sie die Vielzahl von Datenpunkten, die von diesen Betriebssystemen g
 ABBYY Timeline löst diese Herausforderung mit einem interaktiven Modell – einem Digitalen Zwilling für Prozesse.
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576474/17382" target="_top" id="1576474">
-  <img src="//a.impactradius-go.com/display-ad/17382-1576474" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576474/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Die eigenen Geschäftsprozesse zu verstehen, ist nun einfacher! Laden Sie unsere Broschüre herunter, um mehr zu erfahren.
@@ -43,10 +57,10 @@ ABBYY Timeline löst diese Herausforderung mit einem interaktiven Modell – ein
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2087234/19272" target="_top" id="2087234">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087234" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087234/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Haben Sie Fragen? [Kontaktieren Sie uns.](https://tools.techidaily.com/abbyy/products/)
@@ -118,12 +132,16 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/facebook-cover-video-all-you-need-to-know/"><u>Facebook Cover Video All You Need to Know</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/gratis-omzetten-van-mxf-bestandjes-veilige-en-vrije-conversie-met-movavi/"><u>Gratis Omzetten Van MXF-Bestandjes: Veilige en Vrije Conversie Met Movavi</u></a></li>
-<li><a href="https://fox-http.techidaily.com/iphones-and-gifs-storing-sharing-and-enjoying-animated-images-for-2024/"><u>IPhones and GIFs Storing, Sharing & Enjoying Animated Images for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/need-help-brightness-levels-unavailable-on-windows/"><u>Need Help: Brightness Levels Unavailable on Windows</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/transforma-tu-video-en-un-gif-gratuito-guia-paso-a-paso-para-crear-archivos-animados-online/"><u>Transforma Tu Vídeo en Un GIF Gratuito: Guía Paso a Paso Para Crear Archivos Animados Online</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/transforming-mp3s-into-perfect-iphone-ringtones-discover-the-top-two-techniques/"><u>Transforming MP3s Into Perfect iPhone Ringtones: Discover the Top Two Techniques</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/will-2023-see-an-increase-in-televising-video-content-for-2024/"><u>Will 2023 See an Increase in Televising Video Content for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-10-best-picture-organizers-for-striking-grids/"><u>[Updated] 10 Best Picture Organizers for Striking Grids</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/mp3-3gpp-movavi/"><u>簡便高效：以 Mp3 形式解決方案，自動將 3GPP 轉換 - Movavi 無償版</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/conversione-video-mp4-a-formato-m4a-gratuiti-su-internet-con-movavi/"><u>Conversione Video MP4 a Formato M4A Gratuiti Su Internet Con Movavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/download-and-convert-audiovideo-files-from-wav-to-wmv-online-at-no-cost-movavi-converter/"><u>Download and Convert Audio/Video Files From WAV to WMV Online at No Cost - Movavi Converter</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-leading-edge-the-top-10-mobile-video-chat-platforms/"><u>In 2024, Leading Edge The Top 10 Mobile Video Chat Platforms</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-6-appsservices-to-trace-any-samsung-galaxy-s23plus-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, Top 6 Apps/Services to Trace Any Samsung Galaxy S23+ Location By Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastering-home-networks-with-the-d-link-powerline-seamless-configuration-and-enhanced-speed-performance/"><u>Mastering Home Networks with the D-Link Powerline - Seamless Configuration & Enhanced Speed Performance</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-get-best-subtitle-edit-for-mac-alternatives-for-2024/"><u>New Get Best Subtitle Edit for Mac Alternatives for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/passfab-apple-iphone-7-plus-backup-unlocker-top-4-alternatives-drfone-by-drfone-ios/"><u>PassFab Apple iPhone 7 Plus Backup Unlocker Top 4 Alternatives | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/the-easiest-methods-to-hard-reset-samsung-galaxy-a05-drfone-by-drfone-reset-android-reset-android/"><u>The Easiest Methods to Hard Reset Samsung Galaxy A05 | Dr.fone</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/transfert-gratuit-3gp-vers-lignes-numeriques-solution-movavi/"><u>Transfert Gratuit 3GP Vers Lignes Numériques - Solution Movavi</u></a></li>
 </ul></div>
 
