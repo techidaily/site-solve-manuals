@@ -1,7 +1,7 @@
 ---
 title: "Complete Transformation: Manchester Uni Healthcare's Revolutionary Shift to Full-Automation of Invoicing & Minimizing Payment Hazards"
-date: 2024-09-17T16:46:09.425Z
-updated: 2024-09-23T19:07:43.326Z
+date: 2024-09-20T21:38:29.267Z
+updated: 2024-09-28T02:52:49.414Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/09131504d6b18963281f522bba9f2baa6f9c4f1ee05a4b5b8a249fec882bec30.jpg
@@ -23,6 +23,13 @@ Adopting ABBYY IDP has resulted in an evolution of our function and our staff, e
 
 Edd Berry, Director of Finance Innovation, Manchester University NHS Foundation Trust
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Challenge
 
 MFT processes around 275,000 invoices a year from approximately 6,000 live suppliers, with thousands of different types of invoices. It planned to further automate invoicing by feeding information from its existing IDP solution to its ERP system, enabled by robotic process automation (RPA). However, manual effort was still required between the systems due to IDP inaccuracies and inconsistencies that could not be processed by the RPA tool.
@@ -33,6 +40,13 @@ MFT needed to find an IDP solution that could:
 * Pass data reliably to RPA so it can successfully align with POs in MFT’s financial system
 * Minimize coding requirements for data manipulation
 * Reduce invoice validation and training time
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094479/7443" target="_top" id="2094479">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094479" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094479/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Solution
 
@@ -45,10 +59,10 @@ Staff can now build a skill with low—even no— code, leveraging pre-built ext
 The consistent and reliable results achieved with invoice automation has given MFT confidence about extending this automation to processes beyond invoices.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915825/19272" target="_top" id="1915825">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915825" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100533/7443" target="_top" id="2100533">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100533" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915825/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100533/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Value
@@ -65,16 +79,10 @@ The consistent and reliable results achieved with invoice automation has given M
 ![FC_1](https://content.abbyy.com/-/media/project/abbyy/abbyy/products/flexicapture/fc_1.jpg?h=392&iar=0&w=696)
 
 <!-- affiliate ads begin -->
-<span id="1983446">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2043855/7443" target="_top" id="2043855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043855" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043855/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### ABBYY Solutions for Accounts Payable Automation
@@ -88,20 +96,6 @@ The consistent and reliable results achieved with invoice automation has given M
 [Learn more](https://content.abbyy.com/-/media/Project/Abbyy/Abbyy/Insights/Customer-Stories/PDFs/customer-story-intelligent-document-processing-healthcare-nhs-manchester-university-foundation-trust-en.pdf)
 
 ![laptop mug](https://content.abbyy.com/-/media/project/abbyy/abbyy/company/newsroom/news-images/laptop-mug.jpg?h=836&iar=0&w=1486)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Ready to speak with an expert?
 
@@ -120,5 +114,18 @@ The consistent and reliable results achieved with invoice automation has given M
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-best-affordable-tools-the-10-free-screen-sharing-platforms/"><u>[New] 2024 Approved Best Affordable Tools The 10 Free Screen Sharing Platforms</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-flawless-footage-with-best-stabilizer-brands-for-2024/"><u>[New] Flawless Footage with Best Stabilizer Brands for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-unlock-3d-text-magic-with-adobes-creative-suite/"><u>[Updated] In 2024, Unlock 3D Text Magic with Adobe's Creative Suite</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1-no-cost-online-conversion-transforming-ts-files-into-avi-with-moveavi/"><u>1. No Cost Online Conversion: Transforming TS Files Into AVI with Moveavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1726227018906-webmgif-movavi/"><u>無料でWebMを動画GIFに変換する: Movaviの使い方 - 詳しく解説!</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1726223221348-3gppwmv-movavi/"><u>無料でスムーズな3GPPへのWMVビデオ変換方法 - Movaviユーザガイド</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/free-online-converter-swf-to-wmv-by-movavi-no-cost-transformation/"><u>Free Online Converter: SWF to WMV by Movavi - No Cost Transformation</u></a></li>
+<li><a href="https://discover-cloud.techidaily.com/guide-complet-transformer-un-dvd-en-flux-de-streaming-sur-un-reseau-nas-synology-ou-qnap/"><u>Guide Complet - Transformer Un DVD en Flux De Streaming Sur Un Réseau NAS Synology Ou QNAP</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-samsung-galaxy-xcover-7-drfone-by-drfone-virtual-android/"><u>In 2024, All You Need To Know About Mega Greninja For Samsung Galaxy XCover 7 | Dr.fone</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/online-flvogg-movavi/"><u>Online FLV/OGG 영상 무료 전환 - Movavi</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/virtual-worlds-analyzing-current-state-and-ahead/"><u>Virtual Worlds Analyzing Current State & Ahead</u></a></li>
+</ul></div>
 

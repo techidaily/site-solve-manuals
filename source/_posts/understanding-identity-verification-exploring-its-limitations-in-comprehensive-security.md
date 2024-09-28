@@ -1,7 +1,7 @@
 ---
 title: "Understanding Identity Verification: Exploring Its Limitations in Comprehensive Security"
-date: 2024-09-16T18:48:17.677Z
-updated: 2024-09-23T17:43:51.474Z
+date: 2024-09-20T16:37:34.943Z
+updated: 2024-09-28T02:02:29.268Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8e945962e22da7cc13548b0273df3ba622849bedca30e5d0f04cb4a458929e39.jpg
@@ -31,19 +31,20 @@ One of the critical aspects of online services involving sensitive data—such a
 
 ![Identity proofing in action example](https://static1.abbyy.com/abbyycommedia/36102/poi-gif-5_using-poi-2.gif?width=847&height=477)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080312/19272" target="_top" id="2080312">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080312" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080312/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 A common misperception of identity proofing equates it with another common online security concept, _identity authentication_. Authentication is the use of a combination of credentials—generally a username and password—to gain access to a resource. However, before users can be assigned credentials, especially for access to sensitive resources, they must first verify who they are through identity proofing.
 
 <!-- affiliate ads begin -->
-<span id="1977028">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1880940/19272" target="_top" id="1880940">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880940" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880940/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How does identity proofing work?
@@ -56,27 +57,7 @@ The NIST identifies [three steps that make up the identity proofing process](htt
 
 ![](https://static1.abbyy.com/abbyycommedia/36099/2_steps-in-identity-proofing-and-identity-affirmation.jpg)
 
-<!-- affiliate ads begin -->
-<span id="2135471">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Manual approaches to this detailed process can be time-consuming, tedious, and at high risk for error. Fortunately, today’s identity proofing systems can leverage automation and AI to carry out each step without the need for human intervention in most cases.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## What’s the difference between identity proofing and identity affirmation … and why do we need both? 
 
@@ -135,6 +116,13 @@ Not only can you minimize the risk of fraud—and the corresponding costs in ter
 
 Learn about ABBYY's comprehensive identity proofing solution. [ABBYY Proof of Identity](https://tools.techidaily.com/abbyy/products/) does it all. 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036486/19272" target="_top" id="2036486">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036486" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036486/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### ABBYY Proof of Identity
 
 Easy for your customers. Secure for your business.
@@ -144,10 +132,10 @@ Easy for your customers. Secure for your business.
 [Artificial Intelligence (AI)](https://www.abbyy.com/blog/artificial-intelligence-ai/ "Artificial Intelligence (AI)") [Customer Experience](https://tools.techidaily.com/abbyy/products/) [Customer Onboarding](https://tools.techidaily.com/abbyy/products/) [Data Privacy](https://tools.techidaily.com/abbyy/products/) [Digital Transformation](https://tools.techidaily.com/abbyy/products/) [Enterprise](https://tools.techidaily.com/abbyy/products/) [Financial Services](https://tools.techidaily.com/abbyy/products/) [Government](https://tools.techidaily.com/abbyy/products/) [Healthcare](https://tools.techidaily.com/abbyy/products/) [Intelligent Automation](https://tools.techidaily.com/abbyy/products/) [Intelligent Document Processing (IDP)](https://www.abbyy.com/blog/intelligent-document-processing-idp/ "Intelligent Document Processing (IDP)") [Insurance](https://tools.techidaily.com/abbyy/products/) [Legal](https://tools.techidaily.com/abbyy/products/) [Mobile](https://tools.techidaily.com/abbyy/products/) [Robotic Process Automation (RPA)](https://www.abbyy.com/blog/robotic-process-automation-rpa/ "Robotic Process Automation (RPA)") [Transportation & Logistics](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2112008/7443" target="_top" id="2112008">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112008" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112008/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Like, share or repost
@@ -211,5 +199,24 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-optimal-method-for-integrating-gopro-footage-into-360-degree-films/"><u>[Updated] 2024 Approved Optimal Method for Integrating GoPro Footage Into 360-Degree Films</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/gifpng-movavi/"><u>免費線上改造GIF成PNG格式：如何利用 Movavi 工具</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/convertir-un-fichier-ogm-en-format-mov-facilement-sur-internet-sans-frais-movavi/"><u>Convertir Un Fichier OGM en Format MOV Facilement Sur Internet Sans Frais - Movavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/convertissez-gratuitement-un-fichier-ts-en-mp4-sur-internet-avec-movavi/"><u>Convertissez Gratuitement Un Fichier .TS en MP4 Sur Internet Avec Movavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/descubre-el-secreto-de-uniformizar-ediciones-en-adobe-after-effects-una-guia-completa/"><u>Descubre El Secreto De Uniformizar Ediciones en Adobe After Effects: Una Guía Completa</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/easily-update-to-the-latest-logitech-audio-drivers-on-windows-operating-systems-win10win7win8/"><u>Easily Update to the Latest Logitech Audio Drivers on Windows Operating Systems (Win10/Win7/Win8)</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/free-conversion-change-mod-files-to-mov-format-with-online-tools/"><u>Free Conversion: Change .MOD Files to .MOV Format with Online Tools</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/from-raw-footage-crafting-engaging-videos-on-windows-11-for-2024/"><u>From Raw Footage Crafting Engaging Videos on Windows 11 for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-vivo-s17-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Vivo S17? | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-put-dvd-movies-and-songs-onto-your-walkman-easy-tutorial-for-japanese-users/"><u>How to Put DVD Movies and Songs Onto Your Walkman – Easy Tutorial for Japanese Users</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-full-guide-to-unlock-your-samsung-galaxy-m54-5g-by-drfone-android/"><u>In 2024, Full Guide to Unlock Your Samsung Galaxy M54 5G</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/megoldas-az-mxf-a-mp4-konvertalasa-modjairol-8-as-kiadasu-konverter-tenyezoknek-a-macwindows-rendszerrel/"><u>Megoldás Az MXF a MP4 Konvertálása Módjairol 8-as Kiadású Konverter Tényezőknek A Mac/Windows Rendszerrel</u></a></li>
+<li><a href="https://win-blog.techidaily.com/overcoming-play-time-disruptions-with-effective-tips-for-addressing-starcraft-2-crashes-on-your-desktop/"><u>Overcoming Play-Time Disruptions with Effective Tips for Addressing Starcraft 2 Crashes on Your Desktop</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/the-best-27-text-to-speech-applications-of-2024-reviewed-by-movavi/"><u>The Best 27 Text-to-Speech Applications of 2024 Reviewed by Movavi</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/tips-and-tricks-for-setting-up-your-motorola-moto-g23-phone-pattern-lock-by-drfone-android/"><u>Tips and Tricks for Setting Up your Motorola Moto G23 Phone Pattern Lock</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/transformer-des-fichiers-audio-3gp-en-formats-wav-sans-frais-methode-facile-et-gratuit-de-la-plateforme-enligne/"><u>Transformer Des Fichiers Audio 3GP en Formats WAV Sans Frais - Méthode Facile Et Gratuit De La Plateforme Enligne</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/ultimate-tutorial-set-up-and-enjoy-sirius-channels-with-a-kodi-addon-for-media-center-pro-2023/"><u>Ultimate Tutorial: Set Up and Enjoy Sirius Channels with a Kodi Addon for Media Center Pro 2023</u></a></li>
+</ul></div>
 

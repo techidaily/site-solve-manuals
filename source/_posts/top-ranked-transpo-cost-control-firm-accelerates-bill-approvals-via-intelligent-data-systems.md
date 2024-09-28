@@ -1,7 +1,7 @@
 ---
 title: Top-Ranked Transpo Cost Control Firm Accelerates Bill Approvals via Intelligent Data Systems
-date: 2024-09-18T18:49:48.067Z
-updated: 2024-09-23T17:11:12.593Z
+date: 2024-09-21T19:05:41.847Z
+updated: 2024-09-27T20:47:31.920Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4703b9d657812b3886216df90e44b1d9ef5fb3878b6869f4909ce7c65740d3ae.jpg
@@ -19,18 +19,18 @@ Transportation & Logistics | Accounts Payable Automation
 
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Leader in Transportation Cost Management Speeds Invoice Processing with Automated Data Capture
 
 Transportation & Logistics | Accounts Payable Automation 
 
 ![](https://static1.abbyy.com/abbyycommedia/38092/ds-260_afs-case-study_thumbnails-gray-556-303.jpg) 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972665/19272" target="_top" id="1972665">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972665" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972665/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### Customer Overview
 
@@ -61,27 +61,20 @@ AFS, a world-leader in transportation cost management, processes 70,000,000 invo
 
 ###### SEE HOW ABBYY CAN HELP
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **2,600,000** 
 
 paper invoices a year
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### a **50**% drop
 
 of turnaround time
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### $**60,000** of
 
@@ -120,15 +113,22 @@ And how has FlexiCapture delivered during this hectic growth period? “Brillian
 [![Transportation & Logistics](https://static5.abbyy.com/abbyycommedia/14363/13-transportation.jpg)](https://tools.techidaily.com/abbyy/products/) [Transportation](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![PDF Version](https://static3.abbyy.com/abbyycommedia/38090/ds-260_afs-case-study_thumbnails-gray-360-162.jpg)](https://static3.abbyy.com/abbyycommedia/38077/customer-story-intelligent-document-processing-transportation-afs-en.pdf "PDF version") [PDF version](https://static3.abbyy.com/abbyycommedia/38077/customer-story-intelligent-document-processing-transportation-afs-en.pdf "PDF version") 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [read more](https://static3.abbyy.com/abbyycommedia/38077/customer-story-intelligent-document-processing-transportation-afs-en.pdf "PDF version") 
 
@@ -159,5 +159,18 @@ We'd love to help you along your automation journey.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-honesty-in-high-definition-reviewing-recordcasts-efficacy/"><u>[New] Honesty in High-Definition Reviewing RecordCast's Efficacy</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-the-verdict-on-vllo-performance/"><u>[Updated] 2024 Approved The Verdict on VLLO Performance</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-voice-to-text-review/"><u>[Updated] 2024 Approved Voice to Text Review</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/abbyys-growth-trajectory-accelerates-in-asia-pacific-with-key-acquisition-of-pericom-singapore/"><u>ABBYY's Growth Trajectory Accelerates in Asia Pacific with Key Acquisition of Pericom Singapore</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/boost-conversion-rates-discover-the-advanced-capabilities-of-cookiebot-analytics/"><u>Boost Conversion Rates: Discover the Advanced Capabilities of Cookiebot Analytics</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/boost-your-sites-analytics-using-our-advanced-cookiebot-technology/"><u>Boost Your Site's Analytics Using Our Advanced Cookiebot Technology</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/boosting-metro-ags-wholesale-transactions-abbyy-speeds-up-customer-payments-by-90/"><u>Boosting Metro AG's Wholesale Transactions: ABBYY Speeds Up Customer Payments by 90%</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/brian-unruh-takes-on-role-of-cfo-at-abbyy-steering-financial-strategy-forward/"><u>Brian Unruh Takes on Role of CFO at ABBYY, Steering Financial Strategy Forward</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/design-your-brand-free-logo-templates-and-personalization/"><u>Design Your Brand Free Logo Templates & Personalization</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-mastering-content-structure-elevated-templates-for-yt/"><u>In 2024, Mastering Content Structure Elevated Templates for YT</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/stellaris-unveiled-mastering-space-exploration-and-empirical-conquest-in-this-phenomenal-game/"><u>Stellaris Unveiled: Mastering Space Exploration and Empirical Conquest in This Phenomenal Game</u></a></li>
+</ul></div>
 

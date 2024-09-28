@@ -1,7 +1,7 @@
 ---
 title: Revolutionize Your Scanning Workflow with ABBYY's OCR Software Development Kit for Precise Text Extraction and Analysis
-date: 2024-09-18T19:00:36.717Z
-updated: 2024-09-23T17:37:20.471Z
+date: 2024-09-26T00:29:34.497Z
+updated: 2024-09-28T03:58:17.010Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/965654acbd64cd762e18be6423e980e53d1c3fa7dd1512b5cfdc18b0e2b93a57.jpg
@@ -20,10 +20,10 @@ ABBYY FineReader Engine
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/products/finereader-engine/fre_visual.jpg?h=500&iar=0&w=2560)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 自動文書分析
@@ -39,10 +39,10 @@ ABBYY FineReader Engine
   
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144271/7443" target="_top" id="2144271">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144271" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144271/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### フィールドレベル認識用にブロックをマニュアル指定
@@ -50,10 +50,10 @@ ABBYY FineReader Engine
 テキスト認識範囲をマニュアルで指定するモードです。 この場合、認識すべきフィールドを直接定義するので、自動文書分析は不要となります。 指定したフィールドの座標とプロパティについての情報が、これに続く認識工程に引き渡され、指定された部分でのみOCRが実行されます。
 
 <!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
-  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 専門家とお話ししてみませんか？ 
@@ -73,5 +73,17 @@ ABBYY FineReader Engine
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-global-leaders-in-digital-education-beyond-udemy/"><u>[Updated] 2024 Approved Global Leaders in Digital Education Beyond Udemy</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-integrate-with-ease-an-in-depth-look-at-instagrams-music-icons/"><u>[Updated] 2024 Approved Integrate with Ease An In-Depth Look at Instagram's Music Icons</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/enhance-digital-engagement-with-our-expertise-in-cookiebot-technology-solutions/"><u>Enhance Digital Engagement with Our Expertise in Cookiebot Technology Solutions</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/enhanced-traffic-with-automated-tracking-the-benefits-of-using-cookiebot/"><u>Enhanced Traffic with Automated Tracking: The Benefits of Using Cookiebot</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/harness-the-power-of-cookiebot-for-superior-site-analytics-and-personalization/"><u>Harness the Power of Cookiebot for Superior Site Analytics and Personalization</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-edit-and-send-fake-location-on-telegram-for-your-oneplus-11-5g-in-3-ways-drfone-by-drfone-virtual-android/"><u>In 2024, Edit and Send Fake Location on Telegram For your OnePlus 11 5G in 3 Ways | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-vivo-y78t-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On Vivo Y78t | Dr.fone</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/iphone-document-scanning-and-conversion-convert-pdf-jpg-files-into-editable-text-with-finereader-app/"><u>IPhone Document Scanning & Conversion: Convert PDF, JPG Files Into Editable Text with FineReader App</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/play-store-stuck-on-downloading-of-infinix-smart-8-pro-7-ways-to-resolve-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Stuck on Downloading Of Infinix Smart 8 Pro? 7 Ways to Resolve | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/saving-tweets-with-smiles-gif-master-2024-edition/"><u>Saving Tweets with Smiles GIF Master 2024 Edition</u></a></li>
+</ul></div>
 

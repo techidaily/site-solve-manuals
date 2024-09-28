@@ -1,7 +1,7 @@
 ---
 title: Zeitreisen Durch Digitalisierung – ABBYY Verbindet Universitätsbibliothek Frankfurt Mit Der Vergangenheit
-date: 2024-09-18T18:50:40.447Z
-updated: 2024-09-23T17:38:14.575Z
+date: 2024-09-27T01:35:46.634Z
+updated: 2024-09-27T17:04:11.480Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/02e725c673b3c10c639720505ea896a1091c0eab71839b6a6c2629d037059245.jpg
@@ -19,13 +19,6 @@ Education/Research | Education | PDF and Document Conversion
 
 [Zurück zu den Kundenreferenzen](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148646/16836" target="_top" id="2148646">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148646" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148646/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Universitätsbibliothek Frankfurt macht mit ABBYY historische Dokumente online verfügbar
 
 Bildungswesen | PDF- und Dokumentenumwandlung 
@@ -33,10 +26,10 @@ Bildungswesen | PDF- und Dokumentenumwandlung
 ![](https://static1.abbyy.com/abbyycommedia/15018/library-pic1.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902324/19272" target="_top" id="1902324">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902324" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902324/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Über den Kunden
@@ -98,6 +91,13 @@ Nach einer Phase der Adaption lief die OCR-Erkennung reibungslos zur vollsten Zu
 
 [![3-finereader-engine](https://static2.abbyy.com/abbyycommedia/14346/3-finereader-engine.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FineReader Engine](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Mehr erfahren](https://tools.techidaily.com/abbyy/products/) 
 
 [![15-education](https://static1.abbyy.com/abbyycommedia/14365/15-education.jpg)](https://tools.techidaily.com/abbyy/products/)") [Bildung und Forschung (EN)](https://tools.techidaily.com/abbyy/products/)") 
@@ -107,10 +107,10 @@ Nach einer Phase der Adaption lief die OCR-Erkennung reibungslos zur vollsten Zu
 [![cs-texthelp-360x162](https://static2.abbyy.com/abbyycommedia/15361/cs-texthelp-360x162.jpg)](https://static5.abbyy.com/abbyycommedia/6165/cs%5Funiversitaet%5Ffrankfurt%5Ffr%5Fd.pdf "PDF-Version") [PDF-Version](https://static5.abbyy.com/abbyycommedia/6165/cs%5Funiversitaet%5Ffrankfurt%5Ffr%5Fd.pdf "PDF-Version") 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012429/19272" target="_top" id="2012429">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012429" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012429/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [Zum Dokument](https://static5.abbyy.com/abbyycommedia/6165/cs%5Funiversitaet%5Ffrankfurt%5Ffr%5Fd.pdf "PDF-Version") 
@@ -124,16 +124,10 @@ Teilen  True ?  : ""
 [Alle ABBYY-Niederlassungen](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Sind Sie bereit, mit einem Experten zu sprechen?
@@ -155,5 +149,21 @@ Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-8-fastest-growing-youtube-channel/"><u>[New] In 2024, 8 Fastest Growing YouTube Channel</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-how-to-snip-youtube-videos-effortlessly/"><u>[Updated] 2024 Approved How to Snip YouTube Videos Effortlessly</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-easy-ways-to-change-location-on-youtube-tv-on-realme-c51-drfone-by-drfone-virtual-android/"><u>5 Easy Ways to Change Location on YouTube TV On Realme C51 | Dr.fone</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-success-optimizing-your-website-with-smart-analytics-tools/"><u>Cookiebot-Driven Success: Optimizing Your Website with Smart Analytics Tools</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-optimized-website-performance-and-personalization/"><u>Cookiebot-Enabled: Optimized Website Performance and Personalization</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-enhanced-boost-your-sites-performance-and-personalization/"><u>Cookiebot-Enhanced: Boost Your Site's Performance and Personalization</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-the-advanced-tool-behind-exceptional-personalization-and-targeting/"><u>Cookiebot: The Advanced Tool Behind Exceptional Personalization and Targeting</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/customized-audience-tracking-with-cookiebot-enhance-your-websites-engagement/"><u>Customized Audience Tracking with Cookiebot: Enhance Your Website's Engagement</u></a></li>
+<li><a href="https://program-issues.techidaily.com/defeat-twitch-hiccups-7-strategies-for-resolving-playback-glitches/"><u>Defeat Twitch Hiccups: 7 Strategies for Resolving Playback Glitches</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-apple-iphone-se-2022-drfone-by-drfone-virtual-ios/"><u>In 2024, Read This Guide to Find a Reliable Alternative to Fake GPS On Apple iPhone SE (2022) | Dr.fone</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1722968812548-install-updated-msi-x470-motherboard-drivers-secure-your-system-today/"><u>Install Updated MSI X470 Motherboard Drivers – Secure Your System Today!</u></a></li>
+<li><a href="https://win-dash.techidaily.com/step-by-step-guide-installing-toshiba-printer-software-on-your-windows-pc/"><u>Step-by-Step Guide: Installing Toshiba Printer Software on Your Windows PC</u></a></li>
+<li><a href="https://video-capture.techidaily.com/techniques-for-capturing-high-quality-movies-on-all-os/"><u>Techniques for Capturing High-Quality Movies on All OS</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/the-ultimate-guide-to-choosing-a-photo-restoration-service-pros-and-cons-of-leading-options/"><u>The Ultimate Guide to Choosing a Photo Restoration Service: Pros & Cons of Leading Options</u></a></li>
+</ul></div>
 

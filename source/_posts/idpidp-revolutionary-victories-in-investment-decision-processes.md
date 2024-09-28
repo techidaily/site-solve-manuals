@@ -1,7 +1,7 @@
 ---
 title: IDP革命帷幄，IDP斐然！ - Revolutionary Victories in Investment Decision Processes!
-date: 2024-09-21T16:27:59.985Z
-updated: 2024-09-23T16:58:27.768Z
+date: 2024-09-22T23:30:00.811Z
+updated: 2024-09-28T00:50:15.644Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/dbe86ec4eee57de28307f7a87e5d2dc26b222d4d704a45568094d723e05d6df4.jpg
@@ -19,31 +19,44 @@ January 18, 2023
 
 「IDP is Dead, Long Live IDP（IDP崩御、IDP万歳）」--このフレーズは、変革と継続という感情を響かせています。「国王崩御、国王万歳!」という歴史的な宣言のように、私たちはインテリジェント文書処理（IDP）の領域領域における重要な転換期を迎えています。これは終わりではなく、再生であり、より強力で、AI (人工知能) の未来にとってより意義深いものへと変貌を遂げる瞬間なのです。
 
+<!-- affiliate ads begin -->
+<span id="1993651">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## インテリジェント文書処理（IDP）の進化
 
 この変革の中核にあるのは、実は何十年も前から存在する「光学文字認識 (OCR)」と呼ばれる技術です。かつては単にテキストをデジタル化するツールでしたが、OCR は現在、高品質なデータを使って大規模言語モデル (LLM) を学習させる上で欠かせない役割を果たしています。単純なテキスト変換ツールから高度なデータ供給者への進化は、IDP 技術の適応性と持続的な重要性を示しています。従来の IDP は、精度とコンテキストが最優先される新しい時代への道を切り開いているのです。
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 実世界での応用と課題
 
 今日の [OCR](https://tools.techidaily.com/abbyy/products/)は、単にテキストを読むだけでなく、テキスト全体を理解することが求められます。企業はこれまで以上に高い精度とより深いデータ洞察を求めているため、IDP技術はより高度で微妙なニュアンスを理解する必要があります。しかし、この進化には課題もあります。精度とコンテキスト理解のバランスが重要になってきます。AI システムに投入するデータは、正確であるだけでなく、文脈的にも関連性があるものであることをどのように保証するのでしょうか？
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### インテリジェント文書処理（IDP）の未来
 
 本当に理解力のある「IDP」こそが、データとAIに対する考え方そのものを革新し、未来を切り拓く鍵となります。単に文書を処理するだけでなく、内容を理解し、データだけでなくそこからインサイトを引き出すシステムの構築が求められています。 この新しいIDPこそが、絶え間なく進化を遂げるAIのランドマークとなり、より知的で効率的、そして直感的なシステム構築において欠かせない要素となるでしょう。
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100529/7443" target="_top" id="2100529">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 現代のIDPの内幕
 
@@ -60,13 +73,6 @@ January 18, 2023
 #### 継続的な学習と適応
 
 現代の IDP システムの真髄は、継続的に学習して向上できる点にあります。フィードバックループを取り入れることで、これらのシステムはアルゴリズムを改良し、新しいタイプのドキュメントに適応し、時間の経過とともに精度を向上させることができます。この継続的な学習プロセスにより、ドキュメントの種類や形式が進化し続ける中でも、IDP の関連性と有効性が維持されます。
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 大規模言語モデル（LLM）学習における高品質データの役割
 
@@ -93,10 +99,10 @@ IDP プロセスは、データ収集から始まります。OCR などの IDP �
 学習が完了すると、LLM は厳格なテストと検証を受けます。これには、LLM がさまざまな分野、スタイル、フォーマットの言語を理解し生成する能力をチェックすることが含まれます。この段階からのフィードバックは、学習ループにフィードバックされ、LLM の能力をさらに向上させます
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 新時代の幕開け
@@ -172,5 +178,26 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-dive-into-the-world-of-youtube-shorts-mastering-video-creation/"><u>[New] 2024 Approved Dive Into the World of YouTube Shorts Mastering Video Creation</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-best-video-grabbers-for-windows-10-pc/"><u>[New] In 2024, Best Video Grabbers for Windows 10 PC</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-the-ultimate-guide-to-creating-full-screen-memories/"><u>[Updated] In 2024, The Ultimate Guide to Creating Full-Screen Memories</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-sound-syncing-simplified-for-inshot-edits-for-2024/"><u>[Updated] Sound Syncing Simplified for InShot Edits for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-screen-recorder-pros-free-software-on-both-windows-and-macos/"><u>2024 Approved Screen Recorder Pros Free Software on Both Windows & MacOS</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1724313295714-dx/"><u>DX初心者をサポートする入門書リスト</u></a></li>
+<li><a href="https://win11.techidaily.com/fast-track-to-windows-help-top-5-routes-uncovered/"><u>Fast Track to Windows Help - Top 5 Routes Uncovered</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/next-gen-banking-masterclass-on-digital-transformation-and-process-automation/"><u>Next-Gen Banking: Masterclass on Digital Transformation and Process Automation</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/optimizing-your-site-with-advanced-cookiebot-technology/"><u>Optimizing Your Site with Advanced Cookiebot Technology</u></a></li>
+<li><a href="https://extra-information.techidaily.com/perfecting-visual-appeal-tips-for-incorporating-filters-in-media/"><u>Perfecting Visual Appeal Tips for Incorporating Filters in Media</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/strategic-growth-abbyys-commitment-to-expanding-enterprise-solutions-in-early-year-initiatives/"><u>Strategic Growth: Abbyy's Commitment to Expanding Enterprise Solutions in Early-Year Initiatives</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/streamline-your-logistics-the-power-of-smart-automation/"><u>Streamline Your Logistics: The Power of Smart Automation</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/successfully-integrating-ai-and-rpa-a-five-step-guide-leveraging-advanced-process-insight/"><u>Successfully Integrating AI and RPA: A Five-Step Guide Leveraging Advanced Process Insight</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-get-back-lost-data-from-infinix-hot-30-5g-by-fonelab-android-recover-data/"><u>The way to get back lost data from Infinix Hot 30 5G</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/unlocking-user-engagement-with-cookiebots-advanced-tracking-solutions/"><u>Unlocking User Engagement with Cookiebot's Advanced Tracking Solutions</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/unveiling-synergy-webinar-on-analytics-automation-and-process-insight-as-interconnected-strategies/"><u>Unveiling Synergy: Webinar on Analytics Automation & Process Insight as Interconnected Strategies</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-2024-approved-the-ultimate-list-of-free-mkv-cutters/"><u>Updated 2024 Approved The Ultimate List of Free MKV Cutters</u></a></li>
+<li><a href="https://ai-voice.techidaily.com/updated-best-5-tiktok-voice-generators-you-should-try-for-2024/"><u>Updated Best 5 TikTok Voice Generators You Should Try for 2024</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/webinar-on-smart-data-extraction-techniques-enhancing-business-insights/"><u>Webinar on Smart Data Extraction Techniques: Enhancing Business Insights</u></a></li>
+</ul></div>
 

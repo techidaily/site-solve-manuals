@@ -1,7 +1,7 @@
 ---
 title: "AI-Driven Triumph: ABBYY Achieves 60%% Revenue Surge - Accolades From IDC MarketScape"
-date: 2024-09-18T18:24:14.727Z
-updated: 2024-09-23T17:56:05.600Z
+date: 2024-09-22T06:59:19.880Z
+updated: 2024-09-28T03:23:29.767Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d9e5776de3811350c1a1e02825a34775cfed017b7d72a415b115da4cadd107c4.jpg
@@ -38,10 +38,10 @@ Matt Arcaro, IDC’s Research Director, Computer Vision and AI
 ABBYYは、インテリジェントオートメーションエコシステムにおいて影響力のある企業としてアナリストに認められ続けており、Gartner社、Everest Group社、NelsonHall社、GigaOm社の業界アナリスト4社も、ABBYYをインテリジェントドキュメントプロセッシング（IDP）とプロセスマイニングソリューションのリーダーとして位置づけています。ガートナーは、カスタマーサービスおよびサポートテクノロジー、ITマネジメントインテリジェンス、自律型会計、ERP、収益および販売テクノロジーを含む5つの2023年ハイプサイクルレポートでABBYYを取り上げました。
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
+  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### ABBYYについて 
@@ -51,10 +51,16 @@ ABBYYは、目的を絞り込んだAIでお客様の情報を活用します。�
 ABBYY は登録商標または商標であり、ABBYY グループ会社のロゴ、会社名 (またはその一部)、製品名の一部である場合もあり、それぞれの所有者の同意なしに使用することはできません。
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1976998">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### ABBYY編集部連絡先
@@ -62,10 +68,10 @@ ABBYY は登録商標または商標であり、ABBYY グループ会社のロ�
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006946/19272" target="_top" id="2006946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006946" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006946/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Gina Ray
@@ -89,5 +95,24 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-engaging-audiences-with-facebooks-virtual-reality-content-for-2024/"><u>[New] Engaging Audiences with Facebook's Virtual Reality Content for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-transforming-google-meet-screens-on-devices/"><u>[Updated] In 2024, Transforming Google Meet Screens on Devices</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-top-tier-external-ssds-for-elevated-xbox-use/"><u>[Updated] Top-Tier External SSDs for Elevated Xbox Use</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/online-m4b-and-m4a-movavi/"><u>最適な無料Online M4B & M4Aファイル変換 - Movaviでお試しください</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/a-complete-guide-to-oem-unlocking-on-honor-90-pro-by-drfone-android/"><u>A Complete Guide To OEM Unlocking on Honor 90 Pro</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/experience-with-samsung-galaxy-budsplus-a-hands-on-analysis/"><u>Experience with Samsung Galaxy Buds+ - A Hands-On Analysis</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/free-online-converter-easily-convert-wma-to-wmv-with-movavis-tools/"><u>Free Online Converter: Easily Convert WMA to WMV with Movavi's Tools</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/gratis-omzetten-van-mxf-bestandjes-veilige-en-vrije-conversie-met-movavi/"><u>Gratis Omzetten Van MXF-Bestandjes: Veilige en Vrije Conversie Met Movavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/guia-completa-para-transformar-tu-contenido-vob-en-avi-mediante-movavi-una-solucion-de-cambio-digital-sin-gastos/"><u>Guía Completa Para Transformar Tu Contenido VOB en AVI Mediante MÓVAVI: Una Solución De Cambio Digital Sin Gastos</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-bypassing-google-account-with-vnrom-bypass-for-oppo-find-x7-ultra-by-drfone-android/"><u>In 2024, Bypassing Google Account With vnROM Bypass For Oppo Find X7 Ultra</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/os-melhores-conversores-digital-de-vhs-para-dvd-comparando-os-top-10-mais-eficientes/"><u>Os Melhores Conversores Digital De VHS Para DVD: Comparando Os Top 10 Mais Eficientes</u></a></li>
+<li><a href="https://fake-location.techidaily.com/read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-nokia-c22-drfone-by-drfone-virtual-android/"><u>Read This Guide to Find a Reliable Alternative to Fake GPS On Nokia C22 | Dr.fone</u></a></li>
+<li><a href="https://fox-that.techidaily.com/stop-airpods-from-swapping-connections-tips-for-single-device-pairings-with-apple-products/"><u>Stop AirPods From Swapping Connections: Tips for Single Device Pairings with Apple Products</u></a></li>
+<li><a href="https://fox-that.techidaily.com/track-down-your-misplaced-or-pilfered-iphone-with-ease-using-apples-find-my-service/"><u>Track Down Your Misplaced or Pilfered iPhone with Ease Using Apple's Find My Service</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/transformation-libre-de-fichiers-vob-en-wmv-en-ligne-avec-movavi-guide-complet/"><u>Transformation Libre De Fichiers VOB en WMV en Ligne Avec Movavi - Guide Complet</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/transforming-mp3s-into-perfect-iphone-ringtones-discover-the-top-two-techniques/"><u>Transforming MP3s Into Perfect iPhone Ringtones: Discover the Top Two Techniques</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1726221741653-webm-mp4/"><u>WebM 표현식을 다원성 멀티미디어 MP4 형식으로 효율적으로 변환하는 방법</u></a></li>
+</ul></div>
 

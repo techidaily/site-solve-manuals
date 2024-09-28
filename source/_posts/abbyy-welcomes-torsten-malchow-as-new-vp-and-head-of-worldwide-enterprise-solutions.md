@@ -1,7 +1,7 @@
 ---
 title: ABBYY Welcomes Torsten Malchow as New VP and Head of Worldwide Enterprise Solutions
-date: 2024-09-17T18:41:42.064Z
-updated: 2024-09-23T17:08:34.279Z
+date: 2024-09-23T00:20:35.408Z
+updated: 2024-09-28T08:54:00.110Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/aeb1adbf149584a341fb74f49144490d740789721f41a9cf0edd89a122f69cd4.jpg
@@ -57,12 +57,26 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/new-complete-body-movement-report-2023-for-2024/"><u>[New] Complete Body Movement Report 2023 for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-in-2024-secrets-of-earning-big-reddits-13-money-makers/"><u>[New] In 2024, Secrets of Earning Big Reddit's 13 Money Makers</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-accelerating-fb-video-optimal-speeds-unveiled/"><u>[Updated] Accelerating FB Video Optimal Speeds Unveiled</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-breaking-the-mold-pushing-a-video-into-hot-water-for-2024/"><u>[Updated] Breaking the Mold Pushing a Video Into Hot Water for 2024</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1-automated-conversion-tracking-enhanced-with-cookiebot-technology/"><u>1. Automated Conversion Tracking: Enhanced with Cookiebot Technology</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1724313623358-abbyy-flexicapture/"><u>高付加価値への転換:ABBYY FlexiCapture®による請求書プロセス改革とデジタル技術活用</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/abbyy-launches-cutting-edge-research-facility-in-india/"><u>ABBYY Launches Cutting-Edge Research Facility in India</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/ai-driven-triumph-abbyy-achieves-60-revenue-surge-accolades-from-idc-marketscape/"><u>AI-Driven Triumph: ABBYY Achieves 60% Revenue Surge - Accolades From IDC MarketScape</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/automated-consent-management-how-cookiebot-streamlines-compliance/"><u>Automated Consent Management: How Cookiebot Streamlines Compliance</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1722975553931-hardware-assisted-virtualization-and-isolation/"><u>Hardware-Assisted Virtualization and Isolation:</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-pause-life360-location-sharing-for-xiaomi-redmi-note-12-4g-drfone-by-drfone-virtual-android/"><u>How To Pause Life360 Location Sharing For Xiaomi Redmi Note 12 4G | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-ways-to-track-lava-blaze-pro-5g-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Track Lava Blaze Pro 5G without Them Knowing | Dr.fone</u></a></li>
+</ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918679/19272" target="_top" id="1918679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918679" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918679/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "Introducing the Latest Milestone: ABBYY Opens a State-of-the-Art Innovation Center for Smart Automation in Serbia"
-date: 2024-09-21T18:21:31.689Z
-updated: 2024-09-23T18:24:27.886Z
+date: 2024-09-23T02:46:50.828Z
+updated: 2024-09-27T17:03:13.725Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d615ac68260522d8e70b422dd5540cece714bbc625d61d049281d91eac42f958.jpg
@@ -34,10 +34,10 @@ ABBYY is actively hiring new employees across Serbia and provides remote work op
 ABBYY is recognized as a leader [by several major analyst firms](https://tools.techidaily.com/abbyy/products/), including Everest Group and ISG, in Intelligent Document Processing (IDP), and in Process & Task Mining by NelsonHall, Zinnov, and others. To learn more about ABBYY intelligent process automation solutions, visit <https://www.abbyy.com/solutions/intelligent-process-automation-ipa/>.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### About ABBYY
@@ -51,10 +51,10 @@ ABBYY is a US-based global company with offices in 15 countries. For more inform
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies and may not be used without consent of its respective owners.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Editorial Contact
@@ -62,10 +62,10 @@ ABBYY can either be a registered trademark or a trademark and can also be a logo
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Gina Ray, APR
@@ -90,5 +90,18 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-mastering-visual-storytelling-with-online-wallpaper-swap/"><u>2024 Approved Mastering Visual Storytelling with Online Wallpaper Swap</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/comprehensive-security-report-understanding-organizational-safeguards/"><u>Comprehensive Security Report: Understanding Organizational Safeguards</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/comprehensive-step-by-step-tutorial-on-preparing-datasets-for-artificnial-intelligence/"><u>Comprehensive Step-by-Step Tutorial on Preparing Datasets for Artificnial Intelligence</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-personalization-enhancing-your-sites-user-experience/"><u>Cookiebot-Driven Personalization: Enhancing Your Site's User Experience</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-enhanced-experience-optimize-your-website-with-advanced-tracking-solutions/"><u>Cookiebot-Enhanced Experience: Optimize Your Website with Advanced Tracking Solutions</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/effective-fixes-for-world-of-warcraft-voice-chat-failures-and-interruptions/"><u>Effective Fixes for World of Warcraft Voice Chat Failures and Interruptions</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-unfortunately-settings-has-stopped-on-realme-gt-neo-5-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Unfortunately Settings Has Stopped on Realme GT Neo 5 Quickly | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/from-live-demos-to-online-sharing-mastering-idevice-screenshots-for-video-content-for-2024/"><u>From Live Demos to Online Sharing Mastering iDevice Screenshots for Video Content for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-turn-off-google-location-to-stop-tracking-you-on-vivo-x-flip-drfone-by-drfone-virtual-android/"><u>In 2024, How to Turn Off Google Location to Stop Tracking You on Vivo X Flip | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-pinpointing-premium-hdr-camera-brands/"><u>In 2024, Pinpointing Premium HDR Camera Brands</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-double-edged-sword-of-virtual-reality/"><u>In 2024, The Double-Edged Sword of Virtual Reality</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Boosting Efficiency in Rhenus Logistics Through ABBYY Intelligent Document Processor
-date: 2024-09-18T18:50:48.015Z
-updated: 2024-09-23T18:32:43.130Z
+date: 2024-09-25T19:36:43.477Z
+updated: 2024-09-28T03:51:08.786Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ef126118f50b6cc91b0e402fe75cfce958a6a6e6b161357abe8bae35407eca1c.jpg
@@ -19,29 +19,22 @@ Transportation & Logistics | Accounts Payable Automation
 
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657396/16446" target="_top" id="1657396">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657396" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657396/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Rhenus Logistics Accelerates Business Processes with ABBYY IDP
 
 Transportation & Logistics | Accounts Payable Automation 
 
 ![](https://static1.abbyy.com/abbyycommedia/16262/cs-rhenus-556x303-3.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### Customer Overview
 
 ![Rhenus Assets & Services GmbH & Co. KG](https://static4.abbyy.com/abbyycommedia/15831/rhenus-logo_150x80.jpg) 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036486/19272" target="_top" id="2036486">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036486" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036486/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 | Name         | Rhenus Assets & Services GmbH & Co. KG   |
 | ------------ | ---------------------------------------- |
@@ -91,26 +84,26 @@ Integrated middleware handles archiving and sends status reports to the various 
 
 [![FlexiCapture](https://static2.abbyy.com/abbyycommedia/21380/4-flexicapture.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![Transportation](https://static5.abbyy.com/abbyycommedia/14363/13-transportation.jpg)](https://tools.techidaily.com/abbyy/products/) [Transportation](https://tools.techidaily.com/abbyy/products/) 
-
-<!-- affiliate ads begin -->
-<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
-  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 [Read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![PDF Version](https://static2.abbyy.com/abbyycommedia/16261/cs-rhenus-360x162-3.jpg)](https://static2.abbyy.com/abbyycommedia/8812/case-study-rhenus-transport-logistics-en.pdf "PDF version") [PDF version](https://static2.abbyy.com/abbyycommedia/8812/case-study-rhenus-transport-logistics-en.pdf "PDF version") 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006960/19272" target="_top" id="2006960">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [Read more](https://static2.abbyy.com/abbyycommedia/8812/case-study-rhenus-transport-logistics-en.pdf "PDF version") 
@@ -122,6 +115,13 @@ Share  True ?  : ""
 [More about ABBYY](https://tools.techidaily.com/abbyy/products/) 
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Ready to talk to an expert?
 
@@ -142,5 +142,20 @@ We'd love to help you along your automation journey.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-duel-of-the-titans-gopro-hero-5-vs-nikon-km-170/"><u>[Updated] 2024 Approved Duel of the Titans GoPro Hero 5 VS Nikon KM-170</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-your-personalized-top-10-playlist-for-2024/"><u>[Updated] Your Personalized Top 10 Playlist for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-inside-the-studio-world-xvideo-studio-breakdown/"><u>2024 Approved Inside the Studio World XVideo Studio Breakdown</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deutsches-neugier-uber-10-grusse-ohne-hallo/"><u>Deutsches Neugier: Über 10 Grüße Ohne 'Hallo'</u></a></li>
+<li><a href="https://win-able.techidaily.com/how-to-repair-and-restart-internet-explorer-if-it-wont-open-correctly/"><u>How to Repair and Restart Internet Explorer If It Won't Open Correctly</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-unlock-apple-iphone-6-plus-when-we-dont-have-apple-id-or-password-by-drfone-ios/"><u>How to Unlock Apple iPhone 6 Plus When We Dont Have Apple ID or Password?</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-unleash-your-creativity-top-rated-video-collage-apps-for-iphone-and-ipad-for-2024/"><u>New Unleash Your Creativity Top-Rated Video Collage Apps for iPhone and iPad for 2024</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/transform-mobile-scanning-with-abbyys-business-card-reader-for-android-fast-accurate-intuitive-technology/"><u>Transform Mobile Scanning with ABBYY's Business Card Reader for Android: Fast, Accurate, Intuitive Technology</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/transform-your-business-save-time-and-money-with-our-superior-paperless-solutions-and-world-class-ocr-tools-for-smb-success/"><u>Transform Your Business: Save Time & Money with Our Superior Paperless Solutions and World-Class OCR Tools for SMB Success</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/understanding-color-spaces-srgb-vs-rgb/"><u>Understanding Color Spaces Srgb vs Rgb</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/unleashing-potential-with-cookiebot-technology-for-websites/"><u>Unleashing Potential with Cookiebot Technology for Websites</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/unlock-advanced-techniques-to-record-and-edit-videos-on-adobe-connect/"><u>Unlock Advanced Techniques to Record & Edit Videos on Adobe Connect</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/webinar-recap-strategies-to-minimize-risks-in-libor-agreements/"><u>Webinar Recap: Strategies to Minimize Risks in LIBOR Agreements</u></a></li>
+</ul></div>
 

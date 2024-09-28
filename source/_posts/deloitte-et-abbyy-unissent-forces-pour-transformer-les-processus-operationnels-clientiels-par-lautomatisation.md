@@ -1,7 +1,7 @@
 ---
 title: Deloitte Et ABBYY Unissent Forces Pour Transformer Les Processus Opérationnels Clientiels Par L'Automatisation
-date: 2024-09-19T17:19:47.531Z
-updated: 2024-09-23T18:07:44.725Z
+date: 2024-09-25T18:53:44.089Z
+updated: 2024-09-27T17:08:42.372Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0c6d2fd1a73159563e57dda315b30eb330741092cc6760e2a82edb3563c1b5c8.jpg
@@ -34,10 +34,10 @@ Le célèbre cabinet de conseil et d’étude Everest Group a désigné ABBYY co
 Vous retrouves plus d’infos concernant la technologie d’ABBYY sur [cette page concernant la collaboration avec Deloitte Luxembourg.](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### À propos de Deloitte Luxembourg
@@ -45,16 +45,16 @@ Vous retrouves plus d’infos concernant la technologie d’ABBYY sur [cette pag
 Avec plus de 130 Partners et 2 300 employés, Deloitte Luxembourg est un des cabinets de conseil professionnels les plus importants, les plus solides et les plus anciens du Grand-Duché. Depuis plus de 70 ans, des équipes talentueuses servent des clients actifs dans des secteurs variés et offrent des services à forte valeur ajoutée à des clients nationaux et internationaux dans les domaines de l’audit et de l’assurance, du conseil, du conseil financier, du conseil en matière de risques, de la fiscalité et des services connexes. Deloitte Luxembourg fait partie du réseau mondial de Deloitte, qui est présent dans plus de 150 pays et territoires et sert quatre entreprises sur cinq du Fortune Global 500\. Découvrez comment les collaborateurs de Deloitte ont un impact sur [www.deloitte.com/lu](http://www.deloitte.com/lu).
 
 <!-- affiliate ads begin -->
-<span id="1983549">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
+<span id="1977006">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### À propos d’ABBYY
@@ -62,10 +62,10 @@ Avec plus de 130 Partners et 2 300 employés, Deloitte Luxembourg est un des cab
 ABBYY est la force motrice de l’automatisation intelligente. Nous révolutionnons la façon dont les gens travaillent et aidons les entreprises à accélérer leurs opérations en leur apportant l’intelligence qui alimente les plateformes d’automatisation. Nos solutions transforment les données d’entreprise et fournissent les informations nécessaires pour travailler plus intelligemment et plus rapidement. Basé dans les États-Unis et avec des filiales dans quinze pays, nous aidons plus de 5 000 organisations de par le monde, dont un grand nombre d’entreprises du Fortune 500, à faire des progrès au niveau de l’expérience client, la rentabilité et l’avantage concurrentiel. Pour plus d’informations, rendez-vous sur [www.abbyy.com/company/about-us](https://tools.techidaily.com/abbyy/products/) et suivez-nous sur LinkedIn, Twitter et Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Contact presse
@@ -73,10 +73,10 @@ ABBYY est la force motrice de l’automatisation intelligente. Nous révolutionn
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
-  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Bianca Stupp
@@ -101,5 +101,19 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-ways-to-watch-facebook-live-on-tv/"><u>[New] In 2024, Ways To Watch Facebook Live On TV</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/conversion-gratuite-dimage-tiff-en-jpeg-enligne-utilisez-le-service-de-convertisseur-de-movavi/"><u>Conversion Gratuite D'Image TIFF en JPEG Enligne - Utilisez Le Service De Convertisseur De Movavi</u></a></li>
+<li><a href="https://techtrends.techidaily.com/expert-advice-on-resolving-stop-error-blues-and-ensuring-smooth-operation/"><u>Expert Advice on Resolving Stop Error Blues and Ensuring Smooth Operation</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-error-495-while-downloadupdating-android-apps-on-motorola-moto-g14-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Error 495 While Download/Updating Android Apps On Motorola Moto G14 | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-the-pathway-to-popularity-on-instagram-from-zero-to-a-thousand-in-30-days/"><u>In 2024, The Pathway to Popularity on Instagram From Zero to a Thousand in 30 Days</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/movavis-no-cost-ogg-to-aiff-converter-perfect-solution-for-your-file-needs/"><u>Movavi's No-Cost OGG to AIFF Converter - Perfect Solution for Your File Needs!</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/premier-visual-quality-leaks-for-2024/"><u>Premier Visual Quality Leaks for 2024</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/sharing-screens-seamlessly-across-pc-and-mobile-with-discord/"><u>Sharing Screens Seamlessly Across PC & Mobile with Discord</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/top-discounted-offers-for-tribit-audio-equipment-during-prime-sales-event/"><u>Top Discounted Offers for Tribit Audio Equipment During Prime Sales Event</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-tips-for-unstoppable-playing-of-detroit-become-human-on-your-computer/"><u>Troubleshooting Tips for Unstoppable Playing of Detroit: Become Human on Your Computer</u></a></li>
+<li><a href="https://extra-information.techidaily.com/unveiling-the-bestiary-of-top-ios-gif-tools/"><u>Unveiling the Bestiary of Top iOS GIF Tools</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1726221135878-gif-jpg-movavi/"><u>쉽게 GIF 에서 JPG로 변환하기 – Movavi의 가이드</u></a></li>
+</ul></div>
 

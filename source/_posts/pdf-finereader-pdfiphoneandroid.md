@@ -1,7 +1,7 @@
 ---
 title: "スクリーンショットからPDFへ: FineReader PDFというアプリはiPhone・Androidデバイスでどのように文章をスキャンしますか?"
-date: 2024-09-18T18:39:52.110Z
-updated: 2024-09-23T16:37:44.239Z
+date: 2024-09-21T08:05:35.354Z
+updated: 2024-09-27T19:37:58.188Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b2bf4cd4c4150768a4991186ca82f84c6e82b391b455745b734da2cba3671e13.jpg
@@ -154,6 +154,13 @@ Connect with us
 
 ![](https://static4.abbyy.com/abbyycommedia/32738/microsoftteams-image-20.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ABBYYのスキャンアプリに新しい名前とアイコンが追加された理由を知りたいですか？ 我々ABBYYは、今回素晴らしいニュースをお伝えします。ABBYYFineScannerはモバイル用のABBYYFineReader PDF for Mobileとして、名前が変更され、対応するデスクトップ製品と統合されました！ なぜ、大きく名前が変わるのですか、そしてあなたにとって何ができるようになりますか？ 早速、本題に入りましょう。
 
 2012年にFineScannerの最初のバージョンがリリースされたとき、多くの人々がスマートフォンをスキャナーとして使用することに懐疑的でした。 それ以来、モバイルスキャンアプリが改善され、以前に比べ、はるかに使いやすくなりました。一方で従来のスキャナー需要が減りつつあるため、多くの変化があります。
@@ -173,6 +180,14 @@ iOS ユーザ向け説明
 * **クラウドストレージ** を選択し、**Google Drive (FineReader)**をタップして下さい。  
 ![Mobile 1](https://static1.abbyy.com/abbyycommedia/32746/mobile1.png)
 * Google アカウントへサインインして下さい。
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * **自動アップロード先：**をタップして**Google Drive (FineReader)**を選択下さい。
 * 望んでいる出力ファイルのフォーマット、サイズが選択されているか確認下さい。  
 ![Mobile 2](https://static1.abbyy.com/abbyycommedia/32745/mobile2.png)
@@ -193,10 +208,16 @@ Android ユーザ向け説明
 * **Google Drive (FineReader)**の横の**追加**をタップ下さい。
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1495277">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Google Driveのアカウントへサインインして下さい。
@@ -222,13 +243,6 @@ ABBYY FineReader PDF 15を立ち上げ、**新しいタスクのモバイルア�
 
 ![finereader pdf](https://static1.abbyy.com/abbyycommedia/32904/finereader-screenshot-jp.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Google ドライブの中の **FineReader** フォルダを選択下さい。(これは最初の一度だけ設定する必要があります。)
 
 ![PC 2](https://static1.abbyy.com/abbyycommedia/32741/pc2.png)
@@ -238,13 +252,6 @@ Google ドライブの中に “**FineReader**” を見つけられない場合
 FineReader PDF 15 は **FineReader**フォルダへのパスを保存し、次回からはモバイルアプリケーションのタブをクリックした際に、そのフォルダを開きます。
 
 ![ABBYY FineReader PDF for Mobile](https://static1.abbyy.com/abbyycommedia/32903/finereader-screenshot-2-jp.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 FineReader PDF for Mobile アプリでスキャン作成したファイルで作業を続けるには、そのファイルをクリックして下さい。
 
@@ -263,16 +270,10 @@ PDF ファイルはPDFエディタで開かれます。そしてレビューし�
 [モバイル](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<span id="1977032">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### いいね！、シェア、再投稿
@@ -292,5 +293,24 @@ PDF ファイルはPDFエディタで開かれます。そしてレビューし�
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-top-5-youtube-video-editor-alternatives-for-2024/"><u>[New] Top 5 YouTube Video Editor Alternatives for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-quick-file-integration-from-pc-to-iphone/"><u>[Updated] Quick File Integration From PC to iPhone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/a-guide-nokia-130-music-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>A Guide Nokia 130 Music Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/christmas-movie-bonanza-enjoy-the-festivities-with-top-family-flicks-and-complimentary-streaming-tips/"><u>Christmas Movie Bonanza: Enjoy the Festivities with Top Family Flicks & Complimentary Streaming Tips</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/convert-pdfs-and-jpgs-of-documentsbooks-into-editable-text-scan-ocr-and-read-effortlessly-on-iphone-with-finereader-app/"><u>Convert PDFs & JPGs of Documents/Books Into Editable Text: Scan, OCR, and Read Effortlessly on iPhone with FineReader App</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-data-insights-for-enhanced-digital-campaigns/"><u>Cookiebot-Driven Data Insights for Enhanced Digital Campaigns</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-technology-enhancing-your-websites-performance/"><u>Cookiebot-Driven Technology: Enhancing Your Website's Performance</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-solutions-enhance-your-websites-performance/"><u>Cookiebot-Enabled Solutions: Enhance Your Website's Performance</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-enhance-your-websites-user-experience-with-advanced-tracking/"><u>Cookiebot-Enabled: Enhance Your Website's User Experience with Advanced Tracking</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-enhancing-your-sites-user-experience-with-personalized-tracking/"><u>Cookiebot-Enabled: Enhancing Your Site's User Experience with Personalized Tracking</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-enhanced-sites-experience-advanced-personalization-and-analytics/"><u>Cookiebot-Enhanced Sites: Experience Advanced Personalization and Analytics</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-enhanced-tailored-experiences-with-smart-tracking-technology/"><u>Cookiebot-Enhanced: Tailored Experiences with Smart Tracking Technology</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/guard-against-data-thieves-with-ai-literacy-and-caution/"><u>Guard Against Data Thieves with AI Literacy and Caution</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-itel-a05s-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Itel A05s to iPhone XS/11 | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-pro-tips-top-11-inexpensive-youtube-naming-tools/"><u>In 2024, Pro Tips Top 11 Inexpensive YouTube Naming Tools</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/locked-out-of-iphone-14-plus-5-ways-to-get-into-a-locked-iphone-14-plus-drfone-by-drfone-ios/"><u>Locked Out of iPhone 14 Plus? 5 Ways to get into a Locked iPhone 14 Plus | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/pc-and-xbox-modern-warfare-fixes-demystifying-the-dev-error-6034-challenge/"><u>PC & Xbox Modern Warfare Fixes: Demystifying the Dev Error 6034 Challenge</u></a></li>
+</ul></div>
 

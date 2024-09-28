@@ -1,7 +1,7 @@
 ---
 title: "ABBYY FineReader Powers Preservation: Safeguarding Over 4 Million Pages From Latvia's National Library Across 20 Languages"
-date: 2024-09-21T16:31:00.923Z
-updated: 2024-09-23T18:39:27.521Z
+date: 2024-09-22T02:27:45.678Z
+updated: 2024-09-27T21:27:26.729Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/da7fa3270346efb8a59ee9a2227fafe39fab3e8091406f28b8c4b7ad88c22375.jpg
@@ -19,6 +19,13 @@ Other | Digital Archiving
 
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557746/17382" target="_top" id="1557746">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557746" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557746/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 4 000 000 pages in 20 languages – ABBYY FineReader Engine Preserves the National Library of Latvia
 
 Other | Digital Archiving 
@@ -30,10 +37,10 @@ Other | Digital Archiving
 ![National Library of Latvia](https://static2.abbyy.com/abbyycommedia/15438/nll-logo.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975836/19272" target="_top" id="1975836">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975836" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975836/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 | Name                  | National Library of Latvia                                            |
@@ -46,13 +53,6 @@ Other | Digital Archiving
 #### Partner Overview
 
 ![Content Conversion Specialists (CCS)](https://static1.abbyy.com/abbyycommedia/15456/ccs-logo-119.jpg) 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 | Name     | Content Conversion Specialists (CCS)                            |
 | -------- | --------------------------------------------------------------- |
@@ -78,6 +78,13 @@ The National Library of Latvia (NLL) has amassed 4.5 million paper units, includ
 
 #### See how ABBYY can help
 
+<!-- affiliate ads begin -->
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
+  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4,000,000
 
 ##### pages of ancient and modern books and periodicals
@@ -85,13 +92,6 @@ The National Library of Latvia (NLL) has amassed 4.5 million paper units, includ
 ### 20
 
 ##### different languages
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1 year
 
@@ -137,13 +137,6 @@ After the processing, the documents were exported into various formats (PDF, JPE
 
 [![PDF Version](https://static4.abbyy.com/abbyycommedia/15840/library-of-latvia-pic2.jpg)](https://static3.abbyy.com/abbyycommedia/21239/case-study-latvia-national-library-education-en.pdf "PDF version") [PDF version](https://static3.abbyy.com/abbyycommedia/21239/case-study-latvia-national-library-education-en.pdf "PDF version") 
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
-  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [read more](https://static3.abbyy.com/abbyycommedia/21239/case-study-latvia-national-library-education-en.pdf "PDF version") 
 
 ###### Like, share or repost
@@ -153,6 +146,13 @@ Share  True ?  : ""
 [More about ABBYY](https://tools.techidaily.com/abbyy/products/) 
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Ready to talk to an expert?
 
@@ -173,5 +173,18 @@ We'd love to help you along your automation journey.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-skills.techidaily.com/new-ultimate-guide-the-art-of-background-music-for-video-unboxing/"><u>[New] Ultimate Guide The Art of Background Music for Video Unboxing</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-combating-content-id-blocks-on-youtube-with-knowledge/"><u>[Updated] 2024 Approved Combating Content ID Blocks on YouTube with Knowledge</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-from-noob-to-pro-making-the-list-of-popular-fb-songs-and-videos-for-2024/"><u>[Updated] From Noob to Pro Making the List of Popular FB Songs and Videos for 2024</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1726227954884-mpemp4-movavi/"><u>在線無成本地改編MPE影片成MP4格式 - Movavi導航指南</u></a></li>
+<li><a href="https://win-answers.techidaily.com/diy-repair-guide-resolving-issues-for-a-seamless-mw3-gaming-session/"><u>DIY Repair Guide: Resolving Issues for a Seamless MW3 Gaming Session</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/ensuring-top-displayed-calculator-on-pcs/"><u>Ensuring Top-Displayed Calculator on PCs</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/get-the-latest-asus-aura-software-update-windows-11-edition-download-here/"><u>Get the Latest ASUS Aura Software Update – Windows 11 Edition Download Here!</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/guide-to-reducing-mp4-file-size-using-movavi-on-pc-and-mac-platforms/"><u>Guide to Reducing MP4 File Size Using Movavi on PC & Mac Platforms</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-age-of-empires-unleashed-exploring-the-7-greatest-battles/"><u>In 2024, Age of Empires Unleashed Exploring the 7 Greatest Battles</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/oamenii-favorite-lista-decem-legii-de-serii-tv-mai-uimitoare-pe-movaviro/"><u>Oamenii Favorite - Lista Decem Legii De Serii TV Mai Uimitoare Pe Movavi.ro</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/purchase-movavi-business-video-editor-professional-tools-for-your-company/"><u>Purchase Movavi Business Video Editor: Professional Tools for Your Company</u></a></li>
+</ul></div>
 

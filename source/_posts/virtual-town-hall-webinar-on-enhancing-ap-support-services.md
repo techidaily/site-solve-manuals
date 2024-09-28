@@ -1,7 +1,7 @@
 ---
 title: Virtual Town Hall Webinar on Enhancing AP Support Services
-date: 2024-09-19T18:31:30.826Z
-updated: 2024-09-23T18:19:29.203Z
+date: 2024-09-22T03:02:59.140Z
+updated: 2024-09-28T05:04:16.213Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/77a0a1507f5da99a4dd0db6a1e358f4e656bf9fb2de63da75eb278005236e188.jpg
@@ -15,24 +15,32 @@ thumbnail: https://thmb.techidaily.com/77a0a1507f5da99a4dd0db6a1e358f4e656bf9fb2
 
 English
 
-<!-- affiliate ads begin -->
-<span id="1484963">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Featuring
 
 ![18 Reggietwigg 198X198](https://static4.abbyy.com/abbyycommedia/25122/logo-2021-76x23.svg) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082520/7443" target="_top" id="2082520">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082520" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082520/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![18 Reggietwigg 198X198](https://static4.abbyy.com/abbyycommedia/25486/18-reggietwigg-198x198.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Reggie Twig
 
@@ -41,10 +49,10 @@ Director, Automation Solutions and Product Marketing, Digital Enterprise, **ABBY
 ![Stephanie Ryan 198X198](https://static4.abbyy.com/abbyycommedia/33066/stephanie-ryan-198x198.png)
 
 <!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
-  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915870/19272" target="_top" id="1915870">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915870" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915870/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Stephanie Ryan
@@ -54,10 +62,10 @@ Senior Services Sales Manager, **Basware**
 ![Anand Misra](https://static2.abbyy.com/abbyycommedia/33068/anand-misra-198x198.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884017/19272" target="_top" id="1884017">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884017" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884017/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Anand Misra
@@ -66,23 +74,9 @@ Director of Product & Partner Marketing, **Tipalti**
 
 ![Byron Biggins](https://static4.abbyy.com/abbyycommedia/33070/byron-biggins-198x198.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Byron Biggins
 
 Senior Vice President of Strategic Partnerships, **Nvoicepay**
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Overview
 
@@ -97,10 +91,10 @@ Moderated by Mark Brousseau. Panelists from: **Basware, Tipalti, Nvoicepay,** an
 ### Watch now
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Get in touch with us
@@ -177,5 +171,21 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/new-from-viral-videos-to-your-cellphone-crafting-a-unique-ringtones/"><u>[New] From Viral Videos to Your Cellphone - Crafting a Unique Ringtones</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-top-8-instagram-planners-ios-and-android-edition-for-2024/"><u>[New] Top 8 Instagram Planners IOS & Android Edition for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-techniques-for-embedding-youtube-in-slides-on-google-slate/"><u>[Updated] 2024 Approved Techniques for Embedding YouTube in Slides on Google Slate</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-unlocking-the-potential-of-screenshotting-your-android-device-for-2024/"><u>[Updated] Unlocking the Potential of Screenshotting Your Android Device for 2024</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/abbyy-holt-zwei-zwei-qualifizierte-experten-ersetzen-die-aktuellen-fuhrungskrafte/"><u>ABBYY Holt Zwei: Zwei Qualifizierte Experten Ersetzen Die Aktuellen Führungskräfte</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/abbyy-latex-die-zukunft-der-texterkennung-in-3ms-360-encompass-software/"><u>ABBYY LATEX: Die Zukunft Der Texterkennung in 3M's 360 Encompass Software</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/abbyy-tools-optimieren-den-historiadruckzugang-fordern-das-verstandnis-der-vergangenheit/"><u>ABBYY-Tools Optimieren Den Historiadruckzugang, Fördern Das Verständnis Der Vergangenheit</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/automated-with-cookiebot-enhancing-your-websites-engagement/"><u>Automated with Cookiebot: Enhancing Your Website's Engagement</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/boosting-web-traffic-with-cookiebot-technology-a-game-changer-for-seo-success/"><u>Boosting Web Traffic with Cookiebot Technology: A Game Changer for SEO Success</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/code-39-problem-on-pc-heres-how-to-fix-it-in-windows/"><u>Code 39 Problem on PC? Here's How to Fix It in Windows</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/comment-abbyy-renforce-sa-plateforme-timeline-avec-des-fonctionnalites-supplementaires-pour-aider-les-entreprises-a-atteindre-leurs-cibles-operationnelles.m6/"><u>Comment ABBYY Renforce Sa Plateforme Timeline Avec Des Fonctionnalités Supplémentaires Pour Aider Les Entreprises À Atteindre Leurs Cibles Opérationnelles</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-accessing-shared-media-in-facebook-messenger-how/"><u>In 2024, Accessing Shared Media in Facebook Messenger How?</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-essential-guide-three-approaches-for-documenting-discords-live-streams/"><u>In 2024, Essential Guide Three Approaches for Documenting Discord's Live Streams</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-is-your-apple-iphone-14-pro-max-in-security-lockout-proper-ways-to-unlock-drfone-by-drfone-ios/"><u>In 2024, Is Your Apple iPhone 14 Pro Max in Security Lockout? Proper Ways To Unlock | Dr.fone</u></a></li>
+</ul></div>
 

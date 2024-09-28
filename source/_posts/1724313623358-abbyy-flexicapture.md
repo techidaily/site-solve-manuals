@@ -1,7 +1,7 @@
 ---
 title: "高付加価値への転換:ABBYY FlexiCapture®による請求書プロセス改革とデジタル技術活用"
-date: 2024-09-19T18:08:44.302Z
-updated: 2024-09-23T16:53:45.791Z
+date: 2024-09-23T17:57:44.739Z
+updated: 2024-09-27T21:14:16.377Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4546ddfed47c887fd8822a083e53e55a360fbac19fd97cadc5d42f68a2d04c9c.png
@@ -27,15 +27,22 @@ Consulting | Accounts Payable Automation
 
 ![](https://static1.abbyy.com/abbyycommedia/33006/05-abeam-ja-cover-556x303.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### お客様の概要
 
 ![アビームコンサルティング株式会社](https://static3.abbyy.com/abbyycommedia/33009/05c-abeam-ja-logo-182x44.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105873/7443" target="_top" id="2105873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094421/7443" target="_top" id="2094421">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094421" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094421/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 | 氏名     | アビームコンサルティング株式会社                                   |
@@ -126,26 +133,38 @@ FlexiCaptureは、オンプレミス／クラウド／SDKで利用できる多�
 [![ABBYY FlexiCapture](https://static2.abbyy.com/abbyycommedia/21380/4-flexicapture.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1936838">
+					<video width="374" height="48" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [詳細を読む](https://tools.techidaily.com/abbyy/products/) 
 
 [![請求書処理の自動化](https://static4.abbyy.com/abbyycommedia/14351/1-accounts-payable.jpg)](https://tools.techidaily.com/abbyy/products/) [請求書処理の自動化](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [詳細を読む](https://tools.techidaily.com/abbyy/products/) 
 
 [![PDF版](https://static5.abbyy.com/abbyycommedia/33010/05d-abeam-ja-cover-360x162.jpg)](https://static4.abbyy.com/abbyycommedia/33191/customer-story-abeam-ja.pdf "PDF版") [PDF版](https://static4.abbyy.com/abbyycommedia/33191/customer-story-abeam-ja.pdf "PDF版") 
+
+<!-- affiliate ads begin -->
+<span id="1328679">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [詳細を読む](https://static4.abbyy.com/abbyycommedia/33191/customer-story-abeam-ja.pdf "PDF版") 
 
@@ -156,13 +175,6 @@ FlexiCaptureは、オンプレミス／クラウド／SDKで利用できる多�
 [ABBYYについて](https://tools.techidaily.com/abbyy/products/) 
 
 [お問い合わせ](https://tools.techidaily.com/abbyy/products/) 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
-  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 専門家に相談する準備はできていますか?
 
@@ -183,5 +195,19 @@ FlexiCaptureは、オンプレミス／クラウド／SDKで利用できる多�
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-elevate-views-prime-seo-equipment-for-videos/"><u>[Updated] Elevate Views Prime SEO Equipment for Videos</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-exploring-the-economic-value-of-a-million-youtube-followers/"><u>[Updated] In 2024, Exploring the Economic Value of a Million YouTube Followers</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-the-invisible-trail-hidden-steps-for-tracking-whatsapp-calls-for-2024/"><u>[Updated] The Invisible Trail Hidden Steps for Tracking WhatsApp Calls for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-in-depth-analysis-of-sharex-criticism-and-replacements/"><u>2024 Approved In-Depth Analysis of ShareX Criticism & Replacements</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/beginners-guide-the-15-leading-video-editing-programs-easy-to-use/"><u>Beginner's Guide: The 15 Leading Video Editing Programs Easy To Use</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/gratis-digitaal-converter-versterk-uw-soundfiles-van-wav-tot-flacaiff-via-movavi/"><u>Gratis Digitaal Converter: Versterk Uw Soundfiles Van WAV Tot FLAC/AIFF via Movavi</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-2-ways-to-monitor-oppo-a59-5g-activity-drfone-by-drfone-virtual-android/"><u>In 2024, 2 Ways to Monitor Oppo A59 5G Activity | Dr.fone</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-switch-cards-between-apple-iphone-13-pro-max-and-other-iphones-will-move-all-phone-services-drfone-by-drfone-transfer-from-ios/"><u>In 2024, Switch Cards Between Apple iPhone 13 Pro Max and other iPhones Will Move All Phone Services? | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/precision-screen-capture-software-top-11-mac-recommendations-for-2024/"><u>Precision Screen Capture Software Top 11 Mac Recommendations for 2024</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/transform-your-mp4-footage-into-high-quality-content-using-movavis-editing-tool/"><u>Transform Your MP4 Footage Into High-Quality Content Using Movavi's Editing Tool</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/transform-your-photos-downloadable-no-cost-arw-to-png-converter-by-movavi/"><u>Transform Your Photos: Downloadable, No-Cost ARW to PNG Converter by Movavi</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unraveling-the-worlds-record-breaking-word/"><u>Unraveling the World's Record-Breaking Word</u></a></li>
+</ul></div>
 

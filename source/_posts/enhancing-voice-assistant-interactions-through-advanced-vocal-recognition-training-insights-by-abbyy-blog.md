@@ -1,7 +1,7 @@
 ---
 title: Enhancing Voice Assistant Interactions Through Advanced Vocal Recognition Training | Insights by ABBYY Blog
-date: 2024-09-19T17:29:59.282Z
-updated: 2024-09-23T16:25:46.062Z
+date: 2024-09-26T23:38:45.473Z
+updated: 2024-09-28T06:11:55.481Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c68e5dfe066870e624209e946a88b5eb21db8406cf2fae44c9a446c53d02efdc.jpg
@@ -23,13 +23,6 @@ _Editorial note: FineReader PDF Mobile for Android, Business Card Reader for And
 
 Even though smartphone voice assistants are useful for helping with routine tasks, sometimes you just can’t talk. Today, we’ll show you how to text your assistant. We’ll also talk about re-recognition in FineScanner and do some voice training.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **iOS Tip: Texting Siri** 
 
 While you might not be able to have a truly meaningful conversation with Apple’s voice helper, it still manages to perform its functions well. You don’t have to talk to her using your voice though: you can input your queries via text. This might be useful when you are stuck in public transport or in a meeting. By default, this function is turned off. However, enabling it is easy.
@@ -43,22 +36,15 @@ Don’t forget to select the appropriate reply mode for Siri so that you don’t
 ![siri settings](https://static1.abbyy.com/abbyycommedia/26890/golosovoy-vvod-dlya-siri.jpeg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
+  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 To have a chat with Siri, tap and hold either the **Home** button (on devices that have one) or the side button. If you want to have an audio conversation, don’t forget to check whether long press is enabled: **Settings** → **Siri &** Search → Press Side (Home) Button for Siri. Now, when you call up your digital assistant by saying **Hey Siri!**, she’ll be waiting for voice commands only and won’t reply to text queries.
 
 By the way, Siri can also be used with FineScanner and TextGrabber. For example, you can use voice commands to [open a document in FineScanner](https://tools.techidaily.com/abbyy/products/) or [recognize your last gallery image in TextGrabber](https://tools.techidaily.com/abbyy/products/).
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Android Tip: Texting Google Assistant** 
 
@@ -70,18 +56,18 @@ Enabling keyboard input is easy: call up your assistant using a long press of th
 
 Google have also made an interesting feature available for Pixel 2 and 3 owners. On these devices, you can also activate the Assistant by lightly squeezing the phone in your hand (i.e. by pressing down on both sides simultaneously).
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **ABBYY Tip: the Recognize Again Command**
 
 In one of the recent FineScanner updates, we have added an offline text recognition mode. Using it does not require an internet connection, meaning that you will receive the results instantly. Note, however, that this mode can only be used with TXT files. Sometimes, you might not be satisfied with your offline mode results. If this is so, you can tap **Recognize again**. This will take you back to the mode selection screen, where you can try the more powerful online mode (which will also keep the formatting of the original text).
 
 ![abbyy finescanner](https://static1.abbyy.com/abbyycommedia/26892/abbyy-finescanner.jpeg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **App of the Week: Vanido** 
 
@@ -93,9 +79,29 @@ _Try if you dare_.
 
 ![voice training on iphone](https://static1.abbyy.com/abbyycommedia/26893/prilozhenie-dlya-trenirovki-golosa.jpg) ![karaoke app ios](https://static1.abbyy.com/abbyycommedia/26894/kak-nauchitsya-pet.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983446">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 That’s all from us for today. Until next time!
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -159,5 +165,20 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-adding-drama-to-videos-strikethrough-for-emphasis-and-clarity/"><u>[New] 2024 Approved Adding Drama to Videos Strikethrough for Emphasis and Clarity</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-unrestricted-display-save-tool/"><u>2024 Approved Unrestricted Display Save Tool</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/amplify-aesthetics-with-customized-canva-video-music-for-2024/"><u>Amplify Aesthetics with Customized Canva Video Music for 2024</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/effective-strategies-for-recording-conferences-using-zoom-skype-and-similar-platforms/"><u>Effective Strategies for Recording Conferences Using Zoom, Skype, and Similar Platforms</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/free-online-converter-mp4-to-wma-format-moveit/"><u>Free Online Converter: MP4 to WMA Format - MoveIt</u></a></li>
+<li><a href="https://techidaily.com/how-to-soft-reset-honor-magic-6-pro-phone-drfone-by-drfone-reset-android-reset-android/"><u>How to Soft Reset Honor Magic 6 Pro phone? | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/moving-your-applications-to-a-new-hardware-device-on-windows-11/"><u>Moving Your Applications to a New Hardware Device on Windows 11</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/nokia-71-smartphone-analysis-stunning-display-and-photography-at-a-budget-friendly-cost/"><u>Nokia 7.1 Smartphone Analysis: Stunning Display & Photography at a Budget-Friendly Cost</u></a></li>
+<li><a href="https://os-tips.techidaily.com/resurrecting-missed-contacts-expert-strategies-for-retrieving-deleted-data-in-your-itunes-backup-archive/"><u>Resurrecting Missed Contacts: Expert Strategies for Retrieving Deleted Data in Your iTunes Backup Archive</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/top-8-high-performance-web-browser-microphone-recording-apps/"><u>Top 8 High-Performance Web Browser Microphone Recording Apps</u></a></li>
+<li><a href="https://driver-install.techidaily.com/update-your-logitech-usb-headset-drivers-quickly/"><u>Update Your Logitech USB Headset Drivers Quickly</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/virtual-audiences-audio-visual-makers/"><u>Virtual Audiences Audio-Visual Makers</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1726226824751-mp4mp3/"><u>オンラインで手軽にMP4からMP3へ変換!? 無料動画コンバーター</u></a></li>
+</ul></div>
 

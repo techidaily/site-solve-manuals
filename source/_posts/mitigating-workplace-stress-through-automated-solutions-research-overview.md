@@ -1,7 +1,7 @@
 ---
 title: Mitigating Workplace Stress Through Automated Solutions - Research Overview
-date: 2024-09-16T16:58:55.936Z
-updated: 2024-09-23T18:59:46.017Z
+date: 2024-09-25T08:08:47.910Z
+updated: 2024-09-27T17:19:01.610Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5b8892c5db775bfe3651bc6e97180034918a1871516139b779bbf46994cbed29.jpg
@@ -63,10 +63,10 @@ _Linda Ameur, Directrice France chez ABBYY_
 Cette étude a été menée par ABBYY en collaboration avec Sapio Research en mars 2022 auprès de 1 208 décideurs informatiques répartis en France, au Royaume-Uni, en Allemagne, aux États-Unis et au Japon sur les investissements des entreprises dans des projets d'automatisation, les raisons pour lesquelles elles ont opté pour des stratégies technologiques et l'impact du facteur comportemental sur la réussite des projets.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### À propos d’ABBYY
@@ -76,10 +76,10 @@ ABBYY est un acteur référent de l’Intelligent Process Automation. L’entrep
 ABBYY est une multinationale basée aux États-Unis, et dont les bureaux sont répartis au sein de 15 pays. Pour plus d’informations, veuillez consulter le site <https://www.abbyy.com/fr/>.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2016143/19272" target="_top" id="2016143">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016143" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016143/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Contact presse
@@ -87,10 +87,10 @@ ABBYY est une multinationale basée aux États-Unis, et dont les bureaux sont r�
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2002018/7443" target="_top" id="2002018">
-  <img src="//a.impactradius-go.com/display-ad/7443-2002018" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002018/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Bianca Stupp
@@ -114,5 +114,17 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/ed-a-beginners-pathway-building-a-simple-youtube-signup/"><u>[Updated] A Beginner’s Pathway Building a Simple YouTube Signup</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-streaming-success-updated-youtube-revenue-policies/"><u>2024 Approved Streaming Success Updated YouTube Revenue Policies</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/accelerate-your-sluggish-vids-to-speedy-shots-on-android/"><u>Accelerate Your Sluggish Vids to Speedy Shots on Android</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-infinix-note-30-vip-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of Infinix Note 30 VIP Without PUK Codes</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/step-by-step-tutorial-for-creating-multi-point-directions-on-google-maps/"><u>Step-by-Step Tutorial for Creating Multi-Point Directions on Google Maps</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/torsten-malchow-takes-on-role-of-senior-vp-for-worldwide-enterprise-sales-at-abbyy/"><u>Torsten Malchow Takes on Role of Senior VP for Worldwide Enterprise Sales at ABBYY</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/trusted-ai-driven-invoice-management-solutions-your-step-by-step-guide-in-an-ebook/"><u>Trusted AI-Driven Invoice Management Solutions - Your Step by Step Guide in an EBook</u></a></li>
+<li><a href="https://techidaily.com/undeleted-lost-videos-from-gionee-f3-pro-by-fonelab-android-recover-video/"><u>Undeleted lost videos from Gionee F3 Pro</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/understanding-identity-verification-exploring-its-limitations-in-comprehensive-security/"><u>Understanding Identity Verification: Exploring Its Limitations in Comprehensive Security</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/unlock-greater-conversion-rates-using-state-of-the-art-analytics-and-retargeting-tools-by-cookiebot/"><u>Unlock Greater Conversion Rates Using State-of-the-Art Analytics and Retargeting Tools by Cookiebot</u></a></li>
+</ul></div>
 

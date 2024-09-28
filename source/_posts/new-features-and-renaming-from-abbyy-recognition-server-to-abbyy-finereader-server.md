@@ -1,7 +1,7 @@
 ---
 title: "New Features and Renaming: From ABBYY Recognition Server to ABBYY FineReader Server"
-date: 2024-09-16T17:17:42.009Z
-updated: 2024-09-23T16:58:08.956Z
+date: 2024-09-24T19:49:00.555Z
+updated: 2024-09-28T05:59:53.573Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/74ac13432c01dd5c17161c9b4a52f81e0b445cdf2ff78bc2a59c4da0244a5a39.jpg
@@ -81,12 +81,37 @@ Vernetzen Sie sich mit uns
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-effortless-mac-pics-with-no-cost/"><u>[New] 2024 Approved Effortless Mac Pics with No Cost</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-how-to-search-comments-on-youtube-quickly-for-2024/"><u>[New] How to Search Comments on YouTube Quickly for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-prime-retro-elements-reviving-classic-vhs-tricks/"><u>[New] Prime Retro Elements Reviving Classic VHS Tricks</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-the-compreenas-of-15-best-android-simulators-for-all-users/"><u>[New] The Compreenas of 15 Best Android Simulators for All Users</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-ultimate-selection-of-christian-streaming-sites/"><u>[New] The Ultimate Selection of Christian Streaming Sites</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-reawakening-dormant-connections-with-your-obs-cam/"><u>[Updated] 2024 Approved Reawakening Dormant Connections with Your OBS Cam</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-combine-movie-tracks-in-youtube-repertoire/"><u>[Updated] Combine Movie Tracks in YouTube Repertoire</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1-automated-conversion-tracking-enhanced-with-cookiebot-technology/"><u>1. Automated Conversion Tracking: Enhanced with Cookiebot Technology</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1724313623358-abbyy-flexicapture/"><u>高付加価値への転換:ABBYY FlexiCapture®による請求書プロセス改革とデジタル技術活用</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/abbyy-launches-cutting-edge-research-facility-in-india/"><u>ABBYY Launches Cutting-Edge Research Facility in India</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/ai-driven-triumph-abbyy-achieves-60-revenue-surge-accolades-from-idc-marketscape/"><u>AI-Driven Triumph: ABBYY Achieves 60% Revenue Surge - Accolades From IDC MarketScape</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/automated-consent-management-how-cookiebot-streamlines-compliance/"><u>Automated Consent Management: How Cookiebot Streamlines Compliance</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/automation-projects-aiming-to-reduce-employee-burnout-study-insights/"><u>Automation Projects Aiming to Reduce Employee Burnout - Study Insights</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/award-winning-abbyy-dominates-2024-gartner-magic-quadrant-for-process-mining-software/"><u>Award-Winning ABBYY Dominates 2024 Gartner Magic Quadrant for Process Mining Software</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-enable-and-repair-your-overwatch-push-to-talk-command/"><u>How to Enable and Repair Your Overwatch Push-to-Talk Command</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/unveiling-the-mysteries-of-metaverse-persona-designs-for-2024/"><u>Unveiling the Mysteries of Metaverse Persona Designs for 2024</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/webinar-recap-strategies-to-minimize-risks-in-libor-agreements/"><u>Webinar Recap: Strategies to Minimize Risks in LIBOR Agreements</u></a></li>
+</ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1160850">
+					<video width="576" height="324" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

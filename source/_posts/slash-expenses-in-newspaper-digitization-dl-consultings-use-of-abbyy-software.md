@@ -1,7 +1,7 @@
 ---
 title: "Slash Expenses in Newspaper Digitization: DL Consulting's Use of ABBYY® Software"
-date: 2024-09-20T16:12:50.092Z
-updated: 2024-09-23T16:43:56.321Z
+date: 2024-09-23T23:52:18.541Z
+updated: 2024-09-27T17:54:44.744Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3269c858221e8ab75b91d65fc2cbdc3bf0d972fb510d01ae54b3ad8d22470d02.jpg
@@ -20,10 +20,10 @@ Other | Digital Archiving
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100537/7443" target="_top" id="2100537">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100537" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100537/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## DL Consulting is cutting the cost on digitizing the news with ABBYY®
@@ -31,6 +31,13 @@ Other | Digital Archiving
 Other | Digital Archiving 
 
 ![](https://static1.abbyy.com/abbyycommedia/15254/4208e_images_cs_dl-consulting556x303.png) 
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Customer Overview
 
@@ -102,10 +109,10 @@ The Veridian solution utilizing ABBYY Recognition Server has been built entirely
 [![ABBYY Recognition Server has rebranded as ABBYY FineReader Server](https://static4.abbyy.com/abbyycommedia/20638/11-frs-casepreview.jpg)](https://tools.techidaily.com/abbyy/products/) ") [ABBYY Recognition Server (now FineReader Server)](https://tools.techidaily.com/abbyy/products/) ") 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [read more](https://tools.techidaily.com/abbyy/products/) ") 
@@ -113,10 +120,10 @@ The Veridian solution utilizing ABBYY Recognition Server has been built entirely
 [![5-Document-Archiving](https://static1.abbyy.com/abbyycommedia/14355/5-document-archiving.jpg)](https://tools.techidaily.com/abbyy/products/) [Document Archiving](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [read more](https://tools.techidaily.com/abbyy/products/) 
@@ -132,13 +139,6 @@ Share  True ?  : ""
 [More about ABBYY](https://tools.techidaily.com/abbyy/products/) 
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Ready to talk to an expert?
 
@@ -159,5 +159,18 @@ We'd love to help you along your automation journey.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-essential-guidelines-for-creating-compelling-youtube-shorts-templates/"><u>[New] 2024 Approved Essential Guidelines for Creating Compelling YouTube Shorts Templates</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-mastering-mobile-warfare-androids-best-mobas-for-2024/"><u>[New] Mastering Mobile Warfare Android's Best MOBAs for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-laptop-and-mobile-commencing-a-google-meet-session/"><u>[Updated] In 2024, Laptop & Mobile Commencing a Google Meet Session</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/ai-video-editing-software-and-top-recommendations/"><u>AI, Video Editing Software, and Top Recommendations.</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/convertissez-vos-videos-en-un-clin-doeil-avec-movavi-achetez-votre-licence-standard-des-maintenant/"><u>Convertissez Vos Vidéos en Un Clin D'œil Avec Movavi : Achetez Votre Licence Standard Dès Maintenant</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/free-online-conversion-transforming-asf-files-into-mp3-format-with-movavi/"><u>Free Online Conversion: Transforming ASF Files Into MP3 Format with Movavi</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/how-to-install-drivers-for-steelseries-arctis-5-gaming-headphones/"><u>How to Install Drivers for SteelSeries Arctis 5 Gaming Headphones</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/moving-3gp-video-files-online-free-of-charge-with-movavi-omzetten-ingenomheidsbeveiliging/"><u>Moving 3GP Video Files Online Free of Charge with Movavi - Omzetten Ingenomheidsbeveiliging</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/ogg-mp4mp3/"><u>OGG 형식으로 무료 MP4/MP3 변환 - 원형 이식 기능으로 쉽게 수행하세요!</u></a></li>
+<li><a href="https://techidaily.com/three-solutions-to-hard-reset-nubia-z50s-pro-drfone-by-drfone-reset-android-reset-android/"><u>Three Solutions to Hard Reset Nubia Z50S Pro? | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/top-11-effective-chatgpt-trigger-words-for-crafting-unique-book-characters/"><u>Top 11 Effective ChatGPT Trigger Words for Crafting Unique Book Characters</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Exploring ABBYY's Cutting-Edge Solutions for Enhanced Digital Intelligence – Highlights of the Reimagine Conference as Featured on Our Official Blog
-date: 2024-09-19T16:56:45.148Z
-updated: 2024-09-23T18:24:16.709Z
+date: 2024-09-21T08:15:04.187Z
+updated: 2024-09-27T23:42:37.797Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d67db43bd99257f0af99e68e427f312b6fcddd2d0ff0d753e05a7e79c9663b0b.jpg
@@ -49,10 +49,10 @@ On Day 2, you can attend sessions with PwC demonstrating how they are leveraging
 See additional information in the [press release](https://tools.techidaily.com/abbyy/products/) or the [Vantage](https://tools.techidaily.com/abbyy/products/) or [Marketplace](https://tools.techidaily.com/abbyy/products/) web pages.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068432/7443" target="_top" id="2068432">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068432" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068432/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **Discover the entire lifecycle of your documents with ABBYY Timeline for FlexiCapture**
@@ -67,16 +67,16 @@ Find out how it can improve customer journey visibility, reduce time and manual 
 
 Visit the FlexiCapture web page for more information about the [Timeline for FlexiCapture](https://tools.techidaily.com/abbyy/products/) solution.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **ABBYY partner ecosystem promotes hyperautomation, value for customers**
 
 ABBYY will have several technology partners share how they integrate ABBYY Digital Intelligence to achieve intelligent automation leveraging multiple tools ranging from machine learning, analytics, process mining, business intelligence, and RPA. The integrated approach promotes what Gartner refers to as hyperautomation using best-in-breed technology. Partners presenting during ABBYY Reimagine sessions include Gold sponsors EXL, Blue Prism, and Alteryx, as well as other technology partners PwC and Capitalize Analytics.
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **ABBYY partners with Capitalize Analytics to deliver end-to-end process insight to achieve operational excellence**
 
@@ -99,10 +99,10 @@ If you are unable to join us live, ABBYY Reimagine sessions will be available on
 ![Bruce Orcutt ABBYY](https://static5.abbyy.com/abbyycommedia/25719/bruceorcutt-99x99.png)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Bruce Orcutt
@@ -114,16 +114,10 @@ Bruce Orcutt is a veteran Product Marketing and Product Management professional 
 Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 
 <!-- affiliate ads begin -->
-<span id="1993647">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Like, share or repost
@@ -187,5 +181,20 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/updated-escaping-reality-top-10-games-like-gta-v-but-not-for-2024/"><u>[Updated] Escaping Reality - Top 10 Games Like GTA V (But Not) for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-debugging-techniques-identifying-and-resolving-common-javascript-errors/"><u>[Updated] In 2024, Debugging Techniques Identifying and Resolving Common JavaScript Errors</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/analyse-der-digitalen-transformation-von-unternehmensprozessen-durch-abbyy-und-fraunhofer/"><u>Analyse Der Digitalen Transformation Von Unternehmensprozessen Durch ABBYY Und Fraunhofer</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/automated-data-tracking-with-cutting-edge-cookiebot-technology/"><u>Automated Data Tracking with Cutting-Edge Cookiebot Technology</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/automatisierte-rechnungsbearbeitung-bei-pepsico-mit-hilfe-von-abbyy-software/"><u>Automatisierte Rechnungsbearbeitung Bei PepsiCo Mit Hilfe Von ABBYY Software</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/charting-the-path-of-auto-advancement-in-insurtech-an-idc-visual-guide/"><u>Charting the Path of Auto-Advancement in InsurTech: An IDC Visual Guide</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/comprehvew-to-executing-commands-with-cmd-a-guide-from-windows-7-to-windows-11/"><u>Comprehvew to Executing Commands with CMD: A Guide From Windows 7 to Windows 11</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/convert-pdfs-and-jpgs-of-documentsbooks-into-editable-text-scan-ocr-and-read-effortlessly-on-iphone-with-finereader-app/"><u>Convert PDFs & JPGs of Documents/Books Into Editable Text: Scan, OCR, and Read Effortlessly on iPhone with FineReader App</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-data-insights-for-enhanced-digital-campaigns/"><u>Cookiebot-Driven Data Insights for Enhanced Digital Campaigns</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/full-spectrum-analysis-exploring-the-depths-of-bublcam-360-for-2024/"><u>Full Spectrum Analysis Exploring the Depths of Bublcam 360 for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-changefake-your-honor-x9b-location-on-viber-drfone-by-drfone-virtual-android/"><u>How to Change/Fake Your Honor X9b Location on Viber | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-prevent-cross-site-tracking-on-nokia-c300-and-browser-drfone-by-drfone-virtual-android/"><u>In 2024, Prevent Cross-Site Tracking on Nokia C300 and Browser | Dr.fone</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/rise-above-upgrade-from-win10s-32-bit-to-a-64-bit-operating-system/"><u>Rise Above: Upgrade From Win10's 32-Bit to a 64-Bit Operating System</u></a></li>
+</ul></div>
 

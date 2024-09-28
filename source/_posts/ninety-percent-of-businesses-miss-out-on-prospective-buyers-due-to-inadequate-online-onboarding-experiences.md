@@ -1,7 +1,7 @@
 ---
 title: Ninety Percent of Businesses Miss Out on Prospective Buyers Due to Inadequate Online Onboarding Experiences
-date: 2024-09-20T18:43:05.479Z
-updated: 2024-09-23T19:04:08.753Z
+date: 2024-09-23T03:27:59.097Z
+updated: 2024-09-27T17:20:43.116Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a929b0d993c705dcd1293af7219e5e597567df393d17dd26d0130a00b3701a6a.JPG
@@ -53,6 +53,13 @@ All of these issues have a significant impact on revenue with:
   
 ![Infographic-onboarding-survey-global](https://static1.abbyy.com/abbyycommedia/36315/infographic-onboarding-survey-global.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Solving the issue: The fine balance between technology and human interaction
 
   
@@ -71,22 +78,21 @@ _Gabrielle Lukianchuk, Chief Marketing Officer at ABBYY_
 
 Get more insights into onboarding drivers and pain points and discover a better way to meet customer expectations in the new ABBYY State of Intelligent Automation Report by [downloading here](https://tools.techidaily.com/abbyy/products/).
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Methodology
 
 This research was conducted by Sapio Research in September 2022 on behalf of ABBYY. The survey was conducted among 1,623 decision makers across the UK, US, France, Germany, and Japan on why onboarding processes need to change and what businesses need to do to address customer pain points – by activating the right mix of the human factor alongside automation.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993651">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### About ABBYY
@@ -100,10 +106,10 @@ ABBYY is a US-based global company with offices in 15 countries. For more inform
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies and may not be used without consent of its respective owners.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934254/19272" target="_top" id="1934254">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934254" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934254/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Editorial Contact
@@ -111,10 +117,10 @@ ABBYY can either be a registered trademark or a trademark and can also be a logo
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Gina Ray, APR
@@ -138,5 +144,26 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-mycamadventure-discovering-new-camera-worlds/"><u>[New] In 2024, MyCamAdventure Discovering New Camera Worlds</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-skyrocketing-numbers-a-guide-to-youtube-viewership-increase/"><u>[New] Skyrocketing Numbers A Guide to YouTube Viewership Increase</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-top-secure-cost-free-androidios-apps-for-private-video-conferencing/"><u>[Updated] 2024 Approved Top Secure, Cost-Free Android/iOS Apps for Private Video Conferencing</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-why-no-sound-the-twitter-video-amplification-guide/"><u>[Updated] 2024 Approved Why No Sound? The Twitter Video Amplification Guide</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-experts-handbook-elevating-screencasting-proficiency-using-mobizen-technology/"><u>[Updated] Expert's Handbook Elevating Screencasting Proficiency Using Mobizen Technology</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/boost-your-shipping-efficiency-access-our-essential-downloaded-checklist-now/"><u>Boost Your Shipping Efficiency: Access Our Essential Downloaded Checklist Now!</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/boost-your-traffic-with-cookiebots-advanced-tracking-solutions/"><u>Boost Your Traffic with Cookiebot's Advanced Tracking Solutions</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/convert-your-scanned-documents-and-books-into-editable-text-with-iphone-scanner-app/"><u>Convert Your Scanned Documents & Books Into Editable Text with iPhone Scanner App</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-fueled-solutions-enhancing-user-experience-with-smart-data-tracking/"><u>Cookiebot-Fueled Solutions: Enhancing User Experience with Smart Data Tracking</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-the-essential-ai-driven-tool-enhancing-your-websites-seo/"><u>Cookiebot: The Essential AI-Driven Tool Enhancing Your Website's SEO</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-your-key-to-effective-online-user-tracking-and-personalization/"><u>Cookiebot: Your Key to Effective Online User Tracking and Personalization</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/customized-tracking-and-analytics-with-cookiebot-technology/"><u>Customized Tracking & Analytics with Cookiebot Technology</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/die-zukunft-der-automatisierten-buchhaltung-schlusselelemente-aus-der-jahrestagung-2023/"><u>Die Zukunft Der Automatisierten Buchhaltung: Schlüsselelemente Aus Der Jahrestagung 2023</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/empowering-automation-elevating-machine-intellect-with-strategic-content-understanding-the-abbyy-perspective/"><u>Empowering Automation: Elevating Machine Intellect with Strategic Content Understanding | The ABBYY Perspective</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/how-to-find-and-install-the-latest-software-for-hp-pavilion-wireless-all-in-one-printer/"><u>How to Find and Install the Latest Software for HP Pavilion Wireless All-in-One Printer</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-samsung-galaxy-s23-tactical-edition-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Samsung Galaxy S23 Tactical Edition? | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-live-large-the-top-5-mac-streaming-applications/"><u>In 2024, Live, Large The Top 5 Mac Streaming Applications</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-top-7-skype-hacker-to-hack-any-skype-account-on-your-samsung-galaxy-s23-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Skype Hacker to Hack Any Skype Account On your Samsung Galaxy S23 | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/quick-fixes-for-why-is-my-tecno-pova-6-pro-5g-black-and-white-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Quick Fixes for Why Is My Tecno Pova 6 Pro 5G Black and White | Dr.fone</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Neue Ära Für ABBYY: Industrieveteran Robert Youngjohns Wird Als Geschäftsführer Eingesetzt"
-date: 2024-09-19T17:01:49.619Z
-updated: 2024-09-23T17:59:38.650Z
+date: 2024-09-25T19:30:22.554Z
+updated: 2024-09-27T20:54:10.233Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5f8ab25178398b0800b6345046953e2b2e89a6d9e6a8838419dd9465e3b6b177.jpg
@@ -58,12 +58,33 @@ Vernetzen Sie sich mit uns
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-firefoxs-best-screen-cast-add-ons/"><u>[New] Firefox's Best Screen Cast Add-Ons</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-how-to-screen-record-facetime-calls/"><u>[Updated] 2024 Approved How to Screen Record FaceTime Calls</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-enhance-your-presence-best-free-tools-for-intriguing-openings/"><u>[Updated] In 2024, Enhance Your Presence Best Free Tools for Intriguing Openings</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-master-classic-ps2-games-on-android-with-our-top-picks/"><u>[Updated] Master Classic PS2 Games on Android with Our Top Picks</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-maximizing-engagement-with-dual-screen-broadcasting-techniques-in-facebook/"><u>[Updated] Maximizing Engagement with Dual-Screen Broadcasting Techniques in Facebook</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/maiaabbyy-flexicaptureai-ocr-abbyy/"><u>人工知能文字認識の新時代:株式会社MAIAがABBYY FlexiCapture用に最適化したAI-OCR学習キット - ABBYYニュース</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-remove-forgotten-pin-of-your-vivo-x-flip-by-drfone-android/"><u>How to Remove Forgotten PIN Of Your Vivo X Flip</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/idpidp-revolutionary-victories-in-investment-decision-processes/"><u>IDP革命帷幄，IDP斐然！ - Revolutionary Victories in Investment Decision Processes!</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-imei-unlokers-for-your-oppo-a59-5g-phone-by-drfone-android/"><u>In 2024, Top IMEI Unlokers for Your Oppo A59 5G Phone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-yis-actioncam-the-innovation-leader-in-high-res-footage/"><u>In 2024, Yi's ActionCam The Innovation Leader in High-Res Footage</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/innovative-synergy-strengthening-the-purposeful-ai-collaboration-between-abbyy-and-novelis/"><u>Innovative Synergy: Strengthening the Purposeful AI Collaboration Between ABBYY & Novelis</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/integrating-ai-into-your-business-top-7-strategies-from-the-abbyy-expertise/"><u>Integrating AI Into Your Business: Top 7 Strategies From the ABBYY Expertise</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/konstantin-anisimovich-visionary-leader-and-co-creator-of-innovative-enterprise/"><u>Konstantin Anisimovich: Visionary Leader & Co-Creator of Innovative Enterprise</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/latest-enhancements-in-ocr-technology-insights-from-the-abbyy-experts/"><u>Latest Enhancements in OCR Technology: Insights From the ABBYY Experts</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/latest-news-abvy-3m-360-encompass-teams-text-recognition-software-update/"><u>Latest News: ABVY 3M 360 Encompass Team's Text Recognition Software Update</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/marlin-equitys-investment-in-abbyy-official-announcement-and-press-statement/"><u>Marlin Equity's Investment in ABBYY: Official Announcement & Press Statement</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-the-art-of-evading-cybernetic-swindlers/"><u>Master the Art of Evading Cybernetic Swindlers</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/navigating-command-prompt-a-guide-to-user-management/"><u>Navigating Command Prompt: A Guide to User Management</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/optimizing-engagement-with-our-cookiebot-technology-solutions/"><u>Optimizing Engagement with Our Cookiebot Technology Solutions</u></a></li>
+</ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

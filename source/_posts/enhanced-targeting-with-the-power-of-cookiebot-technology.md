@@ -1,7 +1,7 @@
 ---
 title: Enhanced Targeting with the Power of Cookiebot Technology
-date: 2024-09-18T16:16:06.208Z
-updated: 2024-09-23T16:12:19.303Z
+date: 2024-09-22T06:54:15.303Z
+updated: 2024-09-28T06:49:08.414Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/9f799a63c5ced001089eec847a965c77100b85a292d3d2c56946946b1d875c1f.jpg
@@ -25,16 +25,16 @@ FineReader PDF Mobile for Android, Business Card Reader for Android and Text Gra
 ## Product overview
 
 <!-- affiliate ads begin -->
-<span id="1424533">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
+<span id="1498635">
+					<video width="320" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
+	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### ABBYY FineReader for iOS
@@ -42,6 +42,19 @@ FineReader PDF Mobile for Android, Business Card Reader for Android and Text Gra
 The first AI-powered scanner to quickly capture docs and books, create copies in PDF and JPEG and extract texts from scans.
 
 [![fr_mobile_v2](https://www.abbyy.com/media/2853/fr_mobile_v2.jpg)](https://www.youtube.com/watch?v=TiKgyAl2KHk) 
+
+<!-- affiliate ads begin -->
+<span id="1975658">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Digitize your docs and books anywhere
 
@@ -71,7 +84,21 @@ Share your scans with everyone on the go: email, print, or save to cloud storage
 
 ![Export anywhere](https://www.abbyy.com/media/3797/06-features-6-exportanywhere.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Annotate scans](https://www.abbyy.com/media/3796/05-features-5-annotate-documents.jpg) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Annotate scans
 
@@ -84,19 +111,6 @@ Use our set of easy-to-use tools to modify your PDFs: add your signature or a te
 This app makes working in sales much more convenient. We have to work with a lot of different contracts that unfortunately need to be printed in rescanned and being able to do it on the fly is key. Highly recommend this app in frequently recommended to physicians to make their lives easier.
 
 ![What our customers say](https://www.abbyy.com/media/1417/g2-review-nophoto.png?width=64&height=64)**Hhskojx h** 15 Jan. 2021
-
-<!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="374" height="48" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### "Fantastic-Everyday Use"
 
@@ -117,19 +131,6 @@ Today I scanned my document to store in iCloud. With a touch of a button (open u
 
 [![The Webby Awards logo](https://www.abbyy.com/media/2489/01b-webby-grey.png)![The Webby Awards logo](https://www.abbyy.com/media/2490/01-webby-color.png)](http://webbyawards.com/winners/2015/mobilesitesapps/handhelddevices/productivity/finescanner/)
 
-<!-- affiliate ads begin -->
-<span id="1982457">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [![Fox Business](https://www.abbyy.com/media/2491/02b-fox-grey.png)![Fox Business](https://www.abbyy.com/media/2492/02-fox-color.png)](http://www.foxbusiness.com/features/2017/10/23/50-best-cloud-services-for-smbs.html)
 
 [![ABBYY FineScanner AI 8 - Smart scanner app to make your remote work easy | Product Hunt](https://api.producthunt.com/widgets/embed-image/v1/featured.svg?post_id=281738&theme=light)](https://www.producthunt.com/posts/abbyy-finescanner-ai-8?utm%5Fsource=badge-featured&utm%5Fmedium=badge&utm%5Fsouce=badge-abbyy-finescanner-ai-8)
@@ -139,13 +140,6 @@ Today I scanned my document to store in iCloud. With a touch of a button (open u
 [![Lifehacker logo](https://www.abbyy.com/media/2493/03b-lifehacker-grey.png)![Lifehacker logo](https://www.abbyy.com/media/2494/03-lifehacker-color.png)](http://lifehacker.com/five-best-mobile-document-scanning-apps-1691417781#pd%5Fa%5F8725103)
 
 [![PCMag logo](https://www.abbyy.com/media/2497/06b-pcmag-grey.png)![PCMag logo](https://www.abbyy.com/media/2498/06-pcmag-color.png)](https://www.pcmag.com/how-to/how-to-create-and-manage-digital-family-documents)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 [![The new york times logo](https://www.abbyy.com/media/2499/07b-nyt-grey.png)![The new york times logo](https://www.abbyy.com/media/2500/07-nyt-color.png)](https://www.nytimes.com/wirecutter/reviews/best-mobile-scanning-apps/)
 
@@ -157,16 +151,23 @@ Today I scanned my document to store in iCloud. With a touch of a button (open u
 
 [![Business Insider](https://www.abbyy.com/media/2507/11b-business-insider-grey.png)![Business Insider](https://www.abbyy.com/media/2508/11-business-insider-color.png)](http://www.businessinsider.com/productivity-strategy-10-minutes-a-day-2017-6)
 
-[![CIO](https://www.abbyy.com/media/2509/12b-cio-grey.png)![CIO](https://www.abbyy.com/media/2510/12-cio-color.png)](https://www.cio.com/article/230048/10-essential-productivity-tips-for-road-warriors.html)
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
+[![CIO](https://www.abbyy.com/media/2509/12b-cio-grey.png)![CIO](https://www.abbyy.com/media/2510/12-cio-color.png)](https://www.cio.com/article/230048/10-essential-productivity-tips-for-road-warriors.html)
+
 [![Techradar](https://www.abbyy.com/media/2487/13b-techradar-grey.png)![Techradar](https://www.abbyy.com/media/2488/13-techradar-color.png)](https://www.techradar.com/uk/best/best-document-scanning-apps)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## OCR Specification
 
@@ -568,18 +569,25 @@ Latvian (Fraktur font)_×_ _×_
 
 ![](https://www.abbyy.com/media/2513/bcr-logo-80x80.svg) 
 
+<!-- affiliate ads begin -->
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
+  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### ABBYY Business Card Reader
 
 Scan and manage all your business cards and contacts in a flash.
 
 [Learn more](https://tools.techidaily.com/abbyy/products/) 
-
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
-  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## FineReader Blog
 
@@ -591,23 +599,9 @@ Visit our Blog for tips, trends & use cases for higher document productivity.
 
 ![9-questions-on-fr_934_400](https://www.abbyy.com/media/4185/9-questions-on-fr_934_400.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 FineReader for Mobile — The Answers to Nine Frequently Asked Questions
 
 [![seven-tips-for-creating-ideal-scans-cover](https://www.abbyy.com/media/4186/seven-tips-for-creating-ideal-scans-cover.png) ![seven-tips-for-creating-ideal-scans-cover](https://www.abbyy.com/media/4186/seven-tips-for-creating-ideal-scans-cover.png) Seven Tips for Creating Ideal Mobile Scans](https://www.abbyy.com/blog/mobile/seven-tips-for-creating-ideal-scans/) 
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 [![14323_15_features in 15 minutes_841x360](https://www.abbyy.com/media/3399/14323_15_features-in-15-minutes_841x360.png) ![14323_15_features in 15 minutes_841x360](https://www.abbyy.com/media/3399/14323_15_features-in-15-minutes_841x360.png) 15 Mobile Tips for Digital Transformation in the Legal Industry](https://www.abbyy.com/blog/15-mobile-tips-for-digital-transformation-in-the-legal-industry/) 
 
@@ -662,5 +656,26 @@ Submit
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-break-bot-patterns-enhance-organic-video-reach/"><u>[New] 2024 Approved Break Bot Patterns, Enhance Organic Video Reach</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-evolved-methods-for-effective-game-file-logging-for-2024/"><u>[Updated] Evolved Methods for Effective Game File Logging for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-strategies-for-video-discovery-boosting-viewership-cost-free/"><u>[Updated] Strategies for Video Discovery Boosting Viewership Cost-Free</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/202ncdmp3/"><u>「如何在202n年有效地從CD升級到MP3：初學者友好版指南」</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1-quick-guide-watching-your-videos-anywhere-convert-wmv-files-to-vob-format-with-ease/"><u>1. Quick Guide: Watching Your Videos Anywhere - Convert WMV Files to VOB Format with Ease!</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-yt-thumbnails-downloading-via-browser-app-and-command-line/"><u>2024 Approved YT Thumbnails Downloading via Browser, App & Command Line</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1726222165241-mpeg-movavi/"><u>電腦平台MPEG靜止及動態視頻形式改變 – Movavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/movavi-vob-mjpeg/"><u>完美解決方法：以Movavi 轉換器將線上VOB文件自動改為 MJPEG格式</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/capturando-solo-una-parte-de-la-pantalla-con-windows/"><u>Capturando Solo Una Parte De La Pantalla Con Windows</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/conversion-gratuita-online-de-archivos-asf-a-avi-mediante-movavi-compruebe-la-oferta-hoy/"><u>Conversión Gratuita Online De Archivos ASF a AVI Mediante Movavi - Compruebe La Oferta Hoy!</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/descargar-y-convertir-archivos-mkv-a-formato-wav-sin-coste-guia-paso-a-paso-con-movavi/"><u>Descargar Y Convertir Archivos MKV a Formato WAV Sin Coste: Guía Paso a Paso Con Movavi</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-the-official-nvidia-geforce-rtx-3070-ti-drivers-compatible-with-windows-1187/"><u>Download the Official NVIDIA GeForce RTX 3070 Ti Drivers Compatible with Windows 11/8/7</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/efficiently-compiling-multiple-photos-in-jpeg-format-into-a-single-pdf-a-detailed-walkthrough/"><u>Efficiently Compiling Multiple Photos in JPEG Format Into a Single PDF: A Detailed Walkthrough</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/gratuit-gebaseerd-wma-omzetter-onlinerepti-matige-geheugen-moviva/"><u>Gratuit Gebaseerd WMA-Omzetter: Onlinerepti Matige Geheugen - MoviVa</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-leave-a-life360-group-on-motorola-moto-g13-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How To Leave a Life360 Group On Motorola Moto G13 Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-6-appsservices-to-trace-any-tecno-spark-20-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, Top 6 Apps/Services to Trace Any Tecno Spark 20 Location By Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-geo-blocking-and-how-to-bypass-it-on-oppo-reno-9a-drfone-by-drfone-virtual-android/"><u>In 2024, What is Geo-Blocking and How to Bypass it On Oppo Reno 9A? | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/1723808256375-navigate-with-confidence-and-cut-costs-take-advantage-of-our-official-2n04-driver-easy-promo-offer-save-20-today/"><u>Navigate with Confidence & Cut Costs: Take Advantage of Our Official 2N04 Driver Easy Promo Offer - Save 20% Today!</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/top-10-risorse-online-per-scaricare-cartoons-free-nel-2024-guida-seo/"><u>Top 10 Risorse Online Per Scaricare Cartoons Free Nel 2024 - Guida SEO</u></a></li>
+</ul></div>
 

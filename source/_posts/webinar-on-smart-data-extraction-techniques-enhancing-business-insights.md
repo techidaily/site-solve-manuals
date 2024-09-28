@@ -1,7 +1,7 @@
 ---
 title: "Webinar on Smart Data Extraction Techniques: Enhancing Business Insights"
-date: 2024-09-18T16:00:30.005Z
-updated: 2024-09-23T17:08:27.643Z
+date: 2024-09-21T03:14:47.719Z
+updated: 2024-09-28T08:13:25.733Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/9e5ef4400f63e7f920ad051c5a9167da56f0ec84a54929789d005136b7898918.jpg
@@ -19,19 +19,6 @@ English
 
 ![Ben Berkowitz 198X198 (1)](https://static4.abbyy.com/abbyycommedia/35531/ben-berkowitz-198x198.png)
 
-<!-- affiliate ads begin -->
-<span id="1977020">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Ben Berkowitz
 
 Digital Process Automation, **Vertex Pharmaceuticals, Inc.**
@@ -39,17 +26,10 @@ Digital Process Automation, **Vertex Pharmaceuticals, Inc.**
 ![Madhu Raman 198X198 (1)](https://static2.abbyy.com/abbyycommedia/35532/madhu-raman-198x198.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111994/7443" target="_top" id="2111994">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111994" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918661/19272" target="_top" id="1918661">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918661" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918661/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111994/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Madhu Raman
@@ -61,10 +41,10 @@ Head of Intelligent Automation, **AWS**
 ![Brucemazza 198X198](https://static4.abbyy.com/abbyycommedia/31900/brucemazza-198x198.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528703/16446" target="_top" id="1528703">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528703" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528703/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Bruce Mazza
@@ -73,22 +53,36 @@ SVP, Technology Alliance Program, **BluePrism**
 
 ![Neilmurphy 198X198](https://static4.abbyy.com/abbyycommedia/25122/logo-2021-76x23.svg) 
 
-![Neilmurphy 198X198](https://static4.abbyy.com/abbyycommedia/31956/neilmurphy-198x198.png)
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006928/19272" target="_top" id="2006928">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![Neilmurphy 198X198](https://static4.abbyy.com/abbyycommedia/31956/neilmurphy-198x198.png)
 
 ### Neil Murphy
 
 Global Channel Chief, **ABBYY**
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997657/19272" target="_top" id="1997657">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997657" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997657/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Overview
 
 While intelligent automation and robotic process automation (RPA) adoption continues to accelerate, 70% of digital transformation projects fail to meet expectations according to Boston Consulting Group. Many Automation Center of Excellence (COE) leaders struggle to identify the right processes for automation and lack data-driven actionable insight to optimize processes, make decisions, and improve results. And with information systems generating an unprecedented amount of data from both digital and physical sources, how do you quickly get to the insights it contains in order to improve customer experience and operational efficiency?
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Blue Prism Process Intelligence powered by ABBYY Timeline
 
@@ -102,6 +96,19 @@ Watch this webinar and understand how Blue Prism Process Intelligence Powered by
 
 ### Fill in the form to register for the webinar now
 
+<!-- affiliate ads begin -->
+<span id="1977032">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Get in touch with us
 
 Please note that progressive profiling is used on this form to incrementally collect profile data over time.   
@@ -110,13 +117,6 @@ All personal information collected via this method is under full scope of all pr
 ## Thank you for registering!
 
 [![14082 RPA Today Webinar Banners 643X363](https://static3.abbyy.com/abbyycommedia/34995/14082-rpa-today-webinar-banners____643x363.png)](https://www.youtube.com/watch?v=bdEaNsqzyAk) 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Please check your inbox, we have sent you a confirmation email.
 
@@ -185,5 +185,24 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-guidance.techidaily.com/new-utilizing-luts-for-enhanced-color-correction-in-pscc/"><u>[New] Utilizing LUTs for Enhanced Color Correction in PSCC</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-screen-commanders-clash/"><u>[Updated] 2024 Approved Screen Commanders Clash</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-from-dull-to-delightful-text-that-tumbles-and-twirls/"><u>[Updated] From Dull to Delightful Text that Tumbles and Twirls</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-ideal-places-to-enjoy-vr-films/"><u>2024 Approved Ideal Places to Enjoy VR Films</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-solutions-for-optimal-website-analytics-and-personalization/"><u>Cookiebot-Driven Solutions for Optimal Website Analytics and Personalization</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-personalization-enhancing-user-experience-and-engagement/"><u>Cookiebot-Enabled Personalization: Enhancing User Experience and Engagement</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-site-optimization-boosting-your-seo-success/"><u>Cookiebot-Enabled Site Optimization: Boosting Your SEO Success</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-user-tracking-and-conversion-optimization/"><u>Cookiebot-Enabled User Tracking and Conversion Optimization</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-enhancing-your-websites-data-collection/"><u>Cookiebot-Enabled: Enhancing Your Website's Data Collection</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-enhanced-enhance-your-websites-user-experience-with-personalized-content/"><u>Cookiebot-Enhanced: Enhance Your Website's User Experience with Personalized Content</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-enhanced-optimized-site-performance/"><u>Cookiebot-Enhanced: Optimized Site Performance</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-revolutionizing-personalization-and-analytics-in-digital-marketing/"><u>Cookiebot: Revolutionizing Personalization and Analytics in Digital Marketing</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-latest-nvidia-rtx-2060-super-drivers-for-windows-11/"><u>Download Latest NVIDIA RTX 2060 Super Drivers for Windows 11</u></a></li>
+<li><a href="https://video-capture.techidaily.com/experts-picks-top-11-mac-applications-for-screen-capture-for-2024/"><u>Expert's Picks Top 11 Mac Applications for Screen Capture for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-navigating-youtubes-systems-after-video-upload/"><u>In 2024, Navigating YouTube's Systems After Video Upload</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/in-2024-step-by-step-guide-embedding-vimeo-videos-into-presentations/"><u>In 2024, Step-by-Step Guide Embedding Vimeo Videos Into Presentations</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/mastering-system-development-in-the-final-stretch-of-2015-insights-from-the-marathon-q4-session/"><u>Mastering System Development in the Final Stretch of 2015: Insights From the Marathon Q4 Session</u></a></li>
+</ul></div>
 

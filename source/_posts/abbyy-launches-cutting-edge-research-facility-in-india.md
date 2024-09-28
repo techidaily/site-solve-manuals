@@ -1,7 +1,7 @@
 ---
 title: ABBYY Launches Cutting-Edge Research Facility in India
-date: 2024-09-22T17:47:02.096Z
-updated: 2024-09-23T17:03:03.520Z
+date: 2024-09-24T06:59:02.576Z
+updated: 2024-09-28T02:16:12.896Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/614e0e5c423fbfce776b4242bea85cadda084bd0ef851e6cf9024dcc8525ee26.jpg
@@ -40,10 +40,10 @@ ABBYY is a recognized leader by more than a dozen analysts for its [intelligent 
 _1_ _[Forrester: APAC Tech Spend to Grow 7% Annually, Reaching US $876 Billion In 2027](https://www.forrester.com/press-newsroom/forrester-apac-tech-spend-forecast-2024/#:~:text=SINGAPORE%2C%20June%2011%2C%202024%20%E2%80%94,US%20%24876%20billion%20in%202027.#:~:text=SINGAPORE%2C%20June%2011%2C%202024%20%E2%80%94,US%20%24876%20billion%20in%202027.), June 11, 2024._ 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### About ABBYY
@@ -67,5 +67,19 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-unleash-marketing-potential-with-unpacked-plans/"><u>[New] Unleash Marketing Potential with Unpacked Plans</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-accelerated-attention-on-instagram-the-like-video-method/"><u>[Updated] 2024 Approved Accelerated Attention on Instagram - The Like-Video Method</u></a></li>
+<li><a href="https://fake-location.techidaily.com/apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-nokia-g42-5g-drfone-by-drfone-virtual-android/"><u>Apply These Techniques to Improve How to Detect Fake GPS Location On Nokia G42 5G | Dr.fone</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/baixando-o-editor-capcut-para-windows-tutoriais-completos-de-instalacao-e-operacao/"><u>Baixando O Editor CapCut Para Windows: Tutoriais Completos De Instalação E Operação</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/classic-crimson-codec/"><u>Classic Crimson Codec</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-xiaomi-redmi-note-12t-pro-by-drfone-android/"><u>Complete Review & Guide to Techeligible FRP Bypass and More For Xiaomi Redmi Note 12T Pro</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/conversao-gratuita-de-swf-para-mp4-online-oficinas-do-movavi/"><u>Conversão Gratuita De SWF Para MP4 Online - Oficinas Do Movavi</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/creality-cr10s-assessment-balancing-premium-features-against-incorrect-dimensions/"><u>Creality CR10s Assessment: Balancing Premium Features Against Incorrect Dimensions</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/grabacion-de-video-gratuita-para-pc-con-movavi-una-guia-completa/"><u>Grabación De Video Gratuita Para PC Con Movavi: Una Guía Completa</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-ice-whizzes-on-display-olympics-22/"><u>In 2024, Ice Whizzes on Display - Olympics '22</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/movavimpg3gp/"><u>Movavi導航：在线无限MPG到3GP转换服务 - 移動電話適用版本</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/wmv-gif/"><u>WMV를 GIF으로 자유성: 인터넷 연구소의 오픈 마이크스 비디오 변환 도구</u></a></li>
+</ul></div>
 

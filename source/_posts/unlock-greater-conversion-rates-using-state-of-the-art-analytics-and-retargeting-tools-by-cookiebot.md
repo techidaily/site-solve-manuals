@@ -1,7 +1,7 @@
 ---
 title: Unlock Greater Conversion Rates Using State-of-the-Art Analytics and Retargeting Tools by Cookiebot
-date: 2024-09-20T16:27:42.816Z
-updated: 2024-09-23T17:42:17.816Z
+date: 2024-09-24T02:20:00.533Z
+updated: 2024-09-28T06:57:55.183Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f5fbbf41453d9824bf6879798120e6de2082db27f668f4cb2a72d45c0fe37f64.jpg
@@ -22,19 +22,6 @@ _Editorial note: FineReader PDF Mobile for Android, Business Card Reader for And
 ---
 
 We are proud to present the newest generation of mobile scanners from ABBYY Mobile – FineScanner AI 8\. Now, FineScanner will not only scan and store your documents but will also become your personal smartphone archivist. FineScanner can now automatically sort all of your photos into seven different document types, help you find specific photos using the search feature, and precisely measure your documents’ size using augmented reality.
-
-<!-- affiliate ads begin -->
-<span id="1304647">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## A new generation of smart galleries
 
@@ -57,6 +44,13 @@ Having your documents in ideal order ensures a seamless work process. The latest
 Sections for the various document formats will be displayed at the top of the Gallery screen.
 
 ![classification_search_fs_8](https://static1.abbyy.com/abbyycommedia/31422/classification_search_fs_8.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 “Training” our neural network involved studying tens of thousands of photographs provided by a multitude of ABBYY employees. Artificial intelligence, like any diligent student, requires a wealth of knowledge to learn from. As part of this process, ABBYY developers meticulously marked out each provided photo by hand. This was how the AI was “taught” the difference between books and A4 documents, business cards and ID’s, and so on. We decided to implement seven distinct sections for the most popular document types uploaded to [FineScanner](https://go.onelink.me/0oMB/2b084a0a). This data was obtained by means of a questionnaire answered by our users.
 
@@ -102,13 +96,6 @@ To measure your document using augmented reality, do the following:
 
 ![arkit_fs_8](https://static1.abbyy.com/abbyycommedia/31423/arkit_fs_8.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 If the size of your document corresponds to one of the standard sizes (e.g. A4 or driver’s license), [FineScanner](https://go.onelink.me/0oMB/2b084a0a) will ask you whether you want to set the document to be treated as a document of that particular size. For documents of non-standard size, you can choose to save the detected size for later use. To do so, tap the detected document measurements and switch “Save to list” to “On”. Once that is done, specify a name for your new format, for example, “Flyer”.
 
 The sooner [you update your FineScanner app](https://go.onelink.me/0oMB/2b084a0a), the sooner you’ll be able to try out all of these new features! We look forward to reading your feedback and requests on the application page in both the App Store and Google Play.
@@ -122,6 +109,13 @@ To learn more about key updates for other ABBYY mobile apps that have been imple
 [](https://youtu.be/oo00Gxcptyw) 
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
+  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -173,13 +167,6 @@ Connect with us
 
 ![](https://static4.abbyy.com/abbyycommedia/31472/fs-8-blog-main-no-sign.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 _Editorial note: FineReader PDF Mobile for Android, Business Card Reader for Android, and Text Grabber for Android & iOS have been discontinued since September 2023\. You can learn more about that [here](https://tools.techidaily.com/abbyy/products/)._
 
 ---
@@ -219,20 +206,13 @@ Moreover, we want you to be able to find the photos that you need even quicker t
 ![search_fs_8](https://static1.abbyy.com/abbyycommedia/31421/search_fs_8.jpeg)
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1186864/12108" target="_top" id="1186864">
-  <img src="//a.impactradius-go.com/display-ad/12108-1186864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186864/12108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Simply begin typing your search phrase into the bar at the top of the Gallery screen. You can also search through documents from a specific category (e.g. A4) by navigating to the appropriate document category folder and searching there. Doing so will restrict your search to that specific document type.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Activating the new smart gallery and the search feature
 
@@ -253,6 +233,19 @@ It is imperative that you select the correct recognition languages in order for 
 
 We have good news for you regardless of your device platform — [FineScanner 8.0 is available on both iOS and Android](https://go.onelink.me/0oMB/2b084a0a) on the same day.
 
+<!-- affiliate ads begin -->
+<span id="1983471">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Measuring document size using augmented reality on iOS devices
 
 We also have a little surprise for our Apple users. According to our research, more than half of all [FineScanner](https://go.onelink.me/0oMB/2b084a0a) users send the documents they create to their e-mail or messenger apps, which they do by either saving the documents on their PC or by printing them out. In previous [FineScanner](https://go.onelink.me/0oMB/2b084a0a) versions, printing a document straight from the app would stretch out the image over the entire page, which was just not good enough. In the new iOS version of [FineScanner](https://go.onelink.me/0oMB/2b084a0a), we’ve added a feature that allows you to measure the size of your documents using augmented reality. This tool will let you determine the size of your particular document (e.g. passport, driver’s license, business card) in order to correctly scale the document onto your printing paper. Now you won’t have any distortion issues when printing your documents directly from [FineScanner](https://go.onelink.me/0oMB/2b084a0a).
@@ -267,10 +260,10 @@ To measure your document using augmented reality, do the following:
 ![arkit_fs_8](https://static1.abbyy.com/abbyycommedia/31423/arkit_fs_8.png)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 If the size of your document corresponds to one of the standard sizes (e.g. A4 or driver’s license), [FineScanner](https://go.onelink.me/0oMB/2b084a0a) will ask you whether you want to set the document to be treated as a document of that particular size. For documents of non-standard size, you can choose to save the detected size for later use. To do so, tap the detected document measurements and switch “Save to list” to “On”. Once that is done, specify a name for your new format, for example, “Flyer”.
@@ -286,6 +279,13 @@ To learn more about key updates for other ABBYY mobile apps that have been imple
 [](https://youtu.be/oo00Gxcptyw) 
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -304,5 +304,17 @@ Share
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-quick-quirky-qs-how-to-save-funny-tweets-as-gifs/"><u>[New] In 2024, Quick, Quirky Qs How To Save Funny Tweets as GIFs</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-mastering-youtubes-feature-switch-between-commenting-states/"><u>[Updated] Mastering YouTube's Feature Switch Between Commenting States</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/2024-approved-your-roadmap-to-earning-on-tiktok-discover-these-top-8-approaches/"><u>2024 Approved Your Roadmap to Earning on TikTok Discover These Top 8 Approaches</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-iphone-app-guide-navigating-with-google-maps/"><u>Comprehensive iPhone App Guide: Navigating with Google Maps</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/conversion-gratuite-dimage-tiff-en-jpeg-enligne-utilisez-le-service-de-convertisseur-de-movavi/"><u>Conversion Gratuite D'Image TIFF en JPEG Enligne - Utilisez Le Service De Convertisseur De Movavi</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-watch-hulu-outside-us-on-motorola-moto-g-stylus-2023-drfone-by-drfone-virtual-android/"><u>In 2024, How to Watch Hulu Outside US On Motorola Moto G Stylus (2023) | Dr.fone</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/movavis-no-cost-ogg-to-aiff-converter-perfect-solution-for-your-file-needs/"><u>Movavi's No-Cost OGG to AIFF Converter - Perfect Solution for Your File Needs!</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/sharing-screens-seamlessly-across-pc-and-mobile-with-discord/"><u>Sharing Screens Seamlessly Across PC & Mobile with Discord</u></a></li>
+<li><a href="https://some-skills.techidaily.com/top-online-platforms-for-enhancing-visual-medias-subtitle-quality-for-2024/"><u>Top Online Platforms for Enhancing Visual Media's Subtitle Quality for 2024</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1726221135878-gif-jpg-movavi/"><u>쉽게 GIF 에서 JPG로 변환하기 – Movavi의 가이드</u></a></li>
+</ul></div>
 

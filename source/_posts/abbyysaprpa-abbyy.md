@@ -1,7 +1,7 @@
 ---
 title: ABBYYを活用したSAPによる知能的RPAドキュメント管理システムへの統合 - ABBYY公式記事
-date: 2024-09-19T17:15:42.558Z
-updated: 2024-09-23T18:55:41.858Z
+date: 2024-09-21T19:25:40.184Z
+updated: 2024-09-28T02:25:56.620Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/68d72132debc55d7a219d5ad96f3f8ade10f55eb90774e1fcb8b0eea83e6c871.png
@@ -46,10 +46,10 @@ thumbnail: https://thmb.techidaily.com/68d72132debc55d7a219d5ad96f3f8ade10f55eb9
 「RPAと組み合わせて使用されるAIテクノロジ - 機械学習（ML）、自然言語処理（NLP）、コンピュータービジョンを含む - は、スタンドアロンRPAによって達成可能なものよりもはるかに大きなビジネス上の利点を引き出す可能性があります。 この組み合わせは、プロセスの業務処理的な部分だけでなく、判断力が必要とされる部分も自動化するのに役立ちます。」
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151865/7443" target="_top" id="2151865">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151865/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **インテリジェントな文書処理のリーダーであるABBYY**
@@ -59,10 +59,10 @@ ABBYYのインテリジェント文書処理プラットフォームは、最近
 ABBYYのインテリジェント文書処理プラットフォームとSAP Intelligent RPAを組み合わせると、ABBYYのコンテンツインテリジェンステクノロジーとソリューションは、コンテンツ中心のプロセスの自動化を支援するために必要なコグニティブスキルを提供します。 コンテンツインテリジェンスは、高度なビジネス上の意思決定に必要なスキルと理解を新しいデジタルワーカーに提供することで、企業の働き方を変え始めており、今後の主流になっていくでしょう。
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528689/16446" target="_top" id="1528689">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528689" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528689/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **次のステップとして**
@@ -78,10 +78,10 @@ ABBYY FlexiCaptureについての概要、デモの依頼、お問い合わせ�
 [OCR（文字認識）](https://tools.techidaily.com/abbyy/products/) [コンテンツの理解](https://tools.techidaily.com/abbyy/products/) [AI OCR](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### いいね！、シェア、再投稿
@@ -145,5 +145,18 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-premier-video-editing-choices-for-online-sessions/"><u>[Updated] In 2024, Premier Video Editing Choices for Online Sessions</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-unlocking-hdr-photography-selecting-superior-models/"><u>[Updated] In 2024, Unlocking HDR Photography Selecting Superior Models</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-mastering-social-media-engagement-the-role-of-igtv-hashtags-for-2024/"><u>[Updated] Mastering Social Media Engagement The Role of IGTV Hashtags for 2024</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/descubre-el-secreto-de-uniformizar-ediciones-en-adobe-after-effects-una-guia-completa/"><u>Descubre El Secreto De Uniformizar Ediciones en Adobe After Effects: Una Guía Completa</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-life360-on-windows-pc-for-samsung-galaxy-s23-ultra-drfone-by-drfone-virtual-android/"><u>How to Use Life360 on Windows PC For Samsung Galaxy S23 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-can-i-screen-mirroring-apple-iphone-11-to-tvlaptop-drfone-by-drfone-ios/"><u>In 2024, How Can I Screen Mirroring Apple iPhone 11 to TV/Laptop? | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/resolve-your-pcs-sound-quality-problems-with-these-windows-tweaks/"><u>Resolve Your PC's Sound Quality Problems with These Windows Tweaks</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/the-best-27-text-to-speech-applications-of-2024-reviewed-by-movavi/"><u>The Best 27 Text-to-Speech Applications of 2024 Reviewed by Movavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/transfer-data-seamlessly-from-ios-to-windows-11-explore-the-top-7-mirroring-solutions-tips-from-movavi/"><u>Transfer Data Seamlessly From iOS to Windows 11: Explore the Top 7 Mirroring Solutions - Tips From Movavi</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/upgrade-essentials-how-to-prepare-your-system-for-windows-11-creators-updates/"><u>Upgrade Essentials: How to Prepare Your System for Windows 11 Creator's Updates</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/online-wma-to-flac-movavi/"><u>우아하고 응답성 있는 Online WMA to FLAC 전환 서비스 – Movavi가 제공합니다</u></a></li>
+</ul></div>
 

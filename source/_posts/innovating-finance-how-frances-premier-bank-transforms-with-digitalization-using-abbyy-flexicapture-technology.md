@@ -1,7 +1,7 @@
 ---
 title: "Innovating Finance: How France's Premier Bank Transforms with Digitalization Using ABBYY FlexiCapture Technology"
-date: 2024-09-16T18:13:46.862Z
-updated: 2024-09-23T16:50:13.969Z
+date: 2024-09-22T04:20:44.510Z
+updated: 2024-09-28T01:26:03.052Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b357c4b8f72776975451a46d642e42d569af6d435c0d587f7372c46c2b7924bd.jpg
@@ -26,22 +26,15 @@ Financial Services | Credit Application Processing
 ![](https://static1.abbyy.com/abbyycommedia/12629/caixa-logo-362x198.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Customer Overview
 
 ![Caisse d’Epargne Bretagne Pays de Loire](https://static4.abbyy.com/abbyycommedia/14897/caisse-logo-260x80.jpg) 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044582/7443" target="_top" id="2044582">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044582" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044582/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 | Name         | Caisse d’Epargne Bretagne Pays de Loire                |
 | ------------ | ------------------------------------------------------ |
@@ -99,33 +92,40 @@ The introduction of this integrated solution enables the credit department at Ca
 
 [![FlexiCapture](https://static2.abbyy.com/abbyycommedia/21380/4-flexicapture.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![Banking and Finance](https://static4.abbyy.com/abbyycommedia/14358/8-banking-and-finance.jpg)](https://tools.techidaily.com/abbyy/products/) [Banking and Finance](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![PDF Version](https://static2.abbyy.com/abbyycommedia/15357/cs-caisse-360x162-2.jpg)](https://static5.abbyy.com/abbyycommedia/5095/cs-caisse-epargne%5Fbanking%5Fe.pdf "PDF version") [PDF version](https://static5.abbyy.com/abbyycommedia/5095/cs-caisse-epargne%5Fbanking%5Fe.pdf "PDF version") 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [read more](https://static5.abbyy.com/abbyycommedia/5095/cs-caisse-epargne%5Fbanking%5Fe.pdf "PDF version") 
 
 ###### Like, share or repost
 
 Share  True ?  : "" 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043661/7443" target="_top" id="2043661">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043661" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043661/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Ready to talk to an expert?
 
@@ -146,5 +146,17 @@ We'd love to help you along your automation journey.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/updated-popular-pictures-the-backstage-story/"><u>[Updated] Popular Pictures The Backstage Story</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/mp3-3gpp-movavi/"><u>簡便高效：以 Mp3 形式解決方案，自動將 3GPP 轉換 - Movavi 無償版</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/conversion-gratuite-de-fichiers-jp2-a-ligne-movavi/"><u>Conversion Gratuite De Fichiers JP2 À Ligne - Movavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/download-and-convert-audiovideo-files-from-wav-to-wmv-online-at-no-cost-movavi-converter/"><u>Download and Convert Audio/Video Files From WAV to WMV Online at No Cost - Movavi Converter</u></a></li>
+<li><a href="https://extra-information.techidaily.com/how-can-you-upgrade-to-windows-11/"><u>How Can You Upgrade to Windows 11 ?</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-pc-screen-to-tecno-spark-20c-phones-drfone-by-drfone-android/"><u>In 2024, How to Mirror PC Screen to Tecno Spark 20C Phones? | Dr.fone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-ideal-no-cost-screen-grabber-toolset/"><u>In 2024, Ideal No-Cost Screen Grabber Toolset</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-xiaomi-redmi-note-13-proplus-5g-drfone-by-drfone-virtual-android/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Xiaomi Redmi Note 13 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/transfert-gratuit-3gp-vers-lignes-numeriques-solution-movavi/"><u>Transfert Gratuit 3GP Vers Lignes Numériques - Solution Movavi</u></a></li>
+<li><a href="https://fox-that.techidaily.com/unblocked-ensure-seamless-message-exchange-between-your-iphone-and-android-phone/"><u>Unblocked: Ensure Seamless Message Exchange Between Your iPhone and Android Phone</u></a></li>
+</ul></div>
 

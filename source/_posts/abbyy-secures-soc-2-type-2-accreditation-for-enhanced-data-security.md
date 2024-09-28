@@ -1,7 +1,7 @@
 ---
 title: ABBYY Secures SOC 2 Type 2 Accreditation for Enhanced Data Security
-date: 2024-09-17T16:31:44.588Z
-updated: 2024-09-23T17:23:34.707Z
+date: 2024-09-25T21:24:41.479Z
+updated: 2024-09-28T08:33:58.363Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/80c97e26a42ec85426e926d8a619570205ae66ef3c841d342bad4a1013bf8d86.jpg
@@ -30,10 +30,10 @@ All of ABBYY’s on-premises solutions do not share any personal or commercial d
 SOC 2 reports are available upon request and a signed NDA. To request a SOC 2 report, which includes scope, methodology, and findings, please contact us at [legaloperations@abbyy.com](https://tools.techidaily.com/abbyy/products/). Visit [ABBYY.com](https://tools.techidaily.com/abbyy/products/) for more information about the company and more details about their security initiatives.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### About ABBYY
@@ -43,10 +43,10 @@ ABBYY empowers organizations to gain a complete understanding of their business 
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies, and may not be used without consent of its respective owners.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### ABBYY editorial contact
@@ -54,10 +54,10 @@ ABBYY can either be a registered trademark or a trademark and can also be a logo
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Gina Ray, APR
@@ -82,5 +82,21 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-how-to-craft-eye-catching-youtubes-end-titles/"><u>[Updated] In 2024, How to Craft Eye-Catching YouTubes End Titles</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-streamlined-processes-for-exporting-video-assets-as-mp3-on-pinterest/"><u>2024 Approved Streamlined Processes for Exporting Video Assets as MP3 on Pinterest</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/movavi-ogg-mpeg/"><u>無版稅的MOVAVI 工具: 從 OGG 到 MPEG 在線上進行直接過渡</u></a></li>
+<li><a href="https://network-issues.techidaily.com/ensure-static-screens-in-windows-11-settings/"><u>Ensure Static Screens in Windows 11 Settings</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-honor-100-phone-without-pin-by-drfone-android/"><u>How to Unlock Honor 100 Phone without PIN</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-watch-hulu-outside-us-on-infinix-note-30-drfone-by-drfone-virtual-android/"><u>How to Watch Hulu Outside US On Infinix Note 30 | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-forgotten-the-voicemail-password-of-poco-f5-pro-5g-try-these-fixes-by-drfone-android/"><u>In 2024, Forgotten The Voicemail Password Of Poco F5 Pro 5G? Try These Fixes</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/les-meilleurs-outils-en-ligne-pour-capturer-des-contenu-video-a-partir-de-la-toile/"><u>Les Meilleurs Outils en Ligne Pour Capturer Des Contenu Vidéo À Partir De La Toile</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/non-proprietary-serene-tunes-for-2024/"><u>Non-Proprietary Serene Tunes for 2024</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/online-free-solutions-for-transforming-dts-format-into-multiple-audio-formats/"><u>Online Free Solutions for Transforming DTS Format Into Multiple Audio Formats</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/resolving-macs-trash-emptying-issue/"><u>Resolving Mac's Trash Emptying Issue</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/the-critical-number-of-views-for-youtube-earnings/"><u>The Critical Number of Views for YouTube Earnings</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/top-14-archivos-online-de-descarga-gratuita-y-premium-para-diseno-web-2022/"><u>Top 14 Archivos Online De Descarga Gratuita Y Premium Para Diseño Web – 2022</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/mxfmp4movavi/"><u>コピーレスオンラインで無料MXFをMP4に変換：Movaviの解決策</u></a></li>
+</ul></div>
 

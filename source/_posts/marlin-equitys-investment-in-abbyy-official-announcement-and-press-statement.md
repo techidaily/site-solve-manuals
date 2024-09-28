@@ -1,7 +1,7 @@
 ---
 title: "Marlin Equity's Investment in ABBYY: Official Announcement & Press Statement"
-date: 2024-09-19T16:28:08.954Z
-updated: 2024-09-23T18:36:48.651Z
+date: 2024-09-26T16:25:24.703Z
+updated: 2024-09-28T08:50:51.702Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f7008ec86977e694421ef724a35a33c6fec32d45741490d50d66c52b24ae9074.jpg
@@ -42,10 +42,10 @@ Upon completion of necessary approvals, Alex Beregovsky will join ABBYY's Board 
 Marlin Equity Partners is a global investment firm with over $7.5 billion of capital under management. The firm focuses on providing corporate parents, shareholders and other stakeholders with tailored solutions that meet their business and liquidity needs. Marlin invests in businesses across multiple industries where its capital base, industry relationships and an extensive network of operational resources significantly strengthen a company’s outlook and enhance value. Since its inception, Marlin, through its group of funds and related companies, has made over 180 investments. The firm is headquartered in Los Angeles, California with an additional office in London. For more information, please visit [www.marlinequity.com](http://www.marlinequity.com/).
 
 <!-- affiliate ads begin -->
-<a href="https://bluettifr.pxf.io/c/5597632/2145079/17095" target="_top" id="2145079">
-  <img src="//a.impactradius-go.com/display-ad/17095-2145079" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145079/17095" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### About ABBYY
@@ -55,10 +55,10 @@ ABBYY empowers organizations to gain a complete understanding of their business 
 [ABBYY](https://tools.techidaily.com/abbyy/products/) and the ABBYY Logo are either registered trademarks or trademarks of ABBYY Software Ltd. Other product names mentioned herein may be trademarks and/or registered trademarks of their respective owners and are hereby recognized.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043596/7443" target="_top" id="2043596">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043596" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043596/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### ABBYY Editorial Contact
@@ -66,16 +66,16 @@ ABBYY empowers organizations to gain a complete understanding of their business 
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
 <!-- affiliate ads begin -->
-<span id="1983539">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+<span id="1155462">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Gina Ray, APR
@@ -100,5 +100,20 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-effective-methods-for-capturing-youtube-live-broadcasts/"><u>[New] 2024 Approved Effective Methods for Capturing YouTube Live Broadcasts</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-avatar-architecture-your-uncomplicated-guide-to-virtual-existence/"><u>2024 Approved Avatar Architecture Your Uncomplicated Guide to Virtual Existence</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-masters-choice-top-10-precision-tools-for-downloading-vimeo-files/"><u>2024 Approved Master's Choice Top 10 Precision Tools for Downloading Vimeo Files</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-perfecting-the-art-of-podcast-title-creation-essential-tips-and-inspirations/"><u>2024 Approved Perfecting the Art of Podcast Title Creation Essential Tips & Inspirations</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/crear-gifs-sin-costo-desde-archivos-ogv-online-con-movavi/"><u>Crear GIFs Sin Costo Desde Archivos OGV Online Con Movavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/free-conversion-change-your-files-from-aiff-to-wma-using-an-online-tool/"><u>Free Conversion: Change Your Files From AIFF to WMA Using an Online Tool</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/grabacion-de-audio-gratuita-para-windows-y-macos/"><u>Grabación De Audio Gratuita Para Windows Y macOS</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-vivo-v27-pro-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On Vivo V27 Pro? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-full-tutorial-to-bypass-your-oppo-a56s-5g-face-lock-by-drfone-android/"><u>In 2024, Full Tutorial to Bypass Your Oppo A56s 5G Face Lock?</u></a></li>
+<li><a href="https://win-bytes.techidaily.com/mastering-pc-game-recording-a-comprehensive-tutorial-using-movavi-software/"><u>Mastering PC Game Recording: A Comprehensive Tutorial Using Movavi Software</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/os-9-melhores-concorrentes-gratuitos-online-ideais-para-fazer-videos-perfeitos-no-youtube/"><u>Os 9 Melhores Concorrentes Gratuitos Online Ideais Para Fazer Vídeos Perfeitos No YouTube</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/transformez-gratuitement-un-fichier-pbm-en-format-png-avec-movavi-convertissez-facilement-et-sans-frais/"><u>Transformez Gratuitement Un Fichier PBM en Format PNG Avec Movavi - Convertissez Facilement Et Sans Frais !</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/webm-a-mp4-ele-alir-online-doldurmak-hassaslarin-uzerinde-ozellikle-hizli-ve-kolay-bir-etkinlige/"><u>WebM a MP4 Ele Alır Online Doldurmak Hassasların Üzerinde Özellikle Hızlı Ve Kolay Bir Etkinliğe</u></a></li>
+</ul></div>
 

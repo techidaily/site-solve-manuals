@@ -1,7 +1,7 @@
 ---
 title: Mastering Efficiency Through the Integration of Process Mining Techniques and Robotic Process Automation
-date: 2024-09-18T18:52:22.319Z
-updated: 2024-09-23T18:51:29.753Z
+date: 2024-09-23T00:34:11.715Z
+updated: 2024-09-28T06:59:40.204Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1f9efb9a5a1a414295a14ea1d46a07970958d7efb8dbb6f473b4857c829f272b.png
@@ -34,13 +34,20 @@ Process mining is leveraged across various industries to model and present proce
 * **Healthcare**. Healthcare organizations manage several, complex in-person and online systems. With process mining, you'll get insight into the day-to-day details of process execution. Healthcare companies can use this data to make improvements such as optimizing patient flow and reallocating appointments, which will improve overall quality of patient care.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105869/7443" target="_top" id="2105869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## What is RPA?
 
@@ -52,21 +59,7 @@ RPA is valuable across all industries, namely:
 * **Transportation and logistics**. RPA is most often used for routine logistics tasks such as order management, invoice processing and data entry. Employing automation in these areas helps to relieve employees to focus on higher-value tasks.
 * **Insurance**. Similarly to financial services, insurance process flows are rife with data-heavy tasks. RPA is used to automate manual tasks such as form processing, claims processing, and policy administration.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972679/19272" target="_top" id="1972679">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972679" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972679/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How process mining improves RPA results
 
@@ -103,6 +96,13 @@ Scaling from tens to hundreds, or thousands, of bots requires significant proces
 
 Full process visibility allows teams to identify, analyze and correct process execution issues before investing resources into RPA. You'll have detailed insights to effectively address inefficient tasks, bottlenecks or compliance risks.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Maintain post-RPA visibility for impacted processes
 
 By employing process mining to monitor your automation’s upstream and downstream impact, you'll gather daily, quantifiable data on post-implementation impact. You'll also have a clear view on whether your automation investment is operating as expected.
@@ -112,16 +112,10 @@ By employing process mining to monitor your automation’s upstream and downstre
 Pairing process mining and RPA helps businesses to accelerate their digital transformation, by spotlighting redundant processes. With a more streamlined operational landscape, you can expand the scope of RPA investments while reducing time to value.
 
 <!-- affiliate ads begin -->
-<span id="1975658">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2049391/7443" target="_top" id="2049391">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049391" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049391/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Achieve process excellence by combining process mining and RPA
@@ -136,6 +130,13 @@ To unlock unparalleled business efficiency and performance, speak to one of our 
 
 ![](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Tamas Mahr
 
 Head of ABBYY Timeline Development, Administrative Director of ABBYY Hungary
@@ -143,13 +144,6 @@ Head of ABBYY Timeline Development, Administrative Director of ABBYY Hungary
 Connect with Tamas on [LinkedIn](https://www.linkedin.com/in/tamasmahr/).
 
 _Editorial note: This blog post was originally published October 8, 2019, and was updated on July 23 to include an FAQ section and an updated definition of how RPA and process mining work together._
-
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Frequently asked questions
 
@@ -184,5 +178,26 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-comparing-leading-free-and-paid-zoom-transcription-systems/"><u>[New] Comparing Leading Free & Paid Zoom Transcription Systems</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-inside-the-world-of-kinemaster-a-deeper-look-at-gaming/"><u>[Updated] Inside the World of KineMaster A Deeper Look at Gaming</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-wave-warriors-cam-selection-best-surf-gear-2023/"><u>2024 Approved Wave Warriors' Cam Selection - Best Surf Gear 2023</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/online-m4b-and-m4a-movavi/"><u>最適な無料Online M4B & M4Aファイル変換 - Movaviでお試しください</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/baixando-o-editor-capcut-para-windows-tutoriais-completos-de-instalacao-e-operacao/"><u>Baixando O Editor CapCut Para Windows: Tutoriais Completos De Instalação E Operação</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/conversao-gratuita-de-swf-para-mp4-online-oficinas-do-movavi/"><u>Conversão Gratuita De SWF Para MP4 Online - Oficinas Do Movavi</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/demystifying-artificial-intelligence-black-boxes-explained/"><u>Demystifying Artificial Intelligence: Black Boxes Explained</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/grabacion-de-video-gratuita-para-pc-con-movavi-una-guia-completa/"><u>Grabación De Video Gratuita Para PC Con Movavi: Una Guía Completa</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/gratis-digitaal-converter-versterk-uw-soundfiles-van-wav-tot-flacaiff-via-movavi/"><u>Gratis Digitaal Converter: Versterk Uw Soundfiles Van WAV Tot FLAC/AIFF via Movavi</u></a></li>
+<li><a href="https://fox-that.techidaily.com/guide-to-tracking-down-your-absent-iphone-via-apples-innovative-find-my-application/"><u>Guide to Tracking Down Your Absent iPhone via Apple's Innovative Find My Application</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-fake-the-location-to-get-around-the-mlb-blackouts-on-vivo-y02t-drfone-by-drfone-virtual-android/"><u>In 2024, Fake the Location to Get Around the MLB Blackouts on Vivo Y02T | Dr.fone</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-from-sideways-to-right-side-up-how-to-flip-videos-quickly/"><u>In 2024, From Sideways to Right-Side Up How to Flip Videos Quickly</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/kernel-mode-system-instability-identifying-and-solving-heap-corruption-malfunctions/"><u>Kernel Mode System Instability: Identifying and Solving Heap Corruption Malfunctions</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/maximize-ai-potential-the-free-sidekick-in-copilot-and-turbo/"><u>Maximize AI Potential: The Free Sidekick in Copilot & Turbo</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/movavimpg3gp/"><u>Movavi導航：在线无限MPG到3GP转换服务 - 移動電話適用版本</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-4-ways-to-trace-vivo-y36i-location-drfone-by-drfone-virtual-android/"><u>Top 4 Ways to Trace Vivo Y36i Location | Dr.fone</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/transform-your-photos-downloadable-no-cost-arw-to-png-converter-by-movavi/"><u>Transform Your Photos: Downloadable, No-Cost ARW to PNG Converter by Movavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1726221741653-webm-mp4/"><u>WebM 표현식을 다원성 멀티미디어 MP4 형식으로 효율적으로 변환하는 방법</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/wmv-gif/"><u>WMV를 GIF으로 자유성: 인터넷 연구소의 오픈 마이크스 비디오 변환 도구</u></a></li>
+</ul></div>
 

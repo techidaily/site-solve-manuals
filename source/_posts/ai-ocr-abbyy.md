@@ -1,7 +1,7 @@
 ---
 title: "「テガキを駆使したAI OCR: 手書き文字認識におけるコゲントラボ対フレックスキャプチャーの完璧な合体」 - ABBYYブログ"
-date: 2024-09-18T18:52:34.178Z
-updated: 2024-09-23T19:08:35.410Z
+date: 2024-09-24T06:46:35.796Z
+updated: 2024-09-27T16:41:06.454Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/80155af88523c332c941fe671488cc80343c6425da9b3fc724c8ee058b2d4ab5.jpg
@@ -47,10 +47,10 @@ thumbnail: https://thmb.techidaily.com/80155af88523c332c941fe671488cc80343c6425d
 ABBYY Japan エンジニアリングチーム
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
+<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### いいね！、シェア、再投稿
@@ -114,5 +114,23 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/approved-digital-wealth-creation-through-video-networking/"><u>2024 Approved Digital Wealth Creation Through Video Networking</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-solutions-enhance-your-websites-performance/"><u>Cookiebot-Enabled Solutions: Enhance Your Website's Performance</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-enhancing-your-sites-user-experience-with-personalized-tracking/"><u>Cookiebot-Enabled: Enhancing Your Site's User Experience with Personalized Tracking</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-enhanced-sites-experience-advanced-personalization-and-analytics/"><u>Cookiebot-Enhanced Sites: Experience Advanced Personalization and Analytics</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-enhanced-tailored-experiences-with-smart-tracking-technology/"><u>Cookiebot-Enhanced: Tailored Experiences with Smart Tracking Technology</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/deloitte-et-abbyy-unissent-forces-pour-transformer-les-processus-operationnels-clientiels-par-lautomatisation/"><u>Deloitte Et ABBYY Unissent Forces Pour Transformer Les Processus Opérationnels Clientiels Par L'Automatisation</u></a></li>
+<li><a href="https://driver-download.techidaily.com/download-and-install-nvidias-3d-vision-drivers-on-windows-without-cost/"><u>Download and Install Nvidia's 3D Vision Drivers on Windows Without Cost</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-the-newest-nvidia-quadro-rtx-8000-drivers-for-windows-11-10-and-7/"><u>Download the Newest NVIDIA Quadro RTX 8000 Drivers for Windows 11, 10 & 7</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/enhance-your-digital-experience-with-memoji-animation-in-facetime-advanced-research-scanners-and-effective-dog-training-tips-discover-whats-new-on-abbyy-blo12/"><u>Enhance Your Digital Experience with Memoji Animation in FaceTime, Advanced Research Scanners, and Effective Dog Training Tips – Discover What's New on ABBYY Blog</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/enhancing-user-experience-through-advanced-cookiebot-powered-insights/"><u>Enhancing User Experience Through Advanced Cookiebot-Powered Insights</u></a></li>
+<li><a href="https://common-error.techidaily.com/error-1603-decoded-strategies-for-a-successful-software-installation-fix/"><u>Error 1603 Decoded: Strategies for a Successful Software Installation Fix</u></a></li>
+<li><a href="https://program-issues.techidaily.com/essential-tips-resolving-vrchats-pc-stability-issues-with-8-proven-fixes/"><u>Essential Tips: Resolving VRChat's PC Stability Issues with 8 Proven Fixes</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-unlock-poco-x5-by-drfone-android-unlock-android-unlock/"><u>How to unlock Poco X5</u></a></li>
+<li><a href="https://techidaily.com/three-methods-to-recover-lost-data-on-infinix-smart-7-hd-by-fonelab-android-recover-data/"><u>Three methods to recover lost data on Infinix Smart 7 HD</u></a></li>
+<li><a href="https://windows11.techidaily.com/troubleshooting-windows-error-x80780119/"><u>Troubleshooting Windows' Error X80780119</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-is-a-sim-network-unlock-pin-get-your-xiaomi-14-pro-phone-network-ready-by-drfone-android/"><u>What Is a SIM Network Unlock PIN? Get Your Xiaomi 14 Pro Phone Network-Ready</u></a></li>
+</ul></div>
 

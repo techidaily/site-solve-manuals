@@ -1,7 +1,7 @@
 ---
 title: "人工知能文字認識の新時代:株式会社MAIAがABBYY FlexiCapture用に最適化したAI-OCR学習キット - ABBYYニュース"
-date: 2024-09-20T16:12:42.053Z
-updated: 2024-09-23T16:01:47.030Z
+date: 2024-09-26T16:38:22.879Z
+updated: 2024-09-28T03:25:14.270Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1dd490a8bd0fd9490b2a1a7e2f3e07f4fe288167493a224a8c1401933c662484.jpeg
@@ -57,18 +57,25 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-embracing-the-world-of-no-cost-text-animation/"><u>[New] In 2024, Embracing the World of No-Cost Text Animation</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-instructor-innovations-the-finest-audio-visual-recording-tools-for-teaching/"><u>[New] In 2024, Instructor Innovations The Finest Audio-Visual Recording Tools for Teaching</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-best-ai-naming-assistants-for-podcast-innovation/"><u>[Updated] The Best AI Naming Assistants for Podcast Innovation</u></a></li>
+<li><a href="https://some-tips.techidaily.com/updated-understanding-iphones-nightlight-settings/"><u>[Updated] Understanding iPhone's Nightlight Settings</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1726224446806-2024/"><u>2024上市最新型高級音樂編曲軟件 - 自由使用或付費選擇</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cambiar-video-mov-en-vivo-sin-coste-guia-paso-a-paso-para-convertirlo-a-formato-avi/"><u>Cambiar Video MOV en Vivo Sin Coste: Guía Paso a Paso Para Convertirlo a Formato AVI</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/comprendre-lenregistrement-ecran-plus-audio-en-quick-time-une-approche-complete-et-simple-a-suivre/"><u>Comprendre L’Enregistrement Écran + Audio en QuiC(k-Time): Une Approche Complète Et Simple À Suivre !</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/convertisseur-audio-gratuit-pour-transformer-vos-fichiers-m4a-movavi/"><u>Convertisseur Audio Gratuit Pour Transformer Vos Fichiers M4A - Movavi</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/harnessing-power-at-no-cost-guide-to-hosting-and-participating-in-gmeet-for-2024/"><u>Harnessing Power at No Cost Guide to Hosting & Participating in GMeet for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-sony-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>How to Unlock Sony Phone Pattern Lock without Factory Reset</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/movavi-werk-aan-wmv-videos-om-in-aac-format-te-worden-geconveert-voor-gratis-gebruik-online/"><u>Movavi Werk Aan WMV-Video's Om in AAC-Format Te Worden Geconveert Voor Gratis Gebruik Online</u></a></li>
+</ul></div>
 
 <!-- affiliate ads begin -->
-<span id="1630055">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

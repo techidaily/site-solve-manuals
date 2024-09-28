@@ -1,7 +1,7 @@
 ---
 title: Elevating Enterprise Success Through Process Intelligence - Explore Innovations on the ABBYY Platform
-date: 2024-09-20T17:43:58.059Z
-updated: 2024-09-23T18:58:42.992Z
+date: 2024-09-25T04:27:10.142Z
+updated: 2024-09-28T01:29:08.202Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8408c21b7cbd2d9f3e166f2aa500c9f7130f2d3b305b1fab49ef5afa3945895c.jpg
@@ -65,10 +65,10 @@ A 30-year veteran of the computer industry, Scott has founded and built companie
 In previous positions, Scott served as Senior Vice President, Worldwide Marketing & Business Development for webMethods (now Software AG), where he was responsible for webMethods’ marketing, business development, and strategic product planning. He joined webMethods as a result of its acquisition of IntelliFrame Corporation, a provider of data integration products and the InVista integrated workflow and BPM platform that he co-founded. Scott has also held numerous executive-level positions in technology, marketing and business development roles for public and private companies.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Like, share or repost
@@ -132,5 +132,26 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-approaches.techidaily.com/updated-stepwise-steps-to-install-windows-movie-maker-6/"><u>[Updated] Stepwise Steps to Install Windows Movie Maker 6</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/abbey/"><u>損害賠償申請プロセスの流れを適切にコントロールしている方法 | ABBEYブック</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/a-retrospective-journey-through-2018-what-has-changed-thought-leadership-at-abbyy-blog/"><u>A Retrospective Journey Through 2018: What Has Changed? | Thought Leadership at ABBYY Blog</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/abbyy-study-shows-finance-professionals-uphold-regulations-more-than-public-servants-exclusive-insights/"><u>ABBYY Study Shows Finance Professionals Uphold Regulations More Than Public Servants - Exclusive Insights</u></a></li>
+<li><a href="https://fox-sure.techidaily.com/effortlessly-transform-several-pdf-documents-into-individual-flipbooks-using-custom-naming-schemes-flipbuildercom/"><u>Effortlessly Transform Several PDF Documents Into Individual Flipbooks Using Custom Naming Schemes [FlipBuilder.com]</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/essential-guide-to-action-screening-saving-for-2024/"><u>Essential Guide to Action Screening Saving for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/image-jest-inc-punpictures-pro/"><u>Image Jest Inc PunPictures Pro</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-everything-you-need-to-know-about-lock-screen-settings-on-your-realme-note-50-by-drfone-android/"><u>In 2024, Everything You Need to Know about Lock Screen Settings on your Realme Note 50</u></a></li>
+<li><a href="https://win-forum.techidaily.com/1722915240817-navigating-the-big-four-facebook-twitter-instagram-and-youtube-strategies/"><u>Navigating the Big Four: Facebook, Twitter, Instagram & YouTube Strategies</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/neue-leitungswelle-bei-abbeyy-holt-zwei-berufung-von-it-fachleuten-ins-board-of-directors/"><u>Neue Leitungswelle Bei ABBEYY Holt Zwei: Berufung Von IT-Fachleuten Ins Board of Directors</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-stunning-4k-videos-you-need-to-see-for-2024/"><u>New Stunning 4K Videos You Need to See for 2024</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/smart-automation-losungen-fur-die-versicherungswirtschaft/"><u>Smart Automation Lösungen Für Die Versicherungswirtschaft</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/smart-document-handling-examples-in-transit-operations-and-distribution-management/"><u>Smart Document Handling Examples in Transit Operations and Distribution Management</u></a></li>
+<li><a href="https://common-error.techidaily.com/solved-troubleshooting-and-fixing-a-nonfunctional-shift-key/"><u>Solved: Troubleshooting and Fixing a Nonfunctional Shift Key</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-6-iphone-security-software-the-best-antivirus-apps/"><u>Top 6 iPhone Security Software: The Best Antivirus Apps</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/unlocking-the-secrets-of-optimizing-your-websites-page-rank/"><u>Unlocking the Secrets of Optimizing Your Website's Page Rank</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/utilizing-the-power-of-cookiebot-for-effective-ad-campaigns/"><u>Utilizing the Power of Cookiebot for Effective Ad Campaigns</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/vidcoder-compatibility-with-macos-is-it-supported/"><u>VidCoder Compatibility with macOS: Is It Supported?</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/web-page-excellence-key-strategies-for-effective-search-engine-visibility/"><u>Web Page Excellence: Key Strategies for Effective Search Engine Visibility</u></a></li>
+</ul></div>
 

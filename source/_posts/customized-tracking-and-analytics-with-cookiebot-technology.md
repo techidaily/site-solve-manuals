@@ -1,7 +1,7 @@
 ---
 title: Customized Tracking & Analytics with Cookiebot Technology
-date: 2024-09-21T18:25:58.967Z
-updated: 2024-09-23T16:06:43.861Z
+date: 2024-09-21T21:25:33.613Z
+updated: 2024-09-27T17:24:20.524Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e4beac8fff1e6ed1138983bf5a17ed77a249b1784cd0b6ce36cdaf1016dc1bb5.png
@@ -16,10 +16,10 @@ thumbnail: https://thmb.techidaily.com/e4beac8fff1e6ed1138983bf5a17ed77a249b1784
 ![避けては通れない「コンテンツ理解」の必要性](https://static1.abbyy.com/abbyycommedia/33247/24g-inevitable-need-for-understanding-content-jp-262x340.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 自動化の障害となる非構造化コンテンツを、ノーコード／ローコードのアプローチで克服
@@ -27,10 +27,16 @@ thumbnail: https://thmb.techidaily.com/e4beac8fff1e6ed1138983bf5a17ed77a249b1784
 昨今、企業にはデジタルトランスフォーメーション（DX）を戦略的な計画に組み込まなければならない、というプレッシャーがのしかかっています。 ローコードやノーコードの開発プラットフォームの登場は、新しいシチズンデベロッパー（市民開発者）を生み出しました。またRPAのようなテクノロジーは、多くの組織において、DXの第一歩を踏み出すきっかけとなっています。 今、企業は、より複雑で価値の高いプロセスを解き明かし、自動化することを急いでいます。 こうした重要なプロセスは顧客と関わるものであることが多く、必然的に非構造化コンテンツが流出するようになります。まさにそれらをインテリジェントに処理する必要があるのです。
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982457">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 今すぐダウンロード！
@@ -45,10 +51,10 @@ thumbnail: https://thmb.techidaily.com/e4beac8fff1e6ed1138983bf5a17ed77a249b1784
 このホワイトペーパーでは、ABBYY Vantageのような次世代AI OCRがどのようにこうしたニーズを解決しているのかが紹介されています。また、市民開発者に対応し、RPAやBPMプラットフォームと統合するために、ローコード/ノーコードで使いやすい実装を行うという新しい「パラダイム」に適合していくための方法もご覧いただけます。 さらに、ABBYY Marketplaceの再利用可能なコンポーネントを新しい自動化の取り組みにすばやく活用し、短期間で目に見えるビジネス成果を達成する方法についても学ぶことができます。
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484940/16446" target="_top" id="1484940">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484940" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484940/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## ABBYYにご関心をお寄せいただき、誠にありがとうございます。
@@ -58,10 +64,10 @@ thumbnail: https://thmb.techidaily.com/e4beac8fff1e6ed1138983bf5a17ed77a249b1784
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### ご質問がおありですか？ [お気軽にABBYYにお問い合わせください。](https://tools.techidaily.com/abbyy/products/)
@@ -131,5 +137,22 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/new-discover-engaging-free-slide-shows-with-these-amazing-template-selections/"><u>[New] Discover Engaging, Free Slide Shows with These Amazing Template Selections</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/he-beginners-blueprint-for-youtube-trailers-via-filmora-for-2024/"><u>[New] The Beginner's Blueprint for YouTube Trailers via Filmora for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-unveiling-irecorders-top-screen-capabilities-for-2024/"><u>[New] Unveiling iRecorder's Top Screen Capabilities for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-full-guide-to-download-windows-movie-maker-60-for-2024/"><u>[Updated] Full Guide to Download Windows Movie Maker 6.0 for 2024</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1726221590413-movavi/"><u>網路無限財富指數還本 - Movavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/ogvmpg-movavi/"><u>自由更改在線OGV為MPG格式 - 動態視頻移行的 Movavi方法</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/converti-file-mp4-in-formato-flac-on-line-e-gratuito-con-movavi/"><u>Converti File MP4 in Formato FLAC On-Line E Gratuito Con Movavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/easy-and-fast-transformation-of-wmv3gp-to-other-formats-for-free-by-movavicom/"><u>Easy and Fast Transformation of WMV/3GP to Other Formats for Free by Movavi.com</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/garantindo-a-seguranca-do-multimidia-o-movavi-oferece-softwares-eficientes/"><u>Garantindo a Segurança Do Multimídia, O Movavi Oferece Softwares Eficientes</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/googles-augmented-reality-stickers-an-in-depth-look-and-alternatives/"><u>Google's Augmented Reality Stickers An In-Depth Look and Alternatives</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-teleport-your-gps-location-on-oppo-reno-11-5g-drfone-by-drfone-virtual-android/"><u>How To Teleport Your GPS Location On Oppo Reno 11 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-solutions-to-find-your-honor-magic-v2-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Solutions to Find Your Honor Magic V2 Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://some-tips.techidaily.com/in-2024-superior-supplements-to-enhance-gopro/"><u>In 2024, Superior Supplements to Enhance GoPro</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-oneplus-11-5g-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On OnePlus 11 5G? | Dr.fone</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1726224457959-swf-movavi/"><u>SWF 비디오를 정교하게 조리하고 전통 제품에서 MOVavi 라이브 스타일로 커스터마이트화</u></a></li>
+</ul></div>
 
