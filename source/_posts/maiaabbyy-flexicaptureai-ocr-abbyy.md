@@ -1,7 +1,7 @@
 ---
 title: "人工知能文字認識の新時代:株式会社MAIAがABBYY FlexiCapture用に最適化したAI-OCR学習キット - ABBYYニュース"
-date: 2024-09-26T16:38:22.879Z
-updated: 2024-09-28T03:25:14.270Z
+date: 2024-09-30T11:21:32.283Z
+updated: 2024-10-03T07:25:47.043Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1dd490a8bd0fd9490b2a1a7e2f3e07f4fe288167493a224a8c1401933c662484.jpeg
@@ -59,23 +59,27 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-embracing-the-world-of-no-cost-text-animation/"><u>[New] In 2024, Embracing the World of No-Cost Text Animation</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-instructor-innovations-the-finest-audio-visual-recording-tools-for-teaching/"><u>[New] In 2024, Instructor Innovations The Finest Audio-Visual Recording Tools for Teaching</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-the-best-ai-naming-assistants-for-podcast-innovation/"><u>[Updated] The Best AI Naming Assistants for Podcast Innovation</u></a></li>
-<li><a href="https://some-tips.techidaily.com/updated-understanding-iphones-nightlight-settings/"><u>[Updated] Understanding iPhone's Nightlight Settings</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/1726224446806-2024/"><u>2024上市最新型高級音樂編曲軟件 - 自由使用或付費選擇</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cambiar-video-mov-en-vivo-sin-coste-guia-paso-a-paso-para-convertirlo-a-formato-avi/"><u>Cambiar Video MOV en Vivo Sin Coste: Guía Paso a Paso Para Convertirlo a Formato AVI</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/comprendre-lenregistrement-ecran-plus-audio-en-quick-time-une-approche-complete-et-simple-a-suivre/"><u>Comprendre L’Enregistrement Écran + Audio en QuiC(k-Time): Une Approche Complète Et Simple À Suivre !</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/convertisseur-audio-gratuit-pour-transformer-vos-fichiers-m4a-movavi/"><u>Convertisseur Audio Gratuit Pour Transformer Vos Fichiers M4A - Movavi</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/harnessing-power-at-no-cost-guide-to-hosting-and-participating-in-gmeet-for-2024/"><u>Harnessing Power at No Cost Guide to Hosting & Participating in GMeet for 2024</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-sony-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>How to Unlock Sony Phone Pattern Lock without Factory Reset</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/movavi-werk-aan-wmv-videos-om-in-aac-format-te-worden-geconveert-voor-gratis-gebruik-online/"><u>Movavi Werk Aan WMV-Video's Om in AAC-Format Te Worden Geconveert Voor Gratis Gebruik Online</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-dive-into-instagram-filters-2023s-latest-trends/"><u>[New] Dive Into Instagram Filters 2023'S Latest Trends</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-amplify-viewership-with-these-top-10-youtube-reaction-strategies-for-2024/"><u>[Updated] Amplify Viewership with These Top 10 YouTube Reaction Strategies for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-enhancing-lighting-and-shadows-in-obs-video/"><u>[Updated] Enhancing Lighting and Shadows in OBS Video</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-low-end-pc-maximum-performance-via-obs-for-2024/"><u>[Updated] Low-End Pc - Maximum Performance via OBS for 2024</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1724313312556-abby/"><u>「ABBYフレックスキャプチャー®による生命保険事務手続きの効率的なオペレーション自動化方法」</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1-outsourcing-expertise-subcontracting-for-enhanced-abbyy-professionals/"><u>1. Outsourcing Expertise: Subcontracting for Enhanced ABBYY Professionals</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/cookiebot-your-partner-in-seo-mastery/"><u>Cookiebot: Your Partner in SEO Mastery</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/decode-ai-talk-29-must-know-words-in-artificial-intelligence/"><u>Decode AI Talk: 29 Must-Know Words in Artificial Intelligence</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-erase-an-apple-iphone-8-without-apple-id-by-drfone-ios/"><u>In 2024, How to Erase an Apple iPhone 8 without Apple ID?</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-superior-alert-sound-pick-optimal-websites/"><u>In 2024, Superior Alert Sound Pick Optimal Websites</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/streamline-your-contract-management-discover-the-power-of-apttuss-intelligent-import-feature-enhanced-with-abbyy-and-machine-learning-innovation/"><u>Streamline Your Contract Management: Discover the Power of Apttus's Intelligent Import Feature Enhanced with ABBYY and Machine Learning Innovation</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/techniques-to-disable-networked-printers-in-windows/"><u>Techniques to Disable Networked Printers in Windows</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/utilizing-cookiebot-technology-for-optimized-user-experience-and-analytics-tracking/"><u>Utilizing Cookiebot Technology for Optimized User Experience & Analytics Tracking</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/virtual-town-hall-webinar-on-enhancing-ap-support-services/"><u>Virtual Town Hall Webinar on Enhancing AP Support Services</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/abbyy-ai-ocr-4/"><u>パーソルグループの名刺管理システムにABBYY AI OCRを実装: モバイル且つ4枚まとめて高精度読み取り</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

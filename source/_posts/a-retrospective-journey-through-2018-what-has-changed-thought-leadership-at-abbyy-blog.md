@@ -1,7 +1,7 @@
 ---
 title: "A Retrospective Journey Through 2018: What Has Changed? | Thought Leadership at ABBYY Blog"
-date: 2024-09-24T19:30:10.390Z
-updated: 2024-09-27T18:26:57.528Z
+date: 2024-10-02T02:19:17.649Z
+updated: 2024-10-02T21:44:50.895Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/927eab612ca9394a8dc7ea238a2f885f7ea9117faabc7f0454d2ab57936cb103.png
@@ -105,31 +105,31 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-elite-choices-top-8-tripods-for-cinematic-4k-experiences-for-2024/"><u>[New] Elite Choices Top 8 Tripods for Cinematic 4K Experiences for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-next-gen-key-smartwatch-opens-your-mac/"><u>[New] Next-Gen Key Smartwatch Opens Your Mac</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-threefold-mastery-in-copy-for-social-media-campaigns-increasing-impact-with-every-word-for-2024/"><u>[New] Threefold Mastery in Copy for Social Media Campaigns – Increasing Impact with Every Word for 2024</u></a></li>
-<li><a href="https://win-remarkable.techidaily.com/movavi-2024-90/"><u>使用促销码获取Movavi 2024年度打折票 - 现在只需原价的90%!</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/ai-for-coding-github-copilots-edge-over-chatgpt/"><u>AI for Coding: GitHub Copilot's Edge Over ChatGPT?</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/discover-the-ultimate-document-conversion-tool-with-abbyy-finereader-14-your-go-to-pdf-and-scan-handler/"><u>Discover the Ultimate Document Conversion Tool with ABBYY FineReader 14 – Your Go-To PDF & Scan Handler!</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/drive-more-visitors-with-cookiebot-technology-a-revolutionary-seo-solution/"><u>Drive More Visitors with Cookiebot Technology – A Revolutionary SEO Solution!</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/drive-your-sites-traffic-with-effective-cookiebot-technology/"><u>Drive Your Site's Traffic with Effective Cookiebot Technology</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/elevate-site-engagement-using-the-advanced-capabilities-of-cookiebot-technology/"><u>Elevate Site Engagement Using the Advanced Capabilities of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/elevate-site-functionality-using-cookiebot-technology-boosting-user-engagement-and-seo-success/"><u>Elevate Site Functionality Using Cookiebot Technology: Boosting User Engagement and SEO Success</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/elevate-your-marketing-roi-using-the-advanced-capabilities-of-cookiebot/"><u>Elevate Your Marketing ROI Using the Advanced Capabilities of Cookiebot</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/enhance-your-online-presence-with-cookiebot-solutions/"><u>Enhance Your Online Presence with Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/enhanced-user-experience-with-our-automated-marketing-solutions/"><u>Enhanced User Experience with Our Automated Marketing Solutions</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/exploring-growth-opportunities-for-roboyo-and-abbyy-in-the-evolving-field-of-digital-intelligence/"><u>Exploring Growth Opportunities for Roboyo & ABBYY in the Evolving Field of Digital Intelligence</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/imac-upgrades-for-intels-maximizing-efficiency-through-a-step-by-lapse-approach/"><u>IMac Upgrades for Intels: Maximizing Efficiency Through a Step-by-Lapse Approach</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/in-2024-snapchat-friendly-how-to-use-your-camera-roll-effectively/"><u>In 2024, Snapchat-Friendly How to Use Your Camera Roll Effectively</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-top-10-nubia-z50-ultra-android-sim-unlock-apk-by-drfone-android/"><u>In 2024, Top 10 Nubia Z50 Ultra Android SIM Unlock APK</u></a></li>
-<li><a href="https://win-dash.techidaily.com/latest-amd-rx-480-gpu-drivers-free-download-installation-and-update-instructions-for-gamers/"><u>Latest AMD RX 480 GPU Drivers - Free Download, Installation & Update Instructions for Gamers</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/unlock-your-audio-cues-with-ease-windows-and-os-x-guide-to-srt-for-2024/"><u>Unlock Your Audio Cues with Ease Windows & OS X Guide to SRT for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-best-8-youtube-editing-software-for-linux/"><u>[Updated] Best 8 YouTube Editing Software for Linux</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-chip-efficiency-exposed-unleashing-top-notch-editing-performance/"><u>[Updated] Chip Efficiency Exposed Unleashing Top-Notch Editing Performance</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/2024s-top-free-audio-converter-software-a-comprehensive-list-of-the-best-14-programs/"><u>2024'S Top Free Audio Converter Software: A Comprehensive List of the Best 14 Programs</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/ai-video-editing-software-and-top-recommendations/"><u>AI, Video Editing Software, and Top Recommendations.</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/canon-powershot-sx420-review-42x-optical-zoom-in-a-compact-camera/"><u>Canon PowerShot SX420 Review: 42X Optical Zoom in a Compact Camera</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/convertissez-vos-videos-en-un-clin-doeil-avec-movavi-achetez-votre-licence-standard-des-maintenant/"><u>Convertissez Vos Vidéos en Un Clin D'œil Avec Movavi : Achetez Votre Licence Standard Dès Maintenant</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/discover-the-best-places-to-get-free-ebooks-online-top-17-picks/"><u>Discover the Best Places to Get Free eBooks Online - Top 17 Picks!</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/fixing-astro-a50-microphone-issues-step-by-step-guide/"><u>Fixing Astro A50 Microphone Issues: Step-by-Step Guide</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/free-online-conversion-transforming-asf-files-into-mp3-format-with-movavi/"><u>Free Online Conversion: Transforming ASF Files Into MP3 Format with Movavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/guia-rapida-para-transformar-tu-musica-ape-directamente-en-mp3-gratuito-online-mediante-movavi/"><u>Guía Rápida Para Transformar Tu Música APE Directamente en MP3 Gratuito Online Mediante Movavi</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-3-ways-to-change-location-on-facebook-marketplace-for-lava-yuva-3-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Change Location on Facebook Marketplace for Lava Yuva 3 | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-forgot-iphone-se-2022-backup-password-heres-what-to-do-drfone-by-drfone-ios/"><u>In 2024, Forgot iPhone SE (2022) Backup Password? Heres What to Do | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-preserving-your-nintendo-switch-experiences-a-guide/"><u>In 2024, Preserving Your Nintendo Switch Experiences A Guide</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-the-best-action-hats-motorcycle-cameras-reviewed-and-ranked/"><u>In 2024, The Best Action Hats Motorcycle Cameras Reviewed and Ranked</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/moving-3gp-video-files-online-free-of-charge-with-movavi-omzetten-ingenomheidsbeveiliging/"><u>Moving 3GP Video Files Online Free of Charge with Movavi - Omzetten Ingenomheidsbeveiliging</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/ogg-mp4mp3/"><u>OGG 형식으로 무료 MP4/MP3 변환 - 원형 이식 기능으로 쉽게 수행하세요!</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/top-10-budget-friendly-video-alteration-journeys-explored/"><u>Top 10 Budget-Friendly Video Alteration Journeys Explored</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/top-tips-para-otimizacao-de-gravacoes-obs-em-2024-com-melavvi-guia-definitivo/"><u>Top Tips Para Otimização De Gravações OBS Em 2024 Com Melavvi: Guia Definitivo</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/transforma-sus-videos-ogm-en-mp4-sin-gastos-usando-el-servicio-en-linea-de-movavi-una-opcion-gratuita-y-eficiente/"><u>Transforma Sus Videos OGM en MP4 Sin Gastos Usando El Servicio en Línea De Movavi: Una Opción Gratuita Y Eficiente</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "1. Automated Conversion Tracking: Enhanced with Cookiebot Technology"
-date: 2024-09-24T05:25:06.365Z
-updated: 2024-09-27T23:08:27.398Z
+date: 2024-09-29T23:34:48.584Z
+updated: 2024-10-03T01:42:45.441Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b21b5439f80b1a102ace85a9da59aeae7943c3afff9ae70d9fb6a7745b13a600.jpg
@@ -19,13 +19,6 @@ Transportation & Logistics | Accounts Payable Automation
 
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Rhenus Logistics Accelerates Business Processes with ABBYY IDP
 
 Transportation & Logistics | Accounts Payable Automation 
@@ -37,10 +30,16 @@ Transportation & Logistics | Accounts Payable Automation
 ![Rhenus Assets & Services GmbH & Co. KG](https://static4.abbyy.com/abbyycommedia/15831/rhenus-logo_150x80.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2141688/17094" target="_top" id="2141688">
-  <img src="//a.impactradius-go.com/display-ad/17094-2141688" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141688/17094" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 | Name         | Rhenus Assets & Services GmbH & Co. KG   |
@@ -91,27 +90,27 @@ Integrated middleware handles archiving and sends status reports to the various 
 
 [![FlexiCapture](https://static2.abbyy.com/abbyycommedia/21380/4-flexicapture.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [Read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![Transportation](https://static5.abbyy.com/abbyycommedia/14363/13-transportation.jpg)](https://tools.techidaily.com/abbyy/products/) [Transportation](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [Read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![PDF Version](https://static2.abbyy.com/abbyycommedia/16261/cs-rhenus-360x162-3.jpg)](https://static2.abbyy.com/abbyycommedia/8812/case-study-rhenus-transport-logistics-en.pdf "PDF version") [PDF version](https://static2.abbyy.com/abbyycommedia/8812/case-study-rhenus-transport-logistics-en.pdf "PDF version") 
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [Read more](https://static2.abbyy.com/abbyycommedia/8812/case-study-rhenus-transport-logistics-en.pdf "PDF version") 
 
@@ -122,6 +121,13 @@ Share  True ?  : ""
 [More about ABBYY](https://tools.techidaily.com/abbyy/products/) 
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Ready to talk to an expert?
 
@@ -144,24 +150,16 @@ We'd love to help you along your automation journey.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-cost-effective-obs-tuning-steps/"><u>[New] 2024 Approved Cost-Effective OBS Tuning Steps</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-influencers-insight-quick-pathways-to-instagram-fame-with-our-ultimate-list-of-15-tips/"><u>[Updated] Influencer's Insight Quick Pathways to Instagram Fame with Our Ultimate List of 15 Tips</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/6-ultimate-free-film-editor-applications-no-cost-options/"><u>6 Ultimate Free Film Editor Applications - No Cost Options</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/movavi-ogv-mov/"><u>免費線上服務：Movavi提供的 OGV 和 MOV 影片專家轉換器</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/aiff-mov-movavi/"><u>網路上自助無成本 AIFF 到 MOV 格式轉換 - 使用 Movavi 工具</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/a-guide-motorola-moto-g-stylus-5g-2023-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>A Guide Motorola Moto G Stylus 5G (2023) Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cambiar-formatos-de-archivo-sin-coste-convertir-pgm-a-imagenes-bitmap-libremente-con-movavi/"><u>Cambiar Formatos De Archivo Sin Coste - Convertir PGM a Imagenes Bitmap Libremente Con Movavi</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/comprehensive-analysis-of-garmin-vivosmart-4-features-including-body-battery-and-stress-tracking/"><u>Comprehensive Analysis of Garmin Vivosmart 4: Features Including Body Battery & Stress Tracking</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/easy-methods-for-linking-up-with-a-ps4-gaming-joystick/"><u>Easy Methods for Linking Up With a PS4 Gaming Joystick</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/gratuit-konverteren-van-mp3-naar-aac-onlinereptiel-met-movavi/"><u>Gratuit Konverteren Van MP3 Naar AAC - Onlinereptiel Met Movavi</u></a></li>
-<li><a href="https://extra-information.techidaily.com/how-to-do-live-streaming-with-periscope/"><u>How to Do Live Streaming with Periscope</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-oppo-a1x-5g-to-pc-drfone-by-drfone-android/"><u>How to Screen Mirroring Oppo A1x 5G to PC? | Dr.fone</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/in-2024-the-ultimate-guide-to-ipad-time-lapse-filmmaking/"><u>In 2024, The Ultimate Guide to iPad Time-Lapse Filmmaking</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/1726227583001-movavi-video-editor/"><u>Movavi Video Editor: 高效下载与使用指南</u></a></li>
-<li><a href="https://win-blog.techidaily.com/quick-solutions-resolving-rdr2-not-opening-up-errors-on-pc/"><u>Quick Solutions: Resolving 'RDR2 Not Opening Up' Errors on PC</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/top-18-editores-de-peliculas-sin-costo-para-windows-11-8-y-7-guia-completa/"><u>Top 18 Editores De Películas Sin Costo Para Windows 11, 8 Y 7: Guía Completa</u></a></li>
-<li><a href="https://techidaily.com/undelete-lost-music-from-itel-by-fonelab-android-recover-music/"><u>Undelete lost music from Itel</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/1726222869124-wmvgif-movavi/"><u>オンラインで無料WMVからGIFへの高速変換 - Movaviサポート</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/waveaac-movavi/"><u>オンラインで自由に利用可能なWAVEファイルからAACへの変換 - Movavi</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/controlling-win11-display-extensiveness/"><u>Controlling Win11 Display Extensiveness</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/directinput-dll-trouble-heres-how-to-fix-the-common-microsoft-error/"><u>DirectInput Dll Trouble? Here's How to Fix the Common Microsoft Error</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-honor-magic-vs-2-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Honor Magic Vs 2 | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-files-after-iphone-factory-reset-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Recover Files after iPhone Factory Reset? | Stellar</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/leverage-cookiebot-technology-for-advanced-site-insights-and-lead-generation/"><u>Leverage Cookiebot Technology for Advanced Site Insights & Lead Generation</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/leverage-cookiebot-technology-for-improved-analytics-and-personalized-engagement-on-your-website/"><u>Leverage Cookiebot Technology for Improved Analytics and Personalized Engagement on Your Website</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/neue-leitungswelle-bei-abbeyy-holt-zwei-berufung-von-it-fachleuten-ins-board-of-directors/"><u>Neue Leitungswelle Bei ABBEYY Holt Zwei: Berufung Von IT-Fachleuten Ins Board of Directors</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/smart-automation-losungen-fur-die-versicherungswirtschaft/"><u>Smart Automation Lösungen Für Die Versicherungswirtschaft</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/smart-document-handling-examples-in-transit-operations-and-distribution-management/"><u>Smart Document Handling Examples in Transit Operations and Distribution Management</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/unleashing-the-full-power-of-apple-podcasts-downloads/"><u>Unleashing the Full Power of Apple Podcasts Downloads</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/walkthrough-to-securing-lower-cost-on-microsoft-products-through-student-savings/"><u>Walkthrough to Securing Lower Cost on Microsoft Products Through Student Savings.</u></a></li>
 </ul></div>
 

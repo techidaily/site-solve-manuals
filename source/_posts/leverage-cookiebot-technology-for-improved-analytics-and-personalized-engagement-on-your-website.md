@@ -1,7 +1,7 @@
 ---
 title: Leverage Cookiebot Technology for Improved Analytics and Personalized Engagement on Your Website
-date: 2024-09-26T22:49:41.081Z
-updated: 2024-09-28T01:05:47.381Z
+date: 2024-09-28T12:23:53.728Z
+updated: 2024-10-03T13:02:30.094Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7b8336f5215e637e754158b1429078ceab1fa3c341406711596b3493655e21bb.jpg
@@ -19,6 +19,13 @@ May 14, 2018
 
 It’s a special ops issue of Mobile Monday as we show you how you can record your phone calls on your iPhone or Android device. Then we’ll share a business card via iMessage and take up jogging to stay fit.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **iOS Tip: How to Record a Phone Call**
 
 Sometimes you may want to record your telephone conversation and save it as an audio file for future use. You may need this feature, for example, if you regularly interview people over the phone. You will surely have discovered by now that iOS does not offer any standard tools for recording your phone calls. Luckily, there exist third-party solutions that will do the job. Today, we’ll tell you about two of them (alas, they are not free and cannot be installed locally).
@@ -26,13 +33,6 @@ Sometimes you may want to record your telephone conversation and save it as an a
 * **TapeACall**
 
 ![iOS Record Phone Call TapeACall](https://static1.abbyy.com/abbyycommedia/26257/tapecall.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Using [TapeACall](https://itunes.apple.com/us/app/tapeacall-lite-call-recorder/id573751328), you can record incoming and outgoing phone calls of any length. Once the recording starts, you can monitor the process and keep it running in the background. You can go back to the app at any time by tapping its notification bubble. Recorded calls are saved to audio files on your device and can be shared with others via e-mail, Dropbox, Google Drive, Evernote, Twitter or Facebook. One word of caution, though: after the app was updated for iOS 11, it started to get bad reviews, so please be on the alert when trying it out, particularly when it comes to activating your free trial.
 
@@ -43,10 +43,10 @@ Using [TapeACall](https://itunes.apple.com/us/app/tapeacall-lite-call-recorder/i
 [Callwrite](https://callwrite.ru/)is a call recording service originating from Russia. To record a call, you simply need to add the service as one of the participants. A couple of minutes after the call is ended, you will get a notification saying that the audio of the call is now available to you. The audio file will be stored for 72 hours. To listen to the call again or to download it onto your device as an MP3 file, you must log in to your account select a plan, and pay for the service.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528689/16446" target="_top" id="1528689">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528689" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528689/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Android Tip: How to Record a Phone Call**
@@ -57,18 +57,18 @@ What makes Android so versatile is the infinite number of apps on Google Play th
 
 ![Automatic Call Recorder app android](https://static1.abbyy.com/abbyycommedia/26259/automatic-call-recorder-android.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Besides saving your calls as audio files locally, you can also save them to Dropbox or Google Drive. This is handy if you want to be able to access these files from other devices as well. You can save to 3GP, AMR or WAV.
 
 1. **Google Voice**
 
 ![google voice record talk android](https://static1.abbyy.com/abbyycommedia/26260/google-voice.png)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Be warned: Google Voice is only available within the US. The service allows you to record incoming calls. It’s free of charge, but you will need to register with a Google account.
 
@@ -81,6 +81,13 @@ Unlike the other apps in this review, [Cube Call Recorder ACR](https://play.goog
 By default, Cube Call Recorder ACR will record all calls, but you can add phone numbers to an ignore list.
 
 Please remember to inform the other party that you’re going to record the call.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **ABBYY Tip: iMessage for BCR**
 
@@ -100,13 +107,6 @@ Now when you want to send a business card using iMessage:
 2. Create a new business card or select an existing one from the **My cards** list.
 
 The addressee will receive your card in VCF format and will be able to save it directly to their **Contacts**. Nifty!
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **App of the week: Does Not Commute**
 
@@ -193,10 +193,10 @@ If you are too bored jogging on your own, find some company or join a jogging gr
 ![abbyy sport jogging healthy life](https://static1.abbyy.com/abbyycommedia/26265/legs.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 You may get an extra kick out of tracking your progress and analyzing your results. There are lots of mobile apps that will help you keep a diary and gather meaningful statistics.
@@ -275,18 +275,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/updated-cross-platform-hulu-playback-mastery-a-how-to-guide-for-2024/"><u>[Updated] Cross-Platform Hulu Playback Mastery - A How-To Guide for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-5-best-title-makers-online/"><u>2024 Approved 5 Best Title Makers Online</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/5-ways-to-reset-tecno-pova-5-pro-without-volume-buttons-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Reset Tecno Pova 5 Pro Without Volume Buttons | Dr.fone</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/boost-your-shipping-efficiency-access-our-essential-downloaded-checklist-now/"><u>Boost Your Shipping Efficiency: Access Our Essential Downloaded Checklist Now!</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/boost-your-traffic-with-cookiebots-advanced-tracking-solutions/"><u>Boost Your Traffic with Cookiebot's Advanced Tracking Solutions</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/convert-your-scanned-documents-and-books-into-editable-text-with-iphone-scanner-app/"><u>Convert Your Scanned Documents & Books Into Editable Text with iPhone Scanner App</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-fueled-solutions-enhancing-user-experience-with-smart-data-tracking/"><u>Cookiebot-Fueled Solutions: Enhancing User Experience with Smart Data Tracking</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-the-essential-ai-driven-tool-enhancing-your-websites-seo/"><u>Cookiebot: The Essential AI-Driven Tool Enhancing Your Website's SEO</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/from-concepts-to-shares-your-guide-to-metaverse-meme-creation-for-2024/"><u>From Concepts to Shares Your Guide to Metaverse Meme Creation for 2024</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-honor-100-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Honor 100 | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/maximizing-visibility-how-to-upload-videos-to-instagram-desktop-for-2024/"><u>Maximizing Visibility How to Upload Videos to Instagram Desktop for 2024</u></a></li>
-<li><a href="https://location-social.techidaily.com/proven-ways-in-how-to-hide-location-on-life360-for-oppo-reno-10-5g-drfone-by-drfone-virtual-android/"><u>Proven Ways in How To Hide Location on Life360 For Oppo Reno 10 5G | Dr.fone</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/proven-ways-to-fix-there-was-a-problem-parsing-the-package-on-oppo-find-n3-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Proven Ways to Fix There Was A Problem Parsing the Package on Oppo Find N3 | Dr.fone</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-tailoring-blends-for-stunning-composite-videos-for-2024/"><u>[New] Tailoring Blends for Stunning Composite Videos for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/solved-black-ops-cold-war-stuck-on-compiling-shaders/"><u>[SOLVED] Black Ops Cold War Stuck on Compiling Shaders</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/ai-video-editing-software-and-top-recommendations/"><u>AI, Video Editing Software, and Top Recommendations.</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/conversione-gratuita-da-avi-a-flv-su-internet-scopri-come-usare-movavi-per-la-tua-conversione-senza-costi-aggiuntivi/"><u>Conversione Gratuita Da AVI a FLV Su Internet - Scopri Come Usare Movavi per La Tua Conversione Senza Costi Aggiuntivi</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/demystifying-the-inflexibility-in-gpt-customization/"><u>Demystifying the Inflexibility in GPT Customization</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/effortless-transformation-from-mts-to-mp4-files-using-top-video-converters/"><u>Effortless Transformation From MTS to MP4 Files Using Top Video Converters</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/excelente-software-gratuito-de-captura-de-tela-movavi-compativel-com-pcs-e-notebooks-sem-estresse-ou-custo/"><u>Excelente Software Gratuito De Captura De Tela - MovaVi, Compatível Com PCs E Notebooks Sem Estresse Ou Custo</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/free-conversion-change-flv-files-into-swf-format-with-moveavey-do-it-online/"><u>Free Conversion: Change FLV Files Into SWF Format with Moveavey - Do It Online</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/free-online-conversion-transforming-asf-files-into-mp3-format-with-movavi/"><u>Free Online Conversion: Transforming ASF Files Into MP3 Format with Movavi</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-itel-a70-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On Itel A70? | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-change-your-apple-id-password-on-your-iphone-xr-drfone-by-drfone-ios/"><u>How To Change Your Apple ID Password On your iPhone XR | Dr.fone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/how-to-enjoy-barcelona-2024-olympiad-from-home-a-comprehensive-guide-to-live-streaming/"><u>How to Enjoy Barcelona 2024 Olympiad From Home - A Comprehensive Guide to Live Streaming</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-examining-updates-the-2023-samsung-bd-j5900/"><u>In 2024, Examining Updates The 2023 Samsung BD-J5900</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-samsung-galaxy-a23-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Pokémon Go Cooldown Chart On Samsung Galaxy A23 5G | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-blueprint-for-stellar-unboxing-videos-on-tiktok/"><u>In 2024, The Blueprint for Stellar Unboxing Videos on TikTok</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/moving-3gp-video-files-online-free-of-charge-with-movavi-omzetten-ingenomheidsbeveiliging/"><u>Moving 3GP Video Files Online Free of Charge with Movavi - Omzetten Ingenomheidsbeveiliging</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/ogg-mp4mp3/"><u>OGG 형식으로 무료 MP4/MP3 변환 - 원형 이식 기능으로 쉽게 수행하세요!</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/top-apps-and-online-tools-to-track-realme-c55-phone-withwithout-imei-number-by-drfone-android/"><u>Top Apps and Online Tools To Track Realme C55 Phone With/Without IMEI Number</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/zakonove-pripravene-pruvodectvi-jak-snadno-pokusit-sebe-oblasti-obrazovky-s-obs-movavi/"><u>Zákonové Přípravené Průvodectví Jak Snadno Pokusit Sebe Oblasti Obrazovky S OBS - Movavi</u></a></li>
 </ul></div>
 

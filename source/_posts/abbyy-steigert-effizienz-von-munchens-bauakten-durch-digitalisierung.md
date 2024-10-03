@@ -1,7 +1,7 @@
 ---
 title: ABBYY Steigert Effizienz Von Münchens Bauakten Durch Digitalisierung
-date: 2024-09-22T07:43:18.734Z
-updated: 2024-09-27T20:30:59.277Z
+date: 2024-09-28T04:00:40.734Z
+updated: 2024-10-03T03:03:34.659Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/90c049846794e5aed031591412d4826aac7c7bd6532c5bd0d695b676cbba88c9.jpg
@@ -20,10 +20,10 @@ Government | Document Classification
 [Zurück zu den Kundenreferenzen](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Stadt München setzt bei der Digitalisierung von Bauakten auf ABBYY
@@ -31,10 +31,10 @@ Government | Document Classification
 Behörden und öffentlicher Sektor | Dokumentenklassifizierung 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Sind Sie bereit, mit einem Experten zu sprechen?
@@ -58,21 +58,20 @@ Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-best-screen-reporter-toolkit-for-youtube-streamers/"><u>[New] In 2024, Best Screen Reporter Toolkit for YouTube Streamers</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-anonymizing-videos-tips-for-keeping-personal-data-hidden-for-2024/"><u>[Updated] Anonymizing Videos Tips for Keeping Personal Data Hidden for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-tunefab-vs-competitors-screen-recorder-showdown/"><u>[Updated] In 2024, Tunefab vs Competitors Screen Recorder Showdown</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/abbyy-revamps-sales-department-by-promoting-joe-rayfield-to-vice-presidency/"><u>ABBYY Revamps Sales Department by Promoting Joe Rayfield to Vice Presidency</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/abbyy-unveils-trend-more-than-half-of-millennials-prefer-smartphones-for-administrative-tasks-business-adaptation-at-just-35-latest-news-analysis/"><u>ABBYY Unveils Trend: More Than Half of Millennials Prefer Smartphones for Administrative Tasks; Business Adaptation at Just 35% - Latest News Analysis</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/abbyys-q3-2018-insights-reveal-surge-in-demand-for-advanced-document-analysis/"><u>ABBYY's Q3 2018 Insights Reveal Surge in Demand for Advanced Document Analysis</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/adaptability/"><u>Adaptability</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-infinix-note-30-5g-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Infinix Note 30 5G | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-nest-audio-evaluation-the-ultimate-sound-experience-for-audiophiles/"><u>In-Depth Nest Audio Evaluation: The Ultimate Sound Experience for Audiophiles</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/realme-12-proplus-5g-stuck-on-screen-finding-solutions-for-stuck-on-boot-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Realme 12 Pro+ 5G Stuck on Screen – Finding Solutions For Stuck on Boot | Dr.fone</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/speedy-techniques-for-converting-srt-files-into-text-format/"><u>Speedy Techniques for Converting SRT Files Into Text Format</u></a></li>
-<li><a href="https://games-able.techidaily.com/tech-harmony-an-efficient-way-to-join-controllers-and-console/"><u>Tech Harmony: An Efficient Way to Join Controllers and Console</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/transforming-supply-chain-efficiency-through-ai-powered-digitally-integrated-transportation-solutions-perspectives-from-abbyy-experts/"><u>Transforming Supply Chain Efficiency Through AI-Powered, Digitally Integrated Transportation Solutions - Perspectives From ABBYY Experts</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/understanding-web-pages-key-elements-and-optimization-strategies/"><u>Understanding Web Pages: Key Elements and Optimization Strategies</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/unlisting-youtube-videos-a-guide-to-non-indexable-content-for-2024/"><u>Unlisting YouTube Videos A Guide to Non-Indexable Content for 2024</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/webinar-invitation-strategies-for-safeguarding-finances-from-fraud-and-money-laundering/"><u>Webinar Invitation: Strategies for Safeguarding Finances From Fraud & Money Laundering</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-decoding-the-youtube-view-number-for-profitability/"><u>[Updated] 2024 Approved Decoding the YouTube View Number for Profitability</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/wav-to-m4b-movavi/"><u>安心で簡単な無料オンラインWAV to M4Bコンバーター – Movavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cambia-archivos-de-sonido-ogg-a-formato-m4a-sin-coste-con-herramientas-en-linea-ejemplos-y-guias/"><u>Cambia Archivos De Sonido OGG a Formato M4A Sin Coste Con Herramientas en Línea - Ejemplos Y Guías</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/converti-file-mp4-in-formato-flac-on-line-e-gratuito-con-movavi/"><u>Converti File MP4 in Formato FLAC On-Line E Gratuito Con Movavi</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/easily-unlock-your-samsung-galaxy-m14-5g-device-sim-by-drfone-android/"><u>Easily Unlock Your Samsung Galaxy M14 5G Device SIM</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-vivo-x100-drfone-by-drfone-android/"><u>How to Screen Mirroring Vivo X100? | Dr.fone</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-how-to-spy-on-text-messages-from-computer-and-apple-iphone-12-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Spy on Text Messages from Computer & Apple iPhone 12 Pro | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/laughs-lab-innovator-for-2024/"><u>Laughs Lab Innovator for 2024</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/movavi-gravar-mp3-e-ogg-offline-gratuito-facil-de-usar-e-rapido/"><u>Movavi: Gravar MP3 E OGG Offline Gratuito - Fácil De Usar E Rápido</u></a></li>
+<li><a href="https://win-answers.techidaily.com/movmp4and/"><u>MOVファイルをMP4形式でコンバート&最適化: スマートなサイズ圧縮手段</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/passos-simples-para-fazer-um-montagem-de-imagens-no-seu-iphone-as-opcoes-mais-eficientes/"><u>Passos Simples Para Fazer Um Montagem De Imagens No Seu iPhone – As Opções Mais Eficientes</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/riproduzione-gratuita-di-video-3g2-in-formato-mpeg-con-movavi-converter/"><u>Riproduzione Gratuita Di Video 3G2 in Formato MPEG Con Movavi Converter</u></a></li>
+<li><a href="https://driver-install.techidaily.com/speedy-and-simple-driver-optimization-on-nvidia-gpus/"><u>Speedy and Simple Driver Optimization on Nvidia GPUs</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-blueprint-of-trust-unveiling-facebooks-new-policies-hub/"><u>The Blueprint of Trust: Unveiling Facebook’s New Policies Hub</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/pcxjpeg-movavi/"><u>オンラインで手軽な無料変換: PCX画像をJPEGへ - Movaviの使い方</u></a></li>
 </ul></div>
 

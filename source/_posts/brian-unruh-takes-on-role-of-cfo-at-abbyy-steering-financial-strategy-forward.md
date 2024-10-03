@@ -1,7 +1,7 @@
 ---
 title: Brian Unruh Takes on Role of CFO at ABBYY, Steering Financial Strategy Forward
-date: 2024-09-21T05:18:00.565Z
-updated: 2024-09-27T18:32:08.378Z
+date: 2024-09-28T23:09:25.359Z
+updated: 2024-10-03T11:49:31.519Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a5e56b77e4674926b57f0f9161817ac7d31c24b7d1008a2fd7cf38de6f5c41cb.jpg
@@ -34,10 +34,10 @@ _Brian Unruh, Chief Financial Officer at ABBYY_
 For more information about ABBYY AI-powered intelligent automation solutions, visit [www.abbyy.com](https://tools.techidaily.com/abbyy/products/).
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### About ABBYY
@@ -47,10 +47,10 @@ ABBYY puts your information to work. We combine innovation and experience to tra
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies and may not be used without consent of its respective owners.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528703/16446" target="_top" id="1528703">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528703" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528703/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### ABBYY Editorial Contact
@@ -58,16 +58,10 @@ ABBYY can either be a registered trademark or a trademark and can also be a logo
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
 <!-- affiliate ads begin -->
-<span id="1982596">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Gina Ray
@@ -94,17 +88,17 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/updated-2024-approved-from-capture-to-share-expert-insights-into-screen-recording-software/"><u>[Updated] 2024 Approved From Capture to Share Expert Insights Into Screen Recording Software</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-best-16-youtube-intro-makers-to-bring-you-more-views-for-2024/"><u>[Updated] Best 16 YouTube Intro Makers to Bring You More Views for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-sound-enhancing-fb-video-posts-a-comprehensive-guide/"><u>[Updated] In 2024, Sound-Enhancing FB Video Posts A Comprehensive Guide</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-visionary-6-eco-friendly-minecraft-mansions/"><u>[Updated] In 2024, Visionary 6 Eco-Friendly Minecraft Mansions</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-pixels-to-populations-best-windowsmac-software-conversion/"><u>[Updated] Pixels to Populations Best Windows/Mac Software Conversion</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-pro-tips-that-make-every-iphone-landscape-stand-out/"><u>[Updated] Pro Tips That Make Every iPhone Landscape Stand Out</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-nubia-red-magic-8s-pro-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Nubia Red Magic 8S Pro? | Dr.fone</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/seamless-pdf-conversion-and-text-extraction-using-abbyys-powerful-ocr-software-development-kit/"><u>Seamless PDF Conversion & Text Extraction Using ABBYY's Powerful OCR Software Development Kit</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/techtarget-predicts-soaring-rise-workforce-of-software-robots-to-surge-by-half-in-coming-years/"><u>TechTarget Predicts Soaring Rise: Workforce of Software Robots to Surge by Half in Coming Years</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/top-ranked-transpo-cost-control-firm-accelerates-bill-approvals-via-intelligent-data-systems/"><u>Top-Ranked Transpo Cost Control Firm Accelerates Bill Approvals via Intelligent Data Systems</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/unlocking-advanced-features-with-cookiebot-technology-integration/"><u>Unlocking Advanced Features with Cookiebot Technology Integration</u></a></li>
-<li><a href="https://win-blog.techidaily.com/ts-flv-movavid/"><u>오피스에서 원자비로 TS 영상을 FLV로 전환 - MovaVid</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-decoding-the-metrics-for-youtube-video-hierarchy/"><u>[New] 2024 Approved Decoding the Metrics for YouTube Video Hierarchy</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-mastering-mac-streamnetflix-with-screen-capture/"><u>[New] Mastering Mac StreamNetflix with Screen Capture</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-master-the-switch-linking-instagram-with-facebook/"><u>[Updated] Master the Switch Linking Instagram with Facebook</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-premium-tools-for-saving-your-live-video-memories/"><u>[Updated] Premium Tools for Saving Your Live Video Memories</u></a></li>
+<li><a href="https://fox-info.techidaily.com/best-8-free-4k-video-player-software-for-windows-pcandmac-for-2024/"><u>Best 8 Free 4K Video Player Software for Windows PC&Mac for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-samsung-galaxy-s23-tactical-edition-by-phone-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Samsung Galaxy S23 Tactical Edition by Phone Number | Dr.fone</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/online-free-solutions-for-transforming-dts-format-into-multiple-audio-formats/"><u>Online Free Solutions for Transforming DTS Format Into Multiple Audio Formats</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/top-14-archivos-online-de-descarga-gratuita-y-premium-para-diseno-web-2022/"><u>Top 14 Archivos Online De Descarga Gratuita Y Premium Para Diseño Web – 2022</u></a></li>
+<li><a href="https://article-tips.techidaily.com/top-tablets-exclusively-designed-for-amateur-and-professional-photographers/"><u>Top Tablets Exclusively Designed for Amateur and Professional Photographers</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/transfer-data-seamlessly-from-ios-to-windows-11-explore-the-top-7-mirroring-solutions-tips-from-movavi/"><u>Transfer Data Seamlessly From iOS to Windows 11: Explore the Top 7 Mirroring Solutions - Tips From Movavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/online-wma-to-flac-movavi/"><u>우아하고 응답성 있는 Online WMA to FLAC 전환 서비스 – Movavi가 제공합니다</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/mxfmp4movavi/"><u>コピーレスオンラインで無料MXFをMP4に変換：Movaviの解決策</u></a></li>
 </ul></div>
 

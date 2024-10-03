@@ -1,7 +1,7 @@
 ---
 title: Enhance Your Digital Experience with Memoji Animation in FaceTime, Advanced Research Scanners, and Effective Dog Training Tips – Discover What's New on ABBYY Blog
-date: 2024-09-26T02:42:07.994Z
-updated: 2024-09-28T06:19:49.158Z
+date: 2024-09-27T09:20:33.498Z
+updated: 2024-10-02T20:10:41.101Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8f59b16f9ed7024a23cc6f18f766904b6f418e4c5b8df6a84d93cf668a943550.jpg
@@ -44,10 +44,10 @@ Here’s a memoji we ended up with after monkeying around with the noir filter:
 ![filters in animoji](https://static1.abbyy.com/abbyycommedia/26703/danya-monkey.jpeg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Android Tip: Sending Out GIFs with AR Emojis
@@ -70,19 +70,20 @@ FineScanner successfully captured 600+ pages of printed tables, and all of the p
 
 ![abbyy finescanner scanning documents](https://static1.abbyy.com/abbyycommedia/28714/fs2.png) Captured data in Excel
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 For a detailed step-by-step description of the data capture stage of the project, please see [this page](https://www.meredithpaker.com/updates/digitizingdata).
 
 <!-- affiliate ads begin -->
-<span id="1630055">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **App of the Week: Dogo**
@@ -94,10 +95,10 @@ You can then film your dog doing a new trick and submit the video via the app to
 ![good dog](https://static1.abbyy.com/abbyycommedia/26708/dogo-en3.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 The app is available on [iOS](https://itunes.apple.com/ru/app/id1153294767) and [Android](https://play.google.com/store/apps/details?id=app.dogo.com.dogo%5Fandroid). That’s all from us for today. See you next Monday!
@@ -105,13 +106,6 @@ The app is available on [iOS](https://itunes.apple.com/ru/app/id1153294767) and 
 P.S. You can find the previous issue of this newsletter here.
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -177,17 +171,16 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-focus-and-frame-essential-iphone-tools-for-cropping-photos/"><u>[New] 2024 Approved Focus & Frame Essential iPhone Tools for Cropping Photos</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-detailed-guide-to-using-firefoxs-picture-in-picture-mode-for-2024/"><u>[New] Detailed Guide to Using Firefox's Picture-in-Picture Mode for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-free-srt-translator-showdown-the-best-eight-in-ranking/"><u>[New] Free SRT Translator Showdown The Best Eight in Ranking</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-iphone-night-photography-tips-take-night-photos-with-iphone/"><u>[New] IPhone Night Photography Tips Take Night Photos with iPhone</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-navigating-cross-platform-social-media-fb-vids-on-whatsapp/"><u>2024 Approved Navigating Cross-Platform Social Media FB Vids on WhatsApp</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/1726223221348-3gppwmv-movavi/"><u>無料でスムーズな3GPPへのWMVビデオ変換方法 - Movaviユーザガイド</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/bypassing-google-account-with-vnrom-bypass-for-oppo-a59-5g-by-drfone-android/"><u>Bypassing Google Account With vnROM Bypass For Oppo A59 5G</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/comprehensive-movavi-photo-editor-review-best-buy-options/"><u>Comprehensive Movavi Photo Editor Review - Best Buy Options</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/convertisseur-gratuit-en-ligne-pour-fichier-wma-au-format-mov-movavi/"><u>Convertisseur Gratuit en Ligne Pour Fichier WMA Au Format MOV - Movavi</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-reset-a-locked-samsung-galaxy-f34-5g-phone-by-drfone-android/"><u>How to Reset a Locked Samsung Galaxy F34 5G Phone</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/maximizing-performance-ideal-obs-setup-tips-for-entry-level-desktops-and-laptops/"><u>Maximizing Performance: Ideal OBS Setup Tips for Entry-Level Desktops and Laptops</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/ultimate-guide-the-13-premier-recording-tools-for-your-pcs-webcam-on-windows/"><u>Ultimate Guide: The 13 Premier Recording Tools for Your PC's Webcam on Windows</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-expert-insights-where-to-invest-in-youtube-creator-revenue/"><u>[New] 2024 Approved Expert Insights Where to Invest in YouTube Creator Revenue</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-top-12-capture-providers-never-stop/"><u>[Updated] 2024 Approved Top 12 Capture Providers, Never Stop</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-harnessing-the-full-spectrum-of-vsco-filters/"><u>2024 Approved Harnessing the Full Spectrum of VSCO Filters</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-unveiling-top-freefire-strategies-on-youtube/"><u>2024 Approved Unveiling Top FreeFire Strategies on YouTube</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/abbyy-launches-cutting-edge-research-facility-in-india/"><u>ABBYY Launches Cutting-Edge Research Facility in India</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/ai-driven-triumph-abbyy-achieves-60-revenue-surge-accolades-from-idc-marketscape/"><u>AI-Driven Triumph: ABBYY Achieves 60% Revenue Surge - Accolades From IDC MarketScape</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/automated-consent-management-how-cookiebot-streamlines-compliance/"><u>Automated Consent Management: How Cookiebot Streamlines Compliance</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/automation-projects-aiming-to-reduce-employee-burnout-study-insights/"><u>Automation Projects Aiming to Reduce Employee Burnout - Study Insights</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-zte-blade-a73-5g-frp-in-3-different-ways-by-drfone-android/"><u>In 2024, How To Bypass ZTE Blade A73 5G FRP In 3 Different Ways</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-simplify-your-life-with-these-tips-on-free-youtube-transcription/"><u>In 2024, Simplify Your Life with These Tips on Free YouTube Transcription</u></a></li>
+<li><a href="https://techidaily.com/remove-samsung-unlock-screen-by-drfone-android-unlock-android-unlock/"><u>Remove Samsung unlock screen</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Onboarding Ist Entscheidend: Erkennen Sie Die Risiken, Bei Denen Fast Jeder Unternehmen Mit Dem Verlust Von Interessenten Rechnen Sollte."
-date: 2024-09-22T23:37:09.773Z
-updated: 2024-09-27T18:13:27.680Z
+date: 2024-09-30T18:31:10.934Z
+updated: 2024-10-02T20:30:27.167Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e0be33554f7e808cbb9defb5e44d8742371f9f0a41b00b3f13329dba336fbddc.png
@@ -24,10 +24,10 @@ _Zeitaufwändige und komplexe Prozesse als Hauptgründe für hohe Abbruchraten_
 Eine aktuelle Studie des auf intelligente Automatisierung spezialisierten Unternehmens ABBYY deckt auf, dass erschreckende 94% der deutschen Unternehmen beim Kunden-Onboarding eine Form des Abbruchs erleben – einige sogar bis zu 40% und mehr. Ein ineffizientes digitales Onboarding - also die Online-Anmeldung für ein Konto oder eine Dienstleistung - kann dazu führen, dass Unternehmen einen Interessenten verlieren, bevor er überhaupt Kunde wird, was zu Umsatzeinbußen in Milliardenhöhe führt. Gerade in der aktuellen geopolitischen Situation, die eine Rezession und eine anhaltend hohe Inflation mit sich gebracht hat, können sich Unternehmen das nicht mehr leisten. Die Ergebnisse der Studie verdeutlichen, wie wichtig es ist, dass Onboarding-Prozesse effizient, intuitiv und mit dem richtigen Maß an sowohl persönlicher Kommunikation als auch intelligenter Automatisierung gestaltet werden müssen, um den bestmöglichen Erfolg zu erzielen.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Faktoren für das Abspringen der Kunden während des Onboarding-Prozesses
@@ -39,10 +39,10 @@ Dies wirkt sich nicht nur auf den Umsatz aus, sondern auch auf die Meinung der K
 ![infographic-onboarding-survey-de](https://static1.abbyy.com/abbyycommedia/36367/infographic-onboarding-survey-de.jpg?width=900&height=1242)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Obwohl sich die Unternehmen der negativen Folgen eines schlechten Onboardings bewusst sind, wie zum Beispiel versäumte Geschäftschancen (32%), das Verlieren potenzieller Kunden an die Konkurrenz (33%) oder Schwierigkeiten bei der Gewinnung neuer Kunden (29%), nehmen sie dies stillschweigend in Kauf. Zwei von drei Befragten halten den Onboarding-Prozess zwar für sehr wichtig (45%) oder immerhin einigermaßen wichtig (21%), aber es besteht bei vielen noch ein großer Verbesserungsbedarf beim tatsächlichen Prozess.
@@ -64,22 +64,15 @@ _Markoss Martina, VP Next Generation Platforms bei ABBYY_
 
 Der neue ABBYY State of Intelligent Automation Report gibt Ihnen weitere Einblicke in die Treiber und Herausforderungen des Onboardings und zeigt, wie Sie die Erwartungen Ihrer Kunden besser erfüllen können. Lesen Sie den ausführlichen [Report hier](https://tools.techidaily.com/abbyy/products/).
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Über die Studie
 
 Diese Studie wurde von Sapio Research im September 2022 im Auftrag von ABBYY durchgeführt. Die Umfrage wurde unter 1.623 Entscheidungsträgern in Großbritannien, den USA, Frankreich, Deutschland und Japan durchgeführt.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
+  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Über ABBYY
@@ -91,6 +84,13 @@ ABBYY unterstützt mehr als 10.000 Unternehmen weltweit, darunter viele Fortune-
 ABBYY ist ein globales Unternehmen mit Sitz in den USA und Niederlassungen in 14 Ländern. Weitere Informationen finden Sie unter [https://www.abbyy.com/de.](https://tools.techidaily.com/abbyy/products/)
 
 ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeichen von ABBYY Software Ltd. Alle anderen Warenzeichen sind Eigentum ihrer jeweiligen Inhaber. 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### ABBYY Pressekontakt
 
@@ -119,19 +119,22 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-top-choice-for-fb-vids-mp4-download-toolkit/"><u>[New] In 2024, Top Choice for FB Vids – MP4 Download Toolkit</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-current-innovations-in-vr-gear-for-2024/"><u>[Updated] Current Innovations in VR Gear for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-elevated-visuals-selecting-the-right-card-for-2024/"><u>[Updated] Elevated Visuals Selecting the Right Card for 2024</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/abbyy-augmenter-les-capacites-de-finereader-14-pour-une-compatibilite-amelioree-avec-les-fichiers-pdf/"><u>ABBYY Augmenter Les Capacités De FineReader 14 Pour Une Compatibilité Améliorée Avec Les Fichiers PDF</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/abbyy-finereader-powers-preservation-safeguarding-over-4-million-pages-from-latvias-national-library-across-20-languages/"><u>ABBYY FineReader Powers Preservation: Safeguarding Over 4 Million Pages From Latvia's National Library Across 20 Languages</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/abbyy-secures-soc-2-type-2-accreditation-for-enhanced-data-security/"><u>ABBYY Secures SOC 2 Type 2 Accreditation for Enhanced Data Security</u></a></li>
-<li><a href="https://common-error.techidaily.com/bluetooth-trouble-connecting-your-keyboard-to-your-pc-made-simple/"><u>Bluetooth Trouble? Connecting Your Keyboard to Your PC Made Simple</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/budget-desktop-encoder-hacks-and-tips-for-2024/"><u>Budget Desktop Encoder Hacks and Tips for 2024</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-vivo-t2-pro-5g-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Vivo T2 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-infinix-hot-40-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Infinix Hot 40 Pro? | Dr.fone</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/ultimate-selection-the-leading-smart-glasses-innovations-unveiled/"><u>Ultimate Selection: The Leading Smart Glasses Innovations Unveiled</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/unlock-website-insights-and-improve-analytics-with-cookiebots-advanced-marketing-tools/"><u>Unlock Website Insights and Improve Analytics with Cookiebot's Advanced Marketing Tools</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/upgrade-your-iphones-productivity-quickscanandocr-for-seamless-pdf-and-jpg-transformation-into-editable-text/"><u>Upgrade Your iPhone's Productivity: QuickScan&OCR for Seamless PDF and JPG Transformation Into Editable Text.</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/verbessern-sie-ihre-dokumentenmanagement-prozesse-mit-abbyy-und-eucon-unterstutzung/"><u>Verbessern Sie Ihre Dokumentenmanagement-Prozesse Mit ABBYY Und Eucon Unterstützung</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-elite-5-earbuds-youtubes-best-companions/"><u>2024 Approved Elite 5 Earbuds YouTube's Best Companions</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-full-circle-camera-unboxing-and-tests/"><u>2024 Approved Full Circle Camera Unboxing & Tests</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/avchd-mts-converter-for-moto-g-5g-2023-by-aiseesoft-video-converter-play-mts-on-android/"><u>AVCHD MTS Converter for Moto G 5G (2023)</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/emerging-phoenix-pdf-damage-cure/"><u>Emerging Phoenix: PDF Damage Cure</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-tap-into-endless-creativity-our-compilation-of-over-50-free-advertising-masterpieces/"><u>In 2024, Tap Into Endless Creativity – Our Compilation of over 50 FREE Advertising Masterpieces!</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/leveraging-cookiebot-technology-for-improved-website-personalization-and-retargeting/"><u>Leveraging Cookiebot Technology for Improved Website Personalization and Retargeting</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/neil-murphy-lead-revenue-strategist-at-abbyy/"><u>Neil Murphy: Lead Revenue Strategist at ABBYY</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/new-strategic-alliance-abbyy-joins-forces-with-lifeboat-distribution-for-north-american-market-expansion/"><u>New Strategic Alliance: ABBYY Joins Forces with Lifeboat Distribution for North American Market Expansion</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/next-gen-banking-masterclass-on-digital-transformation-and-process-automation/"><u>Next-Gen Banking: Masterclass on Digital Transformation and Process Automation</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/optimizing-your-site-with-advanced-cookiebot-technology/"><u>Optimizing Your Site with Advanced Cookiebot Technology</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/periscope-recording-for-beginners-a-complete-walkthrough/"><u>Periscope Recording for Beginners A Complete Walkthrough</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/strategic-growth-abbyys-commitment-to-expanding-enterprise-solutions-in-early-year-initiatives/"><u>Strategic Growth: Abbyy's Commitment to Expanding Enterprise Solutions in Early-Year Initiatives</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/streamline-your-logistics-the-power-of-smart-automation/"><u>Streamline Your Logistics: The Power of Smart Automation</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/successfully-integrating-ai-and-rpa-a-five-step-guide-leveraging-advanced-process-insight/"><u>Successfully Integrating AI and RPA: A Five-Step Guide Leveraging Advanced Process Insight</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/top-3g-networks-and-plans-for-gamers-on-a-budget-for-2024/"><u>Top 3G Networks & Plans for Gamers on a Budget for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/transformative-tabletop-experience-with-gpt-powered-imagination-boosting/"><u>Transformative Tabletop Experience with GPT-Powered Imagination Boosting</u></a></li>
+<li><a href="https://win-dash.techidaily.com/update-your-hp-deskjet-3755-all-in-one-compatible-driver-software-for-windows-operating-systems-windows-11-8-and-7/"><u>Update Your HP DeskJet 3755 All-In-One: Compatible Driver Software for Windows Operating Systems (Windows 11, 8 & 7)</u></a></li>
 </ul></div>
 

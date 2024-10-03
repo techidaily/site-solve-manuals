@@ -1,7 +1,7 @@
 ---
 title: IDP革命帷幄，IDP斐然！ - Revolutionary Victories in Investment Decision Processes!
-date: 2024-09-22T23:30:00.811Z
-updated: 2024-09-28T00:50:15.644Z
+date: 2024-09-28T02:55:00.028Z
+updated: 2024-10-02T16:32:40.741Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/dbe86ec4eee57de28307f7a87e5d2dc26b222d4d704a45568094d723e05d6df4.jpg
@@ -20,38 +20,25 @@ January 18, 2023
 「IDP is Dead, Long Live IDP（IDP崩御、IDP万歳）」--このフレーズは、変革と継続という感情を響かせています。「国王崩御、国王万歳!」という歴史的な宣言のように、私たちはインテリジェント文書処理（IDP）の領域領域における重要な転換期を迎えています。これは終わりではなく、再生であり、より強力で、AI (人工知能) の未来にとってより意義深いものへと変貌を遂げる瞬間なのです。
 
 <!-- affiliate ads begin -->
-<span id="1993651">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1886019/19272" target="_top" id="1886019">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886019/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## インテリジェント文書処理（IDP）の進化
 
 この変革の中核にあるのは、実は何十年も前から存在する「光学文字認識 (OCR)」と呼ばれる技術です。かつては単にテキストをデジタル化するツールでしたが、OCR は現在、高品質なデータを使って大規模言語モデル (LLM) を学習させる上で欠かせない役割を果たしています。単純なテキスト変換ツールから高度なデータ供給者への進化は、IDP 技術の適応性と持続的な重要性を示しています。従来の IDP は、精度とコンテキストが最優先される新しい時代への道を切り開いているのです。
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 実世界での応用と課題
 
 今日の [OCR](https://tools.techidaily.com/abbyy/products/)は、単にテキストを読むだけでなく、テキスト全体を理解することが求められます。企業はこれまで以上に高い精度とより深いデータ洞察を求めているため、IDP技術はより高度で微妙なニュアンスを理解する必要があります。しかし、この進化には課題もあります。精度とコンテキスト理解のバランスが重要になってきます。AI システムに投入するデータは、正確であるだけでなく、文脈的にも関連性があるものであることをどのように保証するのでしょうか？
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094429/7443" target="_top" id="2094429">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094429" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094429/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### インテリジェント文書処理（IDP）の未来
@@ -73,6 +60,13 @@ January 18, 2023
 #### 継続的な学習と適応
 
 現代の IDP システムの真髄は、継続的に学習して向上できる点にあります。フィードバックループを取り入れることで、これらのシステムはアルゴリズムを改良し、新しいタイプのドキュメントに適応し、時間の経過とともに精度を向上させることができます。この継続的な学習プロセスにより、ドキュメントの種類や形式が進化し続ける中でも、IDP の関連性と有効性が維持されます。
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 大規模言語モデル（LLM）学習における高品質データの役割
 
@@ -98,13 +92,6 @@ IDP プロセスは、データ収集から始まります。OCR などの IDP �
 
 学習が完了すると、LLM は厳格なテストと検証を受けます。これには、LLM がさまざまな分野、スタイル、フォーマットの言語を理解し生成する能力をチェックすることが含まれます。この段階からのフィードバックは、学習ループにフィードバックされ、LLM の能力をさらに向上させます
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 新時代の幕開け
 
 「IDP崩御、IDP万歳！」という宣言は決して矛盾ではなく、テクノロジーのしなやかさと進化の証なのです。私たちはかつての IDP を乗り越え、より高度で AI エコシステムの不可欠な部分へと変革を遂げました。インテリジェント文書処理と人工知能の新時代の幕開けを目の当たりにし、この進化を共に歩むことができる、ということは実に嬉しいことです。
@@ -112,6 +99,13 @@ IDP プロセスは、データ収集から始まります。OCR などの IDP �
 ABBYY が 4 年連続で IDP リーダーに選出された理由をご報告書でご覧ください[Everest Groupのレポートをダウンロー](https://tools.techidaily.com/abbyy/products/)ド。ABBYY Vantageは、あらゆるインテリジェントオートメーションプラットフォームに統合できる、業界唯一のローコード／ノーコードIDPプラットフォームです。事前学習済みAI スキルで自動化を加速しましょう。ぜひ、[Vantageのデモ](https://tools.techidaily.com/abbyy/products/)をご予約ください。
 
 ![Maxime Vermier ABBYY](https://static3.abbyy.com/abbyycommedia/37004/maxime-vermeir_110x110-1.png)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Maxime Vermeir
 
@@ -180,24 +174,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-dive-into-the-world-of-youtube-shorts-mastering-video-creation/"><u>[New] 2024 Approved Dive Into the World of YouTube Shorts Mastering Video Creation</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-best-video-grabbers-for-windows-10-pc/"><u>[New] In 2024, Best Video Grabbers for Windows 10 PC</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-the-ultimate-guide-to-creating-full-screen-memories/"><u>[Updated] In 2024, The Ultimate Guide to Creating Full-Screen Memories</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-sound-syncing-simplified-for-inshot-edits-for-2024/"><u>[Updated] Sound Syncing Simplified for InShot Edits for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-screen-recorder-pros-free-software-on-both-windows-and-macos/"><u>2024 Approved Screen Recorder Pros Free Software on Both Windows & MacOS</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/1724313295714-dx/"><u>DX初心者をサポートする入門書リスト</u></a></li>
-<li><a href="https://win11.techidaily.com/fast-track-to-windows-help-top-5-routes-uncovered/"><u>Fast Track to Windows Help - Top 5 Routes Uncovered</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/next-gen-banking-masterclass-on-digital-transformation-and-process-automation/"><u>Next-Gen Banking: Masterclass on Digital Transformation and Process Automation</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/optimizing-your-site-with-advanced-cookiebot-technology/"><u>Optimizing Your Site with Advanced Cookiebot Technology</u></a></li>
-<li><a href="https://extra-information.techidaily.com/perfecting-visual-appeal-tips-for-incorporating-filters-in-media/"><u>Perfecting Visual Appeal Tips for Incorporating Filters in Media</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/strategic-growth-abbyys-commitment-to-expanding-enterprise-solutions-in-early-year-initiatives/"><u>Strategic Growth: Abbyy's Commitment to Expanding Enterprise Solutions in Early-Year Initiatives</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/streamline-your-logistics-the-power-of-smart-automation/"><u>Streamline Your Logistics: The Power of Smart Automation</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/successfully-integrating-ai-and-rpa-a-five-step-guide-leveraging-advanced-process-insight/"><u>Successfully Integrating AI and RPA: A Five-Step Guide Leveraging Advanced Process Insight</u></a></li>
-<li><a href="https://techidaily.com/the-way-to-get-back-lost-data-from-infinix-hot-30-5g-by-fonelab-android-recover-data/"><u>The way to get back lost data from Infinix Hot 30 5G</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/unlocking-user-engagement-with-cookiebots-advanced-tracking-solutions/"><u>Unlocking User Engagement with Cookiebot's Advanced Tracking Solutions</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/unveiling-synergy-webinar-on-analytics-automation-and-process-insight-as-interconnected-strategies/"><u>Unveiling Synergy: Webinar on Analytics Automation & Process Insight as Interconnected Strategies</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/updated-2024-approved-the-ultimate-list-of-free-mkv-cutters/"><u>Updated 2024 Approved The Ultimate List of Free MKV Cutters</u></a></li>
-<li><a href="https://ai-voice.techidaily.com/updated-best-5-tiktok-voice-generators-you-should-try-for-2024/"><u>Updated Best 5 TikTok Voice Generators You Should Try for 2024</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/webinar-on-smart-data-extraction-techniques-enhancing-business-insights/"><u>Webinar on Smart Data Extraction Techniques: Enhancing Business Insights</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-hashtag-mastery-pathway-to-6-figure-youtube-impact/"><u>[New] 2024 Approved Hashtag Mastery Pathway to 6-Figure Youtube Impact</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-mastering-the-craft-of-igtv-video-production-with-phones-and-dslrs/"><u>[New] 2024 Approved Mastering the Craft of IGTV Video Production with Phones and DSLRs</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-fine-tuning-color-balance-in-obs-for-2024/"><u>[New] Fine-Tuning Color Balance in OBS for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-designing-dynamic-movie-synopses/"><u>[Updated] Designing Dynamic Movie Synopses</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-unlock-the-power-of-your-fb-lives-with-these-picks-for-2024/"><u>[Updated] Unlock the Power of Your Fb Lives with These Picks for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-step-by-step-inverting-iphone-video-order/"><u>2024 Approved Step-by-Step Inverting iPhone Video Order</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/wav-to-m4b-movavi/"><u>安心で簡単な無料オンラインWAV to M4Bコンバーター – Movavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/ogvmpg-movavi/"><u>自由更改在線OGV為MPG格式 - 動態視頻移行的 Movavi方法</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/1723015528428-audio-service-outage-heres-how-you-can-get-it-running-again/"><u>Audio Service Outage? Here's How You Can Get It Running Again</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cambia-archivos-de-sonido-ogg-a-formato-m4a-sin-coste-con-herramientas-en-linea-ejemplos-y-guias/"><u>Cambia Archivos De Sonido OGG a Formato M4A Sin Coste Con Herramientas en Línea - Ejemplos Y Guías</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/converti-file-mp4-in-formato-flac-on-line-e-gratuito-con-movavi/"><u>Converti File MP4 in Formato FLAC On-Line E Gratuito Con Movavi</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/forgot-iphone-passcode-again-unlock-apple-iphone-14-without-passcode-now-by-drfone-ios/"><u>Forgot iPhone Passcode Again? Unlock Apple iPhone 14 Without Passcode Now</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-investigating-the-sudden-angle-shift-in-instagrams-videos/"><u>In 2024, Investigating the Sudden Angle Shift in Instagrams Videos</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/movavi-gravar-mp3-e-ogg-offline-gratuito-facil-de-usar-e-rapido/"><u>Movavi: Gravar MP3 E OGG Offline Gratuito - Fácil De Usar E Rápido</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/passos-simples-para-fazer-um-montagem-de-imagens-no-seu-iphone-as-opcoes-mais-eficientes/"><u>Passos Simples Para Fazer Um Montagem De Imagens No Seu iPhone – As Opções Mais Eficientes</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/riproduzione-gratuita-di-video-3g2-in-formato-mpeg-con-movavi-converter/"><u>Riproduzione Gratuita Di Video 3G2 in Formato MPEG Con Movavi Converter</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/top-5-techniques-for-layering-images-perfectly/"><u>Top 5 Techniques for Layering Images Perfectly</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-say-goodbye-to-filmora-watermark-free-and-paid-solutions-revealed/"><u>Updated 2024 Approved Say Goodbye to Filmora Watermark Free and Paid Solutions Revealed</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/pcxjpeg-movavi/"><u>オンラインで手軽な無料変換: PCX画像をJPEGへ - Movaviの使い方</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Customized Audience Tracking with Cookiebot: Enhance Your Website's Engagement"
-date: 2024-09-22T02:00:35.493Z
-updated: 2024-09-27T21:23:47.967Z
+date: 2024-09-30T22:59:15.825Z
+updated: 2024-10-03T08:45:03.264Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/bc4c1fafbeb0a4b8e3066f1ca761f451b6c08fbe8e8ce84b7a7a9649ff05ac95.jpg
@@ -30,16 +30,10 @@ thumbnail: https://thmb.techidaily.com/bc4c1fafbeb0a4b8e3066f1ca761f451b6c08fbe8
 驚いたのは、職場の課題に対するもう1つの主要な要因がプロセスであったことです。 効率性、コンプライアンス、そして、より良いビジネス成果を促進するために業務プロセスが用意されていることには、ほとんどの人が同意します。しかしながら、回答者のほぼ半数（48％）が、業務プロセスが仕事をより困難にした、つまり不十分であると非難し、それを理由に4人に1人が仕事を辞めたいと考えています。 別の36％は、プロセスが時間を無駄にし、プロセスを使えなくしたと述べています。
 
 <!-- affiliate ads begin -->
-<span id="1993645">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### では、プロセスは従業員の仕事にどのように悪影響を及ぼしますか？ そして、これに対処するために何ができるでしょうか？
@@ -53,10 +47,10 @@ thumbnail: https://thmb.techidaily.com/bc4c1fafbeb0a4b8e3066f1ca761f451b6c08fbe8
 ![COVID Impact on Business, Employees](https://static1.abbyy.com/abbyycommedia/30408/abbyy-global-covid-technology-survey_us_1200x628.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151858/7443" target="_top" id="2151858">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151858" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151858/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 従業員がタスクを実行する方法を監視することは、タスクマイニングと呼ばれる、プロセスインテリジェンスの初期のカテゴリのものにあたります。 タスクマイニングを使用すると、ユーザの操作を収集して分析することにより、どのようにタスクをやりくりしているのかを理解できます。 このような深い理解は、プロセスを自動化、そして改善するのに役立ちます。 タスクマイニングはプロセスマイニングと類似していますが、システムのログファイルやビジネス指標ではなく、ユーザとアプリとの相互やり取りのデータを使用してプロセスを分析します。 [ABBYY Task Mining（英語版）](https://tools.techidaily.com/abbyy/products/) は、デスクトップ上のユーザインタラクションデータ（ユーザとアプリとの相互やり取りデータ）を分析し、システムイベントデータからマイニング（取り出）されたプロセスの詳細とシームレスにリンクします。これにより、プロセスを遅くしている反復的で非効率的なタスクとタスクシーケンスを特定し、適切な場所にリソースを割り当て、解決することが可能となります。
@@ -82,10 +76,10 @@ thumbnail: https://thmb.techidaily.com/bc4c1fafbeb0a4b8e3066f1ca761f451b6c08fbe8
 ![Bruce Orcutt ABBYY](https://static5.abbyy.com/abbyycommedia/25719/bruceorcutt-99x99.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948905/19272" target="_top" id="1948905">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948905" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047361/19272" target="_top" id="2047361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047361" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948905/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047361/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Bruce Orcutt
@@ -93,10 +87,10 @@ Bruce Orcutt
 Vice President of Product Marketing at ABBYY
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006946/19272" target="_top" id="2006946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006946" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006946/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### いいね！、シェア、再投稿
@@ -162,16 +156,19 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://solve-manuals.techidaily.com/enhancing-user-experience-through-advanced-cookiebot-powered-insights/"><u>Enhancing User Experience Through Advanced Cookiebot-Powered Insights</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/erreichen-von-it-stabilitat-mit-hilfe-der-gleichgewichtstechnik-erkunden-sie-zoom/"><u>Erreichen Von IT-Stabilität Mit Hilfe Der Gleichgewichtstechnik - Erkunden Sie Zoom!</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/expanding-capabilities-with-cloud-based-ocr-sdks-insights-from-the-abbyy-experts/"><u>Expanding Capabilities with Cloud-Based OCR SDKs – Insights From the ABBYY Experts</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/from-external-to-inshot-your-tunes-transformation-guide-for-2024/"><u>From External to InShot Your Tunes Transformation Guide for 2024</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/harness-the-power-of-cookiebot-revolutionize-seo-and-skyrocket-online-engagement/"><u>Harness the Power of Cookiebot: Revolutionize SEO and Skyrocket Online Engagement</u></a></li>
-<li><a href="https://fox-access.techidaily.com/in-2024-comprehensible-guide-to-shifting-photosvideos-in-ios-world/"><u>In 2024, Comprehensible Guide to Shifting Photos/Videos in iOS World</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-cultivate-creativity-10plus-channel-driven-video-suggestions/"><u>In 2024, Cultivate Creativity 10+ Channel-Driven Video Suggestions</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-my-spouse-from-spying-on-my-honor-magic-vs-2-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop My Spouse from Spying on My Honor Magic Vs 2 | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-motorola-moto-g04-phone-with-broken-screen-by-drfone-android/"><u>In 2024, How to Unlock Motorola Moto G04 Phone with Broken Screen</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-top-10-motorola-defy-2-android-sim-unlock-apk-by-drfone-android/"><u>In 2024, Top 10 Motorola Defy 2 Android SIM Unlock APK</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/updated-mod-video-editing-on-a-budget-top-5-free-options/"><u>Updated MOD Video Editing on a Budget Top 5 Free Options</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-visual-vibes-building-a-repertoire-of-shareable-fb-and-insta-videos/"><u>[New] 2024 Approved Visual Vibes Building a Repertoire of Shareable FB & Insta Videos</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/op-picks-procuring-start-up-youtube-channel-monetization-platforms/"><u>[New] Top Picks Procuring Start-Up YouTube Channel Monetization Platforms</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-recording-made-simple-a-compreenasite-for-capturing-netflix-content/"><u>[Updated] 2024 Approved Recording Made Simple A Compreenasite for Capturing Netflix Content</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-boosting-bank-balance-crafting-commercial-video-content/"><u>[Updated] Boosting Bank Balance Crafting Commercial Video Content</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-into-the-fray-with-polaroid-cubeplus-action-recorder/"><u>[Updated] Into the Fray with Polaroid Cube+ Action Recorder</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/demystifying-data-a-beginners-guide-to-facebook-insights-for-2024/"><u>Demystifying Data A Beginner's Guide to Facebook Insights for 2024</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/driven-with-advanced-ai-the-modern-solution-of-cookiebot/"><u>Driven with Advanced AI: The Modern Solution of Cookiebot</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/effortless-docbook-digitization-for-iphones-using-ocr-technology-try-the-power-of-finereader/"><u>Effortless Doc/Book Digitization for iPhones Using OCR Technology - Try the Power of FineReader!</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/elevate-site-traffic-with-advanced-cookiebot-driven-seo-techniques/"><u>Elevate Site Traffic with Advanced Cookiebot-Driven SEO Techniques</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/elevating-enterprise-success-through-process-intelligence-explore-innovations-on-the-abbyy-platform/"><u>Elevating Enterprise Success Through Process Intelligence - Explore Innovations on the ABBYY Platform</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/enhance-user-experience-with-advanced-cookiebot-tracking-technology/"><u>Enhance User Experience with Advanced Cookiebot Tracking Technology</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/sightline-synopsis-study-for-2024/"><u>Sightline Synopsis Study for 2024</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-in-2024-top-ways-to-make-fast-motion-video-on-iphone-solved/"><u>Updated In 2024, Top Ways to Make Fast Motion Video on iPhone Solved</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/44oa44kk44ok44oi44oz44oi44ot44oh44kq44ks5oiq5yqf6kop44gr44oa44km44oz44ot44o844oj44gz44kl44gf44kb44gu6kej5rg65rov/"><u>ダイヤモントビデオを成功裏にダウンロードするための解決法</u></a></li>
 </ul></div>
 

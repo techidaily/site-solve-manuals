@@ -1,7 +1,7 @@
 ---
 title: "Konstantin Anisimovich: Visionary Leader & Co-Creator of Innovative Enterprise"
-date: 2024-09-23T17:19:49.077Z
-updated: 2024-09-28T04:27:04.805Z
+date: 2024-10-01T02:35:14.139Z
+updated: 2024-10-03T01:06:06.345Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/bb9accbf9aa450f0fe34df3fa6aee3bab970d5d0da3d5945b94c06b1e59faa56.jpg
@@ -20,10 +20,10 @@ Board Director and Co-Founder
 Konstantin was formerly Chief Science Officer at ABBYY and Chief Technology Officer and Vice-President for Linguistic Technologies, overseeing the company's R&D and product development activities. He was directly involved in, and managed the development of, the recognition technologies, which are used in ABBYY's flagship products. Under his leadership, ABBYY has developed proprietary technologies for decades and its suite of intelligent process automation (IPA) solutions have continuously taken leadership positions in independent analyst assessments of the leading analyst firms.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Ready to speak with an expert?
@@ -45,18 +45,17 @@ Konstantin was formerly Chief Science Officer at ABBYY and Chief Technology Offi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/n-2024-the-art-of-viewing-several-youtube-videos-concurrently/"><u>[New] In 2024, The Art of Viewing Several Youtube Videos Concurrently</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/tarting-strong-key-equipment-for-youtube-success/"><u>[New] Starting Strong Key Equipment for YouTube Success</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-weekly-must-see-elite-igtv-talents/"><u>[Updated] Weekly Must-See Elite IGTV Talents</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-realme-c67-4g-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Realme C67 4G to Samsung Phone | Dr.fone</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/in-depth-analysis-of-the-nook-glowlight-plus-by-barnes-and-noble/"><u>In-Depth Analysis of the Nook GlowLight Plus by Barnes & Noble</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/innovative-methods-for-chronological-disruption-in-acting-for-2024/"><u>Innovative Methods for Chronological Disruption in Acting for 2024</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/neue-ara-fur-abbyy-industrieveteran-robert-youngjohns-wird-als-geschaftsfuhrer-eingesetzt/"><u>Neue Ära Für ABBYY: Industrieveteran Robert Youngjohns Wird Als Geschäftsführer Eingesetzt</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/nouvelles-perspectives-sur-le-travail-automatise-en-france-selon-letude-abbyy-la-plupart-des-citoyens-sont-ouverts-a-la-delegation-de-roles-aux-machines/"><u>Nouvelles Perspectives Sur Le Travail Automatisé en France Selon L’Étude ABBYY : La Plupart Des Citoyens Sont Ouverts À La Délegation De Rôles Aux Machines</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/optimieren-sie-ihr-marktpraferenz-in-der-finanzbranche-mit-abbyy-checklist/"><u>Optimieren Sie Ihr Marktpräferenz in Der Finanzbranche Mit ABBYY Checklist</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/pioneering-digital-evolutions-mastering-accounts-receivable-with-abbyys-innovative-solutions/"><u>Pioneering Digital Evolutions: Mastering Accounts Receivable with ABBYY's Innovative Solutions</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/significant-milestones-reached-by-abbyy-in-the-2019-fiscal-years-third-phase/"><u>Significant Milestones Reached by ABBYY in the 2019 Fiscal Year's Third Phase</u></a></li>
-<li><a href="https://howto.techidaily.com/top-10-fixes-for-phone-keep-disconnecting-from-wi-fi-on-xiaomi-14-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 10 Fixes for Phone Keep Disconnecting from Wi-Fi On Xiaomi 14 | Dr.fone</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/pdf-finereader-pdfiphoneandroid/"><u>スクリーンショットからPDFへ: FineReader PDFというアプリはiPhone・Androidデバイスでどのように文章をスキャンしますか?</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-immediate-fixes-for-the-recurring-windows-10-photos-crashes-for-2024/"><u>[New] Immediate Fixes for the Recurring Windows 10 Photos Crashes for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-sharing-youtube-content-on-facebook-a-step-by-step-guide-for-2024/"><u>[New] Sharing YouTube Content on Facebook A Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/comprehensive-step-by-step-tutorial-on-preparing-datasets-for-artificnial-intelligence/"><u>Comprehensive Step-by-Step Tutorial on Preparing Datasets for Artificnial Intelligence</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-personalization-enhancing-your-sites-user-experience/"><u>Cookiebot-Driven Personalization: Enhancing Your Site's User Experience</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-enhanced-experience-optimize-your-website-with-advanced-tracking-solutions/"><u>Cookiebot-Enhanced Experience: Optimize Your Website with Advanced Tracking Solutions</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-enhanced-optimize-your-website-with-cutting-edge-analytics-tools/"><u>Cookiebot-Enhanced: Optimize Your Website with Cutting-Edge Analytics Tools</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/futureproof-your-sketches-with-our-curated-list-of-elite-drawing-devices/"><u>Futureproof Your Sketches with Our Curated List of Elite Drawing Devices</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/gain-edge-in-digital-marketing-with-cookiebots-data-solutions/"><u>Gain Edge in Digital Marketing with Cookiebot's Data Solutions</u></a></li>
+<li><a href="https://win-hacks.techidaily.com/mastering-image-comments-for-your-online-galleries-using-flipbuilders-tools/"><u>Mastering Image Comments for Your Online Galleries Using FlipBuilder's Tools</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/sequential-thrills-a-step-by-step-guide-to-the-james-bond-series/"><u>Sequential Thrills: A Step-by-Step Guide to the James Bond Series</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/simple-steps-splitting-your-video-content-into-quick-60-second-sections/"><u>Simple Steps: Splitting Your Video Content Into Quick, 60-Second Sections</u></a></li>
+<li><a href="https://games-able.techidaily.com/sneak-into-stats-world-manage-football-teams-forfree/"><u>Sneak Into Stats World: Manage Football Teams Forfree</u></a></li>
 </ul></div>
 
