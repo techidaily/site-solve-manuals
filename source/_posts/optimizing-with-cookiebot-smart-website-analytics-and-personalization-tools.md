@@ -1,7 +1,7 @@
 ---
 title: "Optimizing with Cookiebot: Smart Website Analytics and Personalization Tools"
-date: 2024-10-01T09:55:40.573Z
-updated: 2024-10-03T10:13:25.672Z
+date: 2024-10-01T19:23:40.531Z
+updated: 2024-10-08T19:25:42.319Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/bfe527075b76486c457bb40593f28ebdf4420fa39a7d079da9e7faa5dde71ba1.jpg
@@ -43,6 +43,13 @@ Here’s a memoji we ended up with after monkeying around with the noir filter:
 
 ![filters in animoji](https://static1.abbyy.com/abbyycommedia/26703/danya-monkey.jpeg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Android Tip: Sending Out GIFs with AR Emojis
 
 In the [previous issue](https://tools.techidaily.com/abbyy/products/), we told you about AR emojis available to users of Samsung phones. Now its time to put this knowledge to good use. But please be aware that currently the AR Emoji feature is only available to owners of the Samsung Galaxy S9.
@@ -53,13 +60,6 @@ After you create an AR emoji, your phone will automatically generate GIFs featur
 
 P.S. For more useful tips on using emojis, see the previous issues of this newsletter [here](https://tools.techidaily.com/abbyy/products/) and [here](https://tools.techidaily.com/abbyy/products/).
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
-  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **ABBYY Tip: Using FineScanner in Research Projects**
 
 [FineScanner](http://qrs.ly/mg4z2wm) was conceived as a mobile app that would do the job of the traditional flat-bed scanner. And it’s not just occasional scanning of a handful of A4 pages. Meredith M. Parker, for example, has successfully used [FineScanner](http://qrs.ly/mg4z2wm) to scan and capture data from over 600 tables from the _Ministry of Labour Gazette_ published between 1923 and 1936\. For her project, the researcher needed to digitize UK unemployment statistics for the interwar period and export them to Microsoft Excel for further processing.
@@ -68,38 +68,38 @@ FineScanner successfully captured 600+ pages of printed tables, and all of the p
 
 ![abbyy finescanner](https://static1.abbyy.com/abbyycommedia/26704/fs1.jpg) Original photo
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![abbyy finescanner scanning documents](https://static1.abbyy.com/abbyycommedia/28714/fs2.png) Captured data in Excel
 
-For a detailed step-by-step description of the data capture stage of the project, please see [this page](https://www.meredithpaker.com/updates/digitizingdata).
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+For a detailed step-by-step description of the data capture stage of the project, please see [this page](https://www.meredithpaker.com/updates/digitizingdata).
 
 ## **App of the Week: Dogo**
 
 Naturally, you can take your puppy to a dog school, but lots of dog owners choose to train their four-legged pets themselves. [Dogo](https://dogo.pro/) is a mobile app intended to help you with training your dog. The app creates a daily training programme adapted specifically to your pet’s progress, providing you with lots of tips and advice on how to teach your puppy to respond to its name, to offer you its paw, to sit, to roll over, and do lots of other tricks. The app offers detailed step-by-step instructions for teaching your dog each new trick or command. ![train dogs](https://static1.abbyy.com/abbyycommedia/26706/dogo-en.png) ![excirsises for dogs on a smartphone](https://static1.abbyy.com/abbyycommedia/26707/dogo-en2.png)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 You can then film your dog doing a new trick and submit the video via the app to get additional advice from dog training professionals.
 
 ![good dog](https://static1.abbyy.com/abbyycommedia/26708/dogo-en3.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 The app is available on [iOS](https://itunes.apple.com/ru/app/id1153294767) and [Android](https://play.google.com/store/apps/details?id=app.dogo.com.dogo%5Fandroid). That’s all from us for today. See you next Monday!
 
@@ -171,19 +171,18 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-simplifying-itunes-add-and-listen-to-your-choice-of-podcasts/"><u>[New] 2024 Approved Simplifying iTunes Add and Listen to Your Choice of Podcasts</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-pinnacle-ios-solutions-the-best-ps2-game-emulators-for-2024/"><u>[Updated] Pinnacle IOS Solutions The Best PS2 Game Emulators for 2024</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/20-zacitla-ceskych-mp3-konv-bezplatnych-pro-windows-movavi/"><u>20 Začítlá Českých MP3 Konv. Bezplatných Pro Windows - Movavi</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/ts-mkv-movavi/"><u>免費線上 TS 到 MKV 轉換服務 - 運用 Movavi 技術</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/create-a-soundtracked-slideshow-on-your-mac-for-dynamic-presentations/"><u>Create a Soundtracked Slideshow on Your Mac for Dynamic Presentations</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/economical-precision-the-elegoo-neptune-4-pro-laser-priced-at-284/"><u>Economical Precision: The Elegoo Neptune 4 Pro Laser Priced at $284</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-can-life360-track-you-when-your-huawei-nova-y91-is-off-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track You When Your Huawei Nova Y91 is off? | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-reset-your-poco-m6-pro-4g-lock-screen-password-by-drfone-android/"><u>In 2024, How to Reset your Poco M6 Pro 4G Lock Screen Password</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-top-11-free-apps-to-check-imei-on-realme-c53-phones-by-drfone-android/"><u>In 2024, Top 11 Free Apps to Check IMEI on Realme C53 Phones</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/the-next-era-in-banking-predictions-for-the-rise-of-smart-banks-powered-by-digital-intelligence-perspectives-by-abbyy-experts/"><u>The Next Era in Banking: Predictions for the Rise of Smart Banks Powered by Digital Intelligence - Perspectives by ABBYY Experts</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/transformacion-digital-modernizada-un-paso-facil-de-vhs-a-versatilidades-multimedias-mp4-dvd/"><u>Transformación Digital Modernizada: Un Paso Fácil De VHS a Versatilidades Multimedias (MP4, DVD)</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/unleashing-potential-abbyys-intelligent-solutions-for-optimized-information-management/"><u>Unleashing Potential: ABBYY's Intelligent Solutions for Optimized Information Management</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/unlocking-growth-potential-through-cookiebot-power-solutions/"><u>Unlocking Growth Potential Through Cookiebot Power Solutions</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/unlocking-potential-discovering-hidden-streaming-tricks-for-2024/"><u>Unlocking Potential Discovering Hidden Streaming Tricks for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-steer-clear-of-obscurity-secure-a-top-spot-with-youtube-seo-tips/"><u>[New] In 2024, Steer Clear of Obscurity Secure a Top Spot with YouTube SEO Tips</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-swipe-for-success-the-art-of-flipping-videos-on-instagram-for-2024/"><u>[Updated] Swipe for Success The Art of Flipping Videos on Instagram for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-unlocking-the-mystery-of-downloading-youtube-srt-files-easily/"><u>2024 Approved Unlocking the Mystery of Downloading YouTube SRT Files Easily</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1726224446806-2024/"><u>2024上市最新型高級音樂編曲軟件 - 自由使用或付費選擇</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/cambia-gifs-a-videos-mpeg-online-sin-coste-con-movavi/"><u>Cambia GIFs a Vídeos MPEG Online Sin Coste Con Movavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cambiar-video-mov-en-vivo-sin-coste-guia-paso-a-paso-para-convertirlo-a-formato-avi/"><u>Cambiar Video MOV en Vivo Sin Coste: Guía Paso a Paso Para Convertirlo a Formato AVI</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/comprendre-lenregistrement-ecran-plus-audio-en-quick-time-une-approche-complete-et-simple-a-suivre/"><u>Comprendre L’Enregistrement Écran + Audio en QuiC(k-Time): Une Approche Complète Et Simple À Suivre !</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/convertisseur-audio-gratuit-pour-transformer-vos-fichiers-m4a-movavi/"><u>Convertisseur Audio Gratuit Pour Transformer Vos Fichiers M4A - Movavi</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/get-the-newest-drivers-for-your-nvidia-rtx-2070-super-download-and-update-guide-for-windows-pcs/"><u>Get the Newest Drivers for Your NVIDIA RTX 2070 SUPER: Download and Update Guide for Windows PCs</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-top-apps-and-online-tools-to-track-google-pixel-7a-phone-withwithout-imei-number-by-drfone-android/"><u>In 2024, Top Apps and Online Tools To Track Google Pixel 7a Phone With/Without IMEI Number</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/movavi-werk-aan-wmv-videos-om-in-aac-format-te-worden-geconveert-voor-gratis-gebruik-online/"><u>Movavi Werk Aan WMV-Video's Om in AAC-Format Te Worden Geconveert Voor Gratis Gebruik Online</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/record-android-internal-sound-4-non-root-methods/"><u>Record Android Internal Sound 4 Non-Root Methods</u></a></li>
+<li><a href="https://games-able.techidaily.com/watch-out-could-gpu-prices-see-an-uptick-next-month/"><u>Watch Out! Could GPU Prices See an Uptick Next Month?</u></a></li>
 </ul></div>
 

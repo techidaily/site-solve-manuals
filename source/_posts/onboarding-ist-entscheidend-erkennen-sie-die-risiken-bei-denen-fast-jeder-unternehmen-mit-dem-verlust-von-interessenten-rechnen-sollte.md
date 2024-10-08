@@ -1,7 +1,7 @@
 ---
 title: "Onboarding Ist Entscheidend: Erkennen Sie Die Risiken, Bei Denen Fast Jeder Unternehmen Mit Dem Verlust Von Interessenten Rechnen Sollte."
-date: 2024-09-30T18:31:10.934Z
-updated: 2024-10-02T20:30:27.167Z
+date: 2024-10-07T18:02:52.126Z
+updated: 2024-10-08T18:22:30.017Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e0be33554f7e808cbb9defb5e44d8742371f9f0a41b00b3f13329dba336fbddc.png
@@ -23,13 +23,6 @@ _Zeitaufwändige und komplexe Prozesse als Hauptgründe für hohe Abbruchraten_
 
 Eine aktuelle Studie des auf intelligente Automatisierung spezialisierten Unternehmens ABBYY deckt auf, dass erschreckende 94% der deutschen Unternehmen beim Kunden-Onboarding eine Form des Abbruchs erleben – einige sogar bis zu 40% und mehr. Ein ineffizientes digitales Onboarding - also die Online-Anmeldung für ein Konto oder eine Dienstleistung - kann dazu führen, dass Unternehmen einen Interessenten verlieren, bevor er überhaupt Kunde wird, was zu Umsatzeinbußen in Milliardenhöhe führt. Gerade in der aktuellen geopolitischen Situation, die eine Rezession und eine anhaltend hohe Inflation mit sich gebracht hat, können sich Unternehmen das nicht mehr leisten. Die Ergebnisse der Studie verdeutlichen, wie wichtig es ist, dass Onboarding-Prozesse effizient, intuitiv und mit dem richtigen Maß an sowohl persönlicher Kommunikation als auch intelligenter Automatisierung gestaltet werden müssen, um den bestmöglichen Erfolg zu erzielen.
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
-  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Faktoren für das Abspringen der Kunden während des Onboarding-Prozesses
 
 Zu viele manuelle Eingaben (28%) und zu viele Schritte im Prozess (27%) sind nach Überzeugung der Befragten die Hauptgründe für das Abspringen potentieller Neukunden bei den derzeitigen Onboarding-Prozessen. Fast ebenso häufig werden der übermäßige Zeitaufwand und das umständliche Einreichen von identitätsnachweisenden Informationen (jeweils 26%) als Gründe genannt. Auch geben mehr als 24% eine unzureichende Kommunikation als Grund für den Ausstieg an. Je zeitaufwändiger und komplexer der Onboarding-Prozess sich also gestaltet, desto höher ist das Risiko des Abbruchs.
@@ -39,10 +32,10 @@ Dies wirkt sich nicht nur auf den Umsatz aus, sondern auch auf die Meinung der K
 ![infographic-onboarding-survey-de](https://static1.abbyy.com/abbyycommedia/36367/infographic-onboarding-survey-de.jpg?width=900&height=1242)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Obwohl sich die Unternehmen der negativen Folgen eines schlechten Onboardings bewusst sind, wie zum Beispiel versäumte Geschäftschancen (32%), das Verlieren potenzieller Kunden an die Konkurrenz (33%) oder Schwierigkeiten bei der Gewinnung neuer Kunden (29%), nehmen sie dies stillschweigend in Kauf. Zwei von drei Befragten halten den Onboarding-Prozess zwar für sehr wichtig (45%) oder immerhin einigermaßen wichtig (21%), aber es besteht bei vielen noch ein großer Verbesserungsbedarf beim tatsächlichen Prozess.
@@ -69,10 +62,10 @@ Der neue ABBYY State of Intelligent Automation Report gibt Ihnen weitere Einblic
 Diese Studie wurde von Sapio Research im September 2022 im Auftrag von ABBYY durchgeführt. Die Umfrage wurde unter 1.623 Entscheidungsträgern in Großbritannien, den USA, Frankreich, Deutschland und Japan durchgeführt.
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
-  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Über ABBYY
@@ -86,15 +79,22 @@ ABBYY ist ein globales Unternehmen mit Sitz in den USA und Niederlassungen in 14
 ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeichen von ABBYY Software Ltd. Alle anderen Warenzeichen sind Eigentum ihrer jeweiligen Inhaber. 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### ABBYY Pressekontakt
 
 ![02E Eva Mariahufschmitt](https://static4.abbyy.com/abbyycommedia/23663/02e-eva-mariahufschmitt.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Eva-Maria Hufschmitt
 
@@ -119,22 +119,18 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/approved-elite-5-earbuds-youtubes-best-companions/"><u>2024 Approved Elite 5 Earbuds YouTube's Best Companions</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-full-circle-camera-unboxing-and-tests/"><u>2024 Approved Full Circle Camera Unboxing & Tests</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/avchd-mts-converter-for-moto-g-5g-2023-by-aiseesoft-video-converter-play-mts-on-android/"><u>AVCHD MTS Converter for Moto G 5G (2023)</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/emerging-phoenix-pdf-damage-cure/"><u>Emerging Phoenix: PDF Damage Cure</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-tap-into-endless-creativity-our-compilation-of-over-50-free-advertising-masterpieces/"><u>In 2024, Tap Into Endless Creativity – Our Compilation of over 50 FREE Advertising Masterpieces!</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/leveraging-cookiebot-technology-for-improved-website-personalization-and-retargeting/"><u>Leveraging Cookiebot Technology for Improved Website Personalization and Retargeting</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/neil-murphy-lead-revenue-strategist-at-abbyy/"><u>Neil Murphy: Lead Revenue Strategist at ABBYY</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/new-strategic-alliance-abbyy-joins-forces-with-lifeboat-distribution-for-north-american-market-expansion/"><u>New Strategic Alliance: ABBYY Joins Forces with Lifeboat Distribution for North American Market Expansion</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/next-gen-banking-masterclass-on-digital-transformation-and-process-automation/"><u>Next-Gen Banking: Masterclass on Digital Transformation and Process Automation</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/optimizing-your-site-with-advanced-cookiebot-technology/"><u>Optimizing Your Site with Advanced Cookiebot Technology</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/periscope-recording-for-beginners-a-complete-walkthrough/"><u>Periscope Recording for Beginners A Complete Walkthrough</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/strategic-growth-abbyys-commitment-to-expanding-enterprise-solutions-in-early-year-initiatives/"><u>Strategic Growth: Abbyy's Commitment to Expanding Enterprise Solutions in Early-Year Initiatives</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/streamline-your-logistics-the-power-of-smart-automation/"><u>Streamline Your Logistics: The Power of Smart Automation</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/successfully-integrating-ai-and-rpa-a-five-step-guide-leveraging-advanced-process-insight/"><u>Successfully Integrating AI and RPA: A Five-Step Guide Leveraging Advanced Process Insight</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/top-3g-networks-and-plans-for-gamers-on-a-budget-for-2024/"><u>Top 3G Networks & Plans for Gamers on a Budget for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/transformative-tabletop-experience-with-gpt-powered-imagination-boosting/"><u>Transformative Tabletop Experience with GPT-Powered Imagination Boosting</u></a></li>
-<li><a href="https://win-dash.techidaily.com/update-your-hp-deskjet-3755-all-in-one-compatible-driver-software-for-windows-operating-systems-windows-11-8-and-7/"><u>Update Your HP DeskJet 3755 All-In-One: Compatible Driver Software for Windows Operating Systems (Windows 11, 8 & 7)</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-essential-tips-capturing-clear-voice-overs-on-camera/"><u>[Updated] Essential Tips Capturing Clear Voice Overs on Camera</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-exploring-the-prime-linux-screenshot-applications/"><u>[Updated] In 2024, Exploring the Prime Linux Screenshot Applications</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/boosting-efficiency-in-rhenus-logistics-through-abbyy-intelligent-document-processor/"><u>Boosting Efficiency in Rhenus Logistics Through ABBYY Intelligent Document Processor</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/comprehensive-analysis-on-ai-driven-customer-onboarding-key-trends-challenges-and-strategies/"><u>Comprehensive Analysis on AI-Driven Customer Onboarding: Key Trends, Challenges & Strategies</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/continuous-learning/"><u>Continuous Learning</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-enhance-your-sites-data-collection-with-our-advanced-tracking-solutions/"><u>Cookiebot-Enabled: Enhance Your Site's Data Collection with Our Advanced Tracking Solutions</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/enhance-user-experience-with-our-cookiebot-integration-services/"><u>Enhance User Experience with Our Cookiebot Integration Services</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/enhancing-business-efficiency-through-abbyy-signatures-strategic-collaborations-in-process-intelligence/"><u>Enhancing Business Efficiency Through ABBYY Signature's Strategic Collaborations in Process Intelligence</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-vivo-x-flip-phone-without-any-data-loss-by-drfone-android/"><u>How to Unlock Vivo X Flip Phone without Any Data Loss</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-samsung-galaxy-a05-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Samsung Galaxy A05? | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/top-3-methods-leveraging-chatgpts-integration-with-wolfram-language/"><u>Top 3 Methods Leveraging ChatGPT's Integration with Wolfram Language</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/unraveling-and-fixing-0x0000004e-in-windows-1011/"><u>Unraveling and Fixing 0X0000004E in Windows 10/11</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-is-geo-blocking-and-how-to-bypass-it-on-infinix-smart-7-hd-drfone-by-drfone-virtual-android/"><u>What is Geo-Blocking and How to Bypass it On Infinix Smart 7 HD? | Dr.fone</u></a></li>
 </ul></div>
 

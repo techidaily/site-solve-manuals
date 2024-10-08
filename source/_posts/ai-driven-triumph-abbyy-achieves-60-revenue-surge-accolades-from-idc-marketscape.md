@@ -1,7 +1,7 @@
 ---
 title: "AI-Driven Triumph: ABBYY Achieves 60%% Revenue Surge - Accolades From IDC MarketScape"
-date: 2024-09-27T10:28:47.737Z
-updated: 2024-10-03T11:42:57.254Z
+date: 2024-10-07T16:14:46.476Z
+updated: 2024-10-08T16:43:49.847Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d9e5776de3811350c1a1e02825a34775cfed017b7d72a415b115da4cadd107c4.jpg
@@ -38,10 +38,10 @@ Matt Arcaro, IDC’s Research Director, Computer Vision and AI
 ABBYYは、インテリジェントオートメーションエコシステムにおいて影響力のある企業としてアナリストに認められ続けており、Gartner社、Everest Group社、NelsonHall社、GigaOm社の業界アナリスト4社も、ABBYYをインテリジェントドキュメントプロセッシング（IDP）とプロセスマイニングソリューションのリーダーとして位置づけています。ガートナーは、カスタマーサービスおよびサポートテクノロジー、ITマネジメントインテリジェンス、自律型会計、ERP、収益および販売テクノロジーを含む5つの2023年ハイプサイクルレポートでABBYYを取り上げました。
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### ABBYYについて 
@@ -51,10 +51,10 @@ ABBYYは、目的を絞り込んだAIでお客様の情報を活用します。�
 ABBYY は登録商標または商標であり、ABBYY グループ会社のロゴ、会社名 (またはその一部)、製品名の一部である場合もあり、それぞれの所有者の同意なしに使用することはできません。
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049379/7443" target="_top" id="2049379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049379" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049379/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### ABBYY編集部連絡先
@@ -62,10 +62,10 @@ ABBYY は登録商標または商標であり、ABBYY グループ会社のロ�
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Gina Ray
@@ -91,22 +91,18 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-eight-in-one-recorders-free-fast-and-flexible-for-android-users/"><u>[New] In 2024, Eight-in-One Recorders Free, Fast, and Flexible for Android Users</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-mapping-out-the-next-wave-of-social-media-graphs/"><u>[Updated] 2024 Approved Mapping Out the Next Wave of Social Media Graphs</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-unveiling-the-secrets-to-impactful-patient-storytelling-in-video/"><u>[Updated] In 2024, Unveiling the Secrets to Impactful Patient Storytelling in Video</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-shotsizesavvy-fine-tuning-your-social-media-content-for-instagram/"><u>[Updated] ShotSizeSavvy Fine-Tuning Your Social Media Content for Instagram</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-the-top-8-windows-screen-recording-applications/"><u>[Updated] The Top 8 Windows Screen Recording Applications</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-step-by-step-to-stunning-snaps-with-snapseed/"><u>2024 Approved Step-by-Step to Stunning Snaps with Snapseed</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-top-7-best-fmovie-alternatieves/"><u>2024 Approved Top 7 Best Fmovie Alternatieves</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/brian-unruh-takes-on-role-of-cfo-at-abbyy-steering-financial-strategy-forward/"><u>Brian Unruh Takes on Role of CFO at ABBYY, Steering Financial Strategy Forward</u></a></li>
-<li><a href="https://os-tips.techidaily.com/complete-guide-to-using-apples-facetime-app-on-android-phones/"><u>Complete Guide to Using Apple's FaceTime App on Android Phones</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-automation-enhancing-user-experience-and-data-collection/"><u>Cookiebot-Driven Automation: Enhancing User Experience & Data Collection</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-automation-optimizing-your-online-experience/"><u>Cookiebot-Driven Automation: Optimizing Your Online Experience</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-customized-user-experience/"><u>Cookiebot-Driven Customized User Experience</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-growth-unleashing-potential-in-website-optimization-and-conversions/"><u>Cookiebot-Driven Growth: Unleashing Potential in Website Optimization and Conversions</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-optimization-skyrocketing-your-seo-success-overnight/"><u>Cookiebot-Driven Optimization: Skyrocketing Your SEO Success Overnight!</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-success-optimizing-your-website-with-smart-analytics-tools/"><u>Cookiebot-Driven Success: Optimizing Your Website with Smart Analytics Tools</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-optimized-website-performance-and-personalization/"><u>Cookiebot-Enabled: Optimized Website Performance and Personalization</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-after-format-on-blaze-2-5g-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos from Android Gallery after format on Blaze 2 5G</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/xpertly-edited-content-choosing-the-best-editor-for-2024/"><u>[New] Expertly Edited Content Choosing The Best Editor for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-plug-in-proweries-expert-analysis/"><u>[New] In 2024, PLUG-IN PROWERIES Expert Analysis</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-discover-the-magic-behind-effective-youtube-short-videos-for-2024/"><u>[Updated] Discover the Magic Behind Effective YouTube Short Videos for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-unlocking-the-secrets-the-ultimate-guide-to-instagram-stories-mastery-for-2024/"><u>[Updated] Unlocking the Secrets The Ultimate Guide to Instagram Stories Mastery for 2024</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-enhanced-boost-your-sites-performance-and-personalization/"><u>Cookiebot-Enhanced: Boost Your Site's Performance and Personalization</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-the-advanced-tool-behind-exceptional-personalization-and-targeting/"><u>Cookiebot: The Advanced Tool Behind Exceptional Personalization and Targeting</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/customized-audience-tracking-with-cookiebot-enhance-your-websites-engagement/"><u>Customized Audience Tracking with Cookiebot: Enhance Your Website's Engagement</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/discover-the-ultimate-document-conversion-tool-with-abbyy-finereader-14-your-go-to-pdf-and-scan-handler/"><u>Discover the Ultimate Document Conversion Tool with ABBYY FineReader 14 – Your Go-To PDF & Scan Handler!</u></a></li>
+<li><a href="https://extra-information.techidaily.com/discovering-movavis-advanced-video-editor-plus-plus/"><u>Discovering Movavi's Advanced Video Editor Plus +</u></a></li>
+<li><a href="https://howto.techidaily.com/fixing-persistent-pandora-crashes-on-vivo-v29-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixing Persistent Pandora Crashes on Vivo V29 | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-oneplus-ace-2-profrp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your OnePlus Ace 2 ProFRP Lock</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-your-granblue-fantasy-reconnect-on-desktop-systems/"><u>Troubleshooting Your Granblue Fantasy Reconnect on Desktop Systems</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/vdx-pro-video-capture-an-in-depth-analysis/"><u>VDX Pro Video Capture An In-Depth Analysis</u></a></li>
 </ul></div>
 

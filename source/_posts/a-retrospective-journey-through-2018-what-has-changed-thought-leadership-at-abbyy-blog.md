@@ -1,7 +1,7 @@
 ---
 title: "A Retrospective Journey Through 2018: What Has Changed? | Thought Leadership at ABBYY Blog"
-date: 2024-10-02T02:19:17.649Z
-updated: 2024-10-02T21:44:50.895Z
+date: 2024-10-03T16:32:37.556Z
+updated: 2024-10-08T19:31:52.718Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/927eab612ca9394a8dc7ea238a2f885f7ea9117faabc7f0454d2ab57936cb103.png
@@ -105,31 +105,29 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/ed-best-8-youtube-editing-software-for-linux/"><u>[Updated] Best 8 YouTube Editing Software for Linux</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-chip-efficiency-exposed-unleashing-top-notch-editing-performance/"><u>[Updated] Chip Efficiency Exposed Unleashing Top-Notch Editing Performance</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-top-digital-picks-free-alarm-ringtones-download-for-2024/"><u>[Updated] Top Digital Picks Free Alarm Ringtones Download for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-selecting-the-superior-hexacopters/"><u>2024 Approved Selecting the Superior HexaCopters</u></a></li>
 <li><a href="https://solve-manuals.techidaily.com/2024s-top-free-audio-converter-software-a-comprehensive-list-of-the-best-14-programs/"><u>2024'S Top Free Audio Converter Software: A Comprehensive List of the Best 14 Programs</u></a></li>
 <li><a href="https://solve-manuals.techidaily.com/ai-video-editing-software-and-top-recommendations/"><u>AI, Video Editing Software, and Top Recommendations.</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/canon-powershot-sx420-review-42x-optical-zoom-in-a-compact-camera/"><u>Canon PowerShot SX420 Review: 42X Optical Zoom in a Compact Camera</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-messages-files-on-tecno-spark-go-2024-by-fonelab-android-recover-messages/"><u>Complete guide for recovering messages files on Tecno Spark Go (2024)</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/conversione-gratuita-da-avi-a-flv-su-internet-scopri-come-usare-movavi-per-la-tua-conversione-senza-costi-aggiuntivi/"><u>Conversione Gratuita Da AVI a FLV Su Internet - Scopri Come Usare Movavi per La Tua Conversione Senza Costi Aggiuntivi</u></a></li>
 <li><a href="https://solve-manuals.techidaily.com/convertissez-vos-videos-en-un-clin-doeil-avec-movavi-achetez-votre-licence-standard-des-maintenant/"><u>Convertissez Vos Vidéos en Un Clin D'œil Avec Movavi : Achetez Votre Licence Standard Dès Maintenant</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/discover-the-best-places-to-get-free-ebooks-online-top-17-picks/"><u>Discover the Best Places to Get Free eBooks Online - Top 17 Picks!</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/fixing-astro-a50-microphone-issues-step-by-step-guide/"><u>Fixing Astro A50 Microphone Issues: Step-by-Step Guide</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/excelente-software-gratuito-de-captura-de-tela-movavi-compativel-com-pcs-e-notebooks-sem-estresse-ou-custo/"><u>Excelente Software Gratuito De Captura De Tela - MovaVi, Compatível Com PCs E Notebooks Sem Estresse Ou Custo</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/fixing-cyberpunk-2077-pc-instability-issues-a-complete-guide/"><u>Fixing Cyberpunk 2077 PC Instability Issues: A Complete Guide</u></a></li>
 <li><a href="https://solve-manuals.techidaily.com/free-online-conversion-transforming-asf-files-into-mp3-format-with-movavi/"><u>Free Online Conversion: Transforming ASF Files Into MP3 Format with Movavi</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/guia-rapida-para-transformar-tu-musica-ape-directamente-en-mp3-gratuito-online-mediante-movavi/"><u>Guía Rápida Para Transformar Tu Música APE Directamente en MP3 Gratuito Online Mediante Movavi</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-3-ways-to-change-location-on-facebook-marketplace-for-lava-yuva-3-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Change Location on Facebook Marketplace for Lava Yuva 3 | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-forgot-iphone-se-2022-backup-password-heres-what-to-do-drfone-by-drfone-ios/"><u>In 2024, Forgot iPhone SE (2022) Backup Password? Heres What to Do | Dr.fone</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/in-2024-preserving-your-nintendo-switch-experiences-a-guide/"><u>In 2024, Preserving Your Nintendo Switch Experiences A Guide</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-the-best-action-hats-motorcycle-cameras-reviewed-and-ranked/"><u>In 2024, The Best Action Hats Motorcycle Cameras Reviewed and Ranked</u></a></li>
+<li><a href="https://techtrends.techidaily.com/hitachis-cutting-edge-screen-experience-superior-4k-clarity-combined-with-convenient-built-in-roku-features/"><u>Hitachi's Cutting-Edge Screen Experience: Superior 4K Clarity Combined with Convenient Built-In Roku Features</u></a></li>
+<li><a href="https://discover-answers.techidaily.com/how-to-migrate-your-ebooks-from-amazons-kindle-to-kobos-clara-hd/"><u>How to Migrate Your eBooks From Amazon's Kindle to Kobo's Clara HD</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-everything-you-need-to-know-about-lock-screen-settings-on-your-nokia-g310-by-drfone-android/"><u>In 2024, Everything You Need to Know about Lock Screen Settings on your Nokia G310</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-change-your-apple-iphone-13-mini-apple-id-on-macbook-by-drfone-ios/"><u>In 2024, How To Change Your Apple iPhone 13 mini Apple ID on MacBook</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-oppo-a1x-5g-by-drfone-android/"><u>In 2024, The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Oppo A1x 5G</u></a></li>
 <li><a href="https://solve-manuals.techidaily.com/moving-3gp-video-files-online-free-of-charge-with-movavi-omzetten-ingenomheidsbeveiliging/"><u>Moving 3GP Video Files Online Free of Charge with Movavi - Omzetten Ingenomheidsbeveiliging</u></a></li>
 <li><a href="https://solve-manuals.techidaily.com/ogg-mp4mp3/"><u>OGG 형식으로 무료 MP4/MP3 변환 - 원형 이식 기능으로 쉽게 수행하세요!</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/top-10-budget-friendly-video-alteration-journeys-explored/"><u>Top 10 Budget-Friendly Video Alteration Journeys Explored</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/top-tips-para-otimizacao-de-gravacoes-obs-em-2024-com-melavvi-guia-definitivo/"><u>Top Tips Para Otimização De Gravações OBS Em 2024 Com Melavvi: Guia Definitivo</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/transforma-sus-videos-ogm-en-mp4-sin-gastos-usando-el-servicio-en-linea-de-movavi-una-opcion-gratuita-y-eficiente/"><u>Transforma Sus Videos OGM en MP4 Sin Gastos Usando El Servicio en Línea De Movavi: Una Opción Gratuita Y Eficiente</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

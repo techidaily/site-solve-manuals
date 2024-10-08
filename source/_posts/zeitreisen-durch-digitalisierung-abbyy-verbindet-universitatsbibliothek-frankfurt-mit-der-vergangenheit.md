@@ -1,7 +1,7 @@
 ---
 title: Zeitreisen Durch Digitalisierung – ABBYY Verbindet Universitätsbibliothek Frankfurt Mit Der Vergangenheit
-date: 2024-09-29T19:27:20.074Z
-updated: 2024-10-02T16:37:20.462Z
+date: 2024-10-07T18:59:17.018Z
+updated: 2024-10-08T18:24:44.138Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/02e725c673b3c10c639720505ea896a1091c0eab71839b6a6c2629d037059245.jpg
@@ -20,10 +20,10 @@ Education/Research | Education | PDF and Document Conversion
 [Zurück zu den Kundenreferenzen](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Universitätsbibliothek Frankfurt macht mit ABBYY historische Dokumente online verfügbar
@@ -33,10 +33,10 @@ Bildungswesen | PDF- und Dokumentenumwandlung
 ![](https://static1.abbyy.com/abbyycommedia/15018/library-pic1.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047361/19272" target="_top" id="2047361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047361" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036486/19272" target="_top" id="2036486">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036486" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036486/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Über den Kunden
@@ -99,15 +99,22 @@ Nach einer Phase der Adaption lief die OCR-Erkennung reibungslos zur vollsten Zu
 [![3-finereader-engine](https://static2.abbyy.com/abbyycommedia/14346/3-finereader-engine.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FineReader Engine](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2044586/7443" target="_top" id="2044586">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044586" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044586/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [Mehr erfahren](https://tools.techidaily.com/abbyy/products/) 
 
 [![15-education](https://static1.abbyy.com/abbyycommedia/14365/15-education.jpg)](https://tools.techidaily.com/abbyy/products/)") [Bildung und Forschung (EN)](https://tools.techidaily.com/abbyy/products/)") 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [Mehr erfahren](https://tools.techidaily.com/abbyy/products/)") 
 
@@ -122,13 +129,6 @@ Teilen  True ?  : ""
 [Mehr über ABBYY](https://tools.techidaily.com/abbyy/products/) 
 
 [Alle ABBYY-Niederlassungen](https://tools.techidaily.com/abbyy/products/) 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Sind Sie bereit, mit einem Experten zu sprechen?
 
@@ -151,18 +151,18 @@ Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-files.techidaily.com/new-2024-approved-the-dos-and-donts-of-creating-an-authentic-tiktok-version-of-ourselves/"><u>[New] 2024 Approved The Dos and Don'ts of Creating an Authentic TikTok Version of Ourselves</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-complete-guide-to-video-studios-focusing-on-xvideo/"><u>[Updated] Complete Guide to Video Studios Focusing on XVideo</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-intensified-interaction-through-advanced-zoom-settings/"><u>2024 Approved Intensified Interaction Through Advanced ZOOM Settings</u></a></li>
-<li><a href="https://techidaily.com/best-fixes-for-tecno-spark-20-proplus-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Best Fixes For Tecno Spark 20 Pro+ Hard Reset | Dr.fone</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/effective-strategies-for-recording-conferences-using-zoom-skype-and-similar-platforms/"><u>Effective Strategies for Recording Conferences Using Zoom, Skype, and Similar Platforms</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/free-online-converter-mp4-to-wma-format-moveit/"><u>Free Online Converter: MP4 to WMA Format - MoveIt</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/how-to-convert-images-to-gif/"><u>How to Convert Images to GIF</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-navigating-new-media-the-marketers-top-10-ig-editing-platforms/"><u>[New] In 2024, Navigating New Media The Marketer's Top 10 IG Editing Platforms</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-the-ultimate-obs-studio-guide-to-facebook-live-broadcasts-for-2024/"><u>[Updated] The Ultimate OBS Studio Guide to Facebook Live Broadcasts for 2024</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/chargetech-battery-reviewed-unpacking-the-features-of-a-whopping-270nah-unit/"><u>ChargeTech Battery Reviewed: Unpacking the Features of a Whopping 270nAh Unit</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/guia-rapida-para-transformar-tu-musica-ape-directamente-en-mp3-gratuito-online-mediante-movavi/"><u>Guía Rápida Para Transformar Tu Música APE Directamente en MP3 Gratuito Online Mediante Movavi</u></a></li>
+<li><a href="https://change-location.techidaily.com/home-button-not-working-on-xiaomi-14-pro-here-are-real-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Home Button Not Working on Xiaomi 14 Pro? Here Are Real Fixes | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-create-brand-symbols-from-templates-at-no-cost/"><u>In 2024, Create Brand Symbols From Templates at No Cost</u></a></li>
 <li><a href="https://solve-manuals.techidaily.com/los-reproductores-de-video-mas-populares-y-efectivos-para-su-pc-top-12/"><u>Los Reproductores De Video Más Populares Y Efectivos Para Su PC: Top 12</u></a></li>
 <li><a href="https://solve-manuals.techidaily.com/mov-a-aiff-convertitore-online-e-gratuito-utilizzo-di-movemovi/"><u>MOV a AIFF Convertitore Online E Gratuito - Utilizzo Di MoveMovi</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-top-free-animation-tools-for-windows-and-mac-users/"><u>New 2024 Approved Top Free Animation Tools for Windows and Mac Users</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1722958553854-speedy-usb-to-serial-adapter-setup-on-windows-computers-download-now/"><u>Speedy USB to Serial Adapter Setup on Windows Computers - Download Now!</u></a></li>
 <li><a href="https://solve-manuals.techidaily.com/top-8-high-performance-web-browser-microphone-recording-apps/"><u>Top 8 High-Performance Web Browser Microphone Recording Apps</u></a></li>
-<li><a href="https://win-answers.techidaily.com/ultimate-guide-resolving-starfields-freeze-and-crash-problems-on-desktops/"><u>Ultimate Guide: Resolving Starfield's Freeze and Crash Problems on Desktops</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/1726226824751-mp4mp3/"><u>オンラインで手軽にMP4からMP3へ変換!? 無料動画コンバーター</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/top-tips-para-otimizacao-de-gravacoes-obs-em-2024-com-melavvi-guia-definitivo/"><u>Top Tips Para Otimização De Gravações OBS Em 2024 Com Melavvi: Guia Definitivo</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/transforma-sus-videos-ogm-en-mp4-sin-gastos-usando-el-servicio-en-linea-de-movavi-una-opcion-gratuita-y-eficiente/"><u>Transforma Sus Videos OGM en MP4 Sin Gastos Usando El Servicio en Línea De Movavi: Una Opción Gratuita Y Eficiente</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/ultimate-rankings-of-32-no-cost-backup-software-expert-reviews-and-insights/"><u>Ultimate Rankings of 32 No-Cost Backup Software: Expert Reviews and Insights</u></a></li>
 </ul></div>
 

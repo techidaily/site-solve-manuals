@@ -1,7 +1,7 @@
 ---
 title: Exploring ABBYY's Cutting-Edge Solutions for Enhanced Digital Intelligence – Highlights of the Reimagine Conference as Featured on Our Official Blog
-date: 2024-09-28T05:19:38.646Z
-updated: 2024-10-03T12:03:00.549Z
+date: 2024-10-01T18:26:22.762Z
+updated: 2024-10-08T17:15:46.308Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d67db43bd99257f0af99e68e427f312b6fcddd2d0ff0d753e05a7e79c9663b0b.jpg
@@ -49,10 +49,10 @@ On Day 2, you can attend sessions with PwC demonstrating how they are leveraging
 See additional information in the [press release](https://tools.techidaily.com/abbyy/products/) or the [Vantage](https://tools.techidaily.com/abbyy/products/) or [Marketplace](https://tools.techidaily.com/abbyy/products/) web pages.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144280/7443" target="_top" id="2144280">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144280" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144280/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **Discover the entire lifecycle of your documents with ABBYY Timeline for FlexiCapture**
@@ -63,13 +63,6 @@ The Timeline for FlexiCapture solution gives you a single place to track the lif
 
 ![how vantage works](https://static1.abbyy.com/abbyycommedia/32491/how-vantage-works.png)
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
-  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Find out how it can improve customer journey visibility, reduce time and manual effort, and provide end-to-end process visualization in more detail during Day 2 when Ezekiel Mathur presents during his session, Advanced Analytics ABBYY Timeline and ABBYY FlexiCapture Integration and ABBYY FlexiCapture Reporting Services.
 
 Visit the FlexiCapture web page for more information about the [Timeline for FlexiCapture](https://tools.techidaily.com/abbyy/products/) solution.
@@ -77,6 +70,19 @@ Visit the FlexiCapture web page for more information about the [Timeline for Fle
 ### **ABBYY partner ecosystem promotes hyperautomation, value for customers**
 
 ABBYY will have several technology partners share how they integrate ABBYY Digital Intelligence to achieve intelligent automation leveraging multiple tools ranging from machine learning, analytics, process mining, business intelligence, and RPA. The integrated approach promotes what Gartner refers to as hyperautomation using best-in-breed technology. Partners presenting during ABBYY Reimagine sessions include Gold sponsors EXL, Blue Prism, and Alteryx, as well as other technology partners PwC and Capitalize Analytics.
+
+<!-- affiliate ads begin -->
+<span id="1983473">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **ABBYY partners with Capitalize Analytics to deliver end-to-end process insight to achieve operational excellence**
 
@@ -87,10 +93,10 @@ Capitalize leverages industry-leading solutions to enable companies to make bett
 ![digital transformation technology](https://static1.abbyy.com/abbyycommedia/32426/b-4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036472/19272" target="_top" id="2036472">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036472/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 During the ABBYY Reimagine Reveal session, Capitalize demonstrates using the Alteryx platform to analyze and monitor data from multiple sources. It starts with data incoming from unstructured invoices via ABBYY Vantage, customer information sourced from Salesforce, and purchase order information pulled from Microsoft Dynamics and shows how the various data can be fed into ABBYY Timeline for process understanding and also into Excel, Power BI, and Tableau Dashboard for additional analytics information.
@@ -106,10 +112,10 @@ If you are unable to join us live, ABBYY Reimagine sessions will be available on
 ![Bruce Orcutt ABBYY](https://static5.abbyy.com/abbyycommedia/25719/bruceorcutt-99x99.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925565/19272" target="_top" id="1925565">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925565" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925565/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Bruce Orcutt
@@ -183,16 +189,18 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/apturing-emotion-ensuring-authenticity-in-your-youtube-videos-for-2024/"><u>[New] Capturing Emotion Ensuring Authenticity in Your YouTube Videos for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-harvesting-hours-of-hilarity-friends-farming-favorites/"><u>[New] Harvesting Hours of Hilarity Friends' Farming Favorites</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-bringing-dialogue-to-life-writing-for-youtube-videos/"><u>[Updated] In 2024, Bringing Dialogue to Life Writing for YouTube Videos</u></a></li>
-<li><a href="https://blog-min.techidaily.com/1-overcoming-challenges-fixing-a-broken-iphone-post-update-or-jailbreak/"><u>1. Overcoming Challenges: Fixing a Broken iPhone Post-Update or Jailbreak</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-navigating-the-speed-control-interface-on-snapchat/"><u>In 2024, Navigating The Speed Control Interface on Snapchat</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/megoldas-az-mxf-a-mp4-konvertalasa-modjairol-8-as-kiadasu-konverter-tenyezoknek-a-macwindows-rendszerrel/"><u>Megoldás Az MXF a MP4 Konvertálása Módjairol 8-as Kiadású Konverter Tényezőknek A Mac/Windows Rendszerrel</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/movavis-no-cost-ogg-to-aiff-converter-perfect-solution-for-your-file-needs/"><u>Movavi's No-Cost OGG to AIFF Converter - Perfect Solution for Your File Needs!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/1722692790188-the-ultimate-test-reviewing-performance-and-capacity-of-halo-bolt-chargerstarter-combo/"><u>The Ultimate Test: Reviewing Performance and Capacity of Halo Bolt Charger/Starter Combo</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/transformer-des-fichiers-audio-3gp-en-formats-wav-sans-frais-methode-facile-et-gratuit-de-la-plateforme-enligne/"><u>Transformer Des Fichiers Audio 3GP en Formats WAV Sans Frais - Méthode Facile Et Gratuit De La Plateforme Enligne</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/unlocking-your-windows-devices-microsoft-store-error-code-x800704cf/"><u>Unlocking Your Windows Devices: Microsoft Store Error Code X800704CF</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/1726221135878-gif-jpg-movavi/"><u>쉽게 GIF 에서 JPG로 변환하기 – Movavi의 가이드</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-achieving-seamless-group-discussions-in-google-chat-for-2024/"><u>[New] Achieving Seamless Group Discussions in Google Chat for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-selective-complementary-items-for-outstanding-gopros/"><u>[New] Selective Complementary Items for Outstanding GoPros</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-simplifying-the-process-how-to-guide-for-booking-meets-for-2024/"><u>[New] Simplifying the Process How-To Guide for Booking Meets for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-the-definitive-guide-to-live-tweeting-with-reactions/"><u>[Updated] 2024 Approved The Definitive Guide to Live Tweeting with Reactions</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-complete-unpacking-of-ricohs-theta-vr-solution/"><u>[Updated] In 2024, Complete Unpacking of Ricoh's Theta VR Solution</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-eye-appeal-the-top-3-ways-to-increase-instagram-visibility/"><u>2024 Approved Eye Appeal The Top 3 Ways to Increase Instagram Visibility</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1726223221348-3gppwmv-movavi/"><u>無料でスムーズな3GPPへのWMVビデオ変換方法 - Movaviユーザガイド</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/comprehensive-movavi-photo-editor-review-best-buy-options/"><u>Comprehensive Movavi Photo Editor Review - Best Buy Options</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/convertisseur-gratuit-en-ligne-pour-fichier-wma-au-format-mov-movavi/"><u>Convertisseur Gratuit en Ligne Pour Fichier WMA Au Format MOV - Movavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/free-online-converter-swf-to-wmv-by-movavi-no-cost-transformation/"><u>Free Online Converter: SWF to WMV by Movavi - No Cost Transformation</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-which-device-delivers-top-tier-4k-visual-feast/"><u>In 2024, Which Device Delivers Top-Tier 4K Visual Feast?</u></a></li>
+<li><a href="https://win-trending.techidaily.com/spotify-vs-pandora-comparing-music-streaming-services-for-the-ultimate-winner/"><u>Spotify vs Pandora: Comparing Music Streaming Services for the Ultimate Winner</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/ultimate-guide-the-13-premier-recording-tools-for-your-pcs-webcam-on-windows/"><u>Ultimate Guide: The 13 Premier Recording Tools for Your PC's Webcam on Windows</u></a></li>
 </ul></div>
 
