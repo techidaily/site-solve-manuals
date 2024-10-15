@@ -1,7 +1,7 @@
 ---
 title: "Marlin Equity's Investment in ABBYY: Official Announcement & Press Statement"
-date: 2024-10-05T18:04:29.680Z
-updated: 2024-10-08T16:56:49.283Z
+date: 2024-10-09T17:35:57.803Z
+updated: 2024-10-15T02:08:45.068Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f7008ec86977e694421ef724a35a33c6fec32d45741490d50d66c52b24ae9074.jpg
@@ -42,10 +42,16 @@ Upon completion of necessary approvals, Alex Beregovsky will join ABBYY's Board 
 Marlin Equity Partners is a global investment firm with over $7.5 billion of capital under management. The firm focuses on providing corporate parents, shareholders and other stakeholders with tailored solutions that meet their business and liquidity needs. Marlin invests in businesses across multiple industries where its capital base, industry relationships and an extensive network of operational resources significantly strengthen a company’s outlook and enhance value. Since its inception, Marlin, through its group of funds and related companies, has made over 180 investments. The firm is headquartered in Los Angeles, California with an additional office in London. For more information, please visit [www.marlinequity.com](http://www.marlinequity.com/).
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
-  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983475">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### About ABBYY
@@ -55,10 +61,10 @@ ABBYY empowers organizations to gain a complete understanding of their business 
 [ABBYY](https://tools.techidaily.com/abbyy/products/) and the ABBYY Logo are either registered trademarks or trademarks of ABBYY Software Ltd. Other product names mentioned herein may be trademarks and/or registered trademarks of their respective owners and are hereby recognized.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148633/16836" target="_top" id="2148633">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148633" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037318/7443" target="_top" id="2037318">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037318" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148633/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037318/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### ABBYY Editorial Contact
@@ -66,10 +72,10 @@ ABBYY empowers organizations to gain a complete understanding of their business 
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Gina Ray, APR
@@ -96,18 +102,21 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-approaches.techidaily.com/new-the-step-by-step-guide-for-vintage-photo-conversion-and-storage/"><u>[New] The Step-by-Step Guide for Vintage Photo Conversion & Storage</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-mastering-the-art-of-crafting-compelling-content-in-60-second-videos/"><u>[Updated] 2024 Approved Mastering the Art of Crafting Compelling Content in 60-Second Videos</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-secret-story-gazers-manual-for-discreet-instagram-stories-on-desktopmobile/"><u>[Updated] Secret Story Gazer's Manual for Discreet Instagram Stories on Desktop/Mobile</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-unveiling-the-secrets-of-avi-to-gif-transition-filmora-software-windowsmacos/"><u>[Updated] Unveiling the Secrets of AVI to GIF Transition Filmora Software (Windows/macOS)</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/comparing-rpa-and-ipa-understanding-their-distinctive-features/"><u>Comparing RPA and IPA: Understanding Their Distinctive Features</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-solutions-enhancing-digital-experiences/"><u>Cookiebot-Driven Solutions: Enhancing Digital Experiences</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-marketing-tools-for-advanced-user-tracking-and-analysis/"><u>Cookiebot-Enabled Marketing Tools for Advanced User Tracking and Analysis</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-optimize-your-sites-performance-with-advanced-tracking-technology/"><u>Cookiebot-Enabled: Optimize Your Site's Performance with Advanced Tracking Technology</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-enhanced-user-experience-smart-marketing-with-advanced-analytics/"><u>Cookiebot-Enhanced User Experience: Smart Marketing with Advanced Analytics</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-fueled-customized-experiences-enhancing-user-engagement/"><u>Cookiebot-Fueled Customized Experiences: Enhancing User Engagement</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/how-to-fix-non-functioning-voice-chat-in-league-of-legends-step-by-step/"><u>How to Fix Non-Functioning Voice Chat in League of Legends – Step by Step</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/perfecting-image-previews-top-4-win-friendly-viewers/"><u>Perfecting Image Previews: Top 4 Win-Friendly Viewers</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/ultimate-studio-tracker-xvideoexploration/"><u>Ultimate Studio Tracker XVideoExploration</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/he-blueprint-strategies-to-profit-from-youtube-adsense/"><u>[New] The Blueprint Strategies To Profit From YouTube AdSense</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-chorus-chronicles-new-speaker-insights/"><u>[Updated] In 2024, Chorus Chronicles New Speaker Insights</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-in-depth-review-vrs-winning-features-and-faults/"><u>2024 Approved In-Depth Review VR's Winning Features & Faults</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-solutions-enhance-your-websites-performance/"><u>Cookiebot-Enabled Solutions: Enhance Your Website's Performance</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-enhance-your-websites-user-experience-with-advanced-tracking/"><u>Cookiebot-Enabled: Enhance Your Website's User Experience with Advanced Tracking</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-enhancing-your-sites-user-experience-with-personalized-tracking/"><u>Cookiebot-Enabled: Enhancing Your Site's User Experience with Personalized Tracking</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-enhanced-sites-experience-advanced-personalization-and-analytics/"><u>Cookiebot-Enhanced Sites: Experience Advanced Personalization and Analytics</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-enhanced-tailored-experiences-with-smart-tracking-technology/"><u>Cookiebot-Enhanced: Tailored Experiences with Smart Tracking Technology</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/deloitte-et-abbyy-unissent-forces-pour-transformer-les-processus-operationnels-clientiels-par-lautomatisation/"><u>Deloitte Et ABBYY Unissent Forces Pour Transformer Les Processus Opérationnels Clientiels Par L'Automatisation</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/discovering-the-best-in-class-9-microphone-recorders-reviewed/"><u>Discovering the Best in Class 9 Microphone Recorders Reviewed</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/enhance-your-digital-experience-with-memoji-animation-in-facetime-advanced-research-scanners-and-effective-dog-training-tips-discover-whats-new-on-abbyy-blo12/"><u>Enhance Your Digital Experience with Memoji Animation in FaceTime, Advanced Research Scanners, and Effective Dog Training Tips – Discover What's New on ABBYY Blog</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-fake-android-location-without-rooting-for-your-nokia-150-2023-drfone-by-drfone-virtual/"><u>In 2024, Fake Android Location without Rooting For Your Nokia 150 (2023) | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-nubia-red-magic-8s-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Nubia Red Magic 8S Pro+? | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-the-power-of-words-in-podcast-summaries/"><u>In 2024, The Power of Words in Podcast Summaries</u></a></li>
+<li><a href="https://common-error.techidaily.com/1723202777227-tackle-error-code-0x887a0006-easy-fixes-for-immediate-relief/"><u>Tackle Error Code 0X887A0006: Easy Fixes for Immediate Relief</u></a></li>
+<li><a href="https://games-able.techidaily.com/thriving-community-through-board-games-and-card-games-on-discord/"><u>Thriving Community Through Board Games & Card Games on Discord</u></a></li>
 </ul></div>
 

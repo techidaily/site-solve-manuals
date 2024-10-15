@@ -1,7 +1,7 @@
 ---
 title: "Neue Ära Für ABBYY: Industrieveteran Robert Youngjohns Wird Als Geschäftsführer Eingesetzt"
-date: 2024-10-01T16:11:41.838Z
-updated: 2024-10-08T19:25:08.769Z
+date: 2024-10-12T21:43:15.252Z
+updated: 2024-10-15T01:21:21.491Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5f8ab25178398b0800b6345046953e2b2e89a6d9e6a8838419dd9465e3b6b177.jpg
@@ -60,22 +60,31 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-cross-media-content-flow-from-youtube-to-thirtyplus-others/"><u>[New] In 2024, Cross-Media Content Flow From YouTube to Thirty+ Others</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-how-to-zoom-in-on-kinemaster/"><u>[Updated] In 2024, How to Zoom in on Kinemaster?</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/conversion-gratuite-dimage-tiff-en-jpeg-enligne-utilisez-le-service-de-convertisseur-de-movavi/"><u>Conversion Gratuite D'Image TIFF en JPEG Enligne - Utilisez Le Service De Convertisseur De Movavi</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/inspirational-slide-shows-10-best-places-to-download-them-for-free-for-2024/"><u>Inspirational Slide Shows 10 Best Places to Download Them For Free for 2024</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/maximizing-performance-ideal-obs-setup-tips-for-entry-level-desktops-and-laptops/"><u>Maximizing Performance: Ideal OBS Setup Tips for Entry-Level Desktops and Laptops</u></a></li>
-<li><a href="https://windows11.techidaily.com/microsoft-launches-advanced-ai-driven-search-tool-comprehensive-guide-and-recall-details/"><u>Microsoft Launches Advanced AI-Driven Search Tool: Comprehensive Guide and Recall Details</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/newly-announced-macbook-pro-m3-model-pricing-release-timeline-and-comprehensive-specs-covered/"><u>Newly Announced MacBook Pro M3 Model - Pricing, Release Timeline & Comprehensive Specs Covered</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/sharing-screens-seamlessly-across-pc-and-mobile-with-discord/"><u>Sharing Screens Seamlessly Across PC & Mobile with Discord</u></a></li>
-<li><a href="https://win-able.techidaily.com/wave-goodbye-to-game-crashes-expert-fixes-for-a-smooth-run-of-total-war-warhammer-iii-on-pc/"><u>Wave Goodbye to Game Crashes: Expert Fixes for a Smooth Run of TOTAL WAR: WARHAMMER III on PC</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/1726221135878-gif-jpg-movavi/"><u>쉽게 GIF 에서 JPG로 변환하기 – Movavi의 가이드</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-cut-the-hassle-with-macos-easy-to-follow-video-size-adjustment-for-instagram/"><u>[New] In 2024, Cut the Hassle with MacOS Easy-to-Follow Video Size Adjustment for Instagram</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-google-meet-go-live-your-youtube-broadcast-companion/"><u>[New] In 2024, Google Meet Go Live - Your YouTube Broadcast Companion</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-automation-enhancing-user-experience-and-data-collection/"><u>Cookiebot-Driven Automation: Enhancing User Experience & Data Collection</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-automation-optimizing-your-online-experience/"><u>Cookiebot-Driven Automation: Optimizing Your Online Experience</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-customized-user-experience/"><u>Cookiebot-Driven Customized User Experience</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-growth-unleashing-potential-in-website-optimization-and-conversions/"><u>Cookiebot-Driven Growth: Unleashing Potential in Website Optimization and Conversions</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-optimization-skyrocketing-your-seo-success-overnight/"><u>Cookiebot-Driven Optimization: Skyrocketing Your SEO Success Overnight!</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-success-optimizing-your-website-with-smart-analytics-tools/"><u>Cookiebot-Driven Success: Optimizing Your Website with Smart Analytics Tools</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-optimized-website-performance-and-personalization/"><u>Cookiebot-Enabled: Optimized Website Performance and Personalization</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-enhanced-boost-your-sites-performance-and-personalization/"><u>Cookiebot-Enhanced: Boost Your Site's Performance and Personalization</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-the-advanced-tool-behind-exceptional-personalization-and-targeting/"><u>Cookiebot: The Advanced Tool Behind Exceptional Personalization and Targeting</u></a></li>
+<li><a href="https://driver-download.techidaily.com/easy-steps-linksys-wusb6300-driver-setup-and-download-instructions/"><u>Easy Steps: Linksys WUSB6300 Driver Setup and Download Instructions</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/efficient-ways-to-access-windows-troubleshooting-with-hotkeys/"><u>Efficient Ways to Access Windows Troubleshooting with Hotkeys</u></a></li>
+<li><a href="https://win-able.techidaily.com/1723008669317-fix-your-deathloop-starting-problem-with-these-simple-solutions/"><u>Fix Your Deathloop Starting Problem with These Simple Solutions!</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-sharefake-location-on-whatsapp-for-samsung-galaxy-s23-fe-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share/Fake Location on WhatsApp for Samsung Galaxy S23 FE | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-top-10-password-cracking-tools-for-tecno-spark-10-pro-by-drfone-android/"><u>In 2024, Top 10 Password Cracking Tools For Tecno Spark 10 Pro</u></a></li>
+<li><a href="https://win-able.techidaily.com/mp4-to-wav-windows-1011/"><u>MP4 to WAV: 最適なコツがわかるWindows 10/11における高速変換手法</u></a></li>
+<li><a href="https://program-issues.techidaily.com/no-more-freezes-mastering-the-fixes-for-stable-total-war-warhammer-iii-gameplay/"><u>No More Freezes! Mastering the Fixes for Stable Total War: Warhammer III Gameplay</u></a></li>
+<li><a href="https://win-docs.techidaily.com/optimal-ios-email-solutions-your-ultimate-guide-to-mobile-communication-apps/"><u>Optimal iOS Email Solutions: Your Ultimate Guide to Mobile Communication Apps</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

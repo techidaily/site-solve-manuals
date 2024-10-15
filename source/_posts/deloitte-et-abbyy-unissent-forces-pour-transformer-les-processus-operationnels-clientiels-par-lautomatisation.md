@@ -1,7 +1,7 @@
 ---
 title: Deloitte Et ABBYY Unissent Forces Pour Transformer Les Processus Opérationnels Clientiels Par L'Automatisation
-date: 2024-10-04T16:16:53.665Z
-updated: 2024-10-08T18:23:06.048Z
+date: 2024-10-11T20:54:22.740Z
+updated: 2024-10-14T18:16:24.879Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0c6d2fd1a73159563e57dda315b30eb330741092cc6760e2a82edb3563c1b5c8.jpg
@@ -34,10 +34,16 @@ Le célèbre cabinet de conseil et d’étude Everest Group a désigné ABBYY co
 Vous retrouves plus d’infos concernant la technologie d’ABBYY sur [cette page concernant la collaboration avec Deloitte Luxembourg.](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983551">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### À propos de Deloitte Luxembourg
@@ -45,16 +51,10 @@ Vous retrouves plus d’infos concernant la technologie d’ABBYY sur [cette pag
 Avec plus de 130 Partners et 2 300 employés, Deloitte Luxembourg est un des cabinets de conseil professionnels les plus importants, les plus solides et les plus anciens du Grand-Duché. Depuis plus de 70 ans, des équipes talentueuses servent des clients actifs dans des secteurs variés et offrent des services à forte valeur ajoutée à des clients nationaux et internationaux dans les domaines de l’audit et de l’assurance, du conseil, du conseil financier, du conseil en matière de risques, de la fiscalité et des services connexes. Deloitte Luxembourg fait partie du réseau mondial de Deloitte, qui est présent dans plus de 150 pays et territoires et sert quatre entreprises sur cinq du Fortune Global 500\. Découvrez comment les collaborateurs de Deloitte ont un impact sur [www.deloitte.com/lu](http://www.deloitte.com/lu).
 
 <!-- affiliate ads begin -->
-<span id="1492813">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### À propos d’ABBYY
@@ -62,10 +62,10 @@ Avec plus de 130 Partners et 2 300 employés, Deloitte Luxembourg est un des cab
 ABBYY est la force motrice de l’automatisation intelligente. Nous révolutionnons la façon dont les gens travaillent et aidons les entreprises à accélérer leurs opérations en leur apportant l’intelligence qui alimente les plateformes d’automatisation. Nos solutions transforment les données d’entreprise et fournissent les informations nécessaires pour travailler plus intelligemment et plus rapidement. Basé dans les États-Unis et avec des filiales dans quinze pays, nous aidons plus de 5 000 organisations de par le monde, dont un grand nombre d’entreprises du Fortune 500, à faire des progrès au niveau de l’expérience client, la rentabilité et l’avantage concurrentiel. Pour plus d’informations, rendez-vous sur [www.abbyy.com/company/about-us](https://tools.techidaily.com/abbyy/products/) et suivez-nous sur LinkedIn, Twitter et Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Contact presse
@@ -73,10 +73,10 @@ ABBYY est la force motrice de l’automatisation intelligente. Nous révolutionn
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Bianca Stupp
@@ -103,14 +103,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-exploring-hidden-gems-secrets-on-locating-superb-insta-ringtunes-and-creating-noteworthy-chimes/"><u>[New] Exploring Hidden Gems Secrets on Locating Superb Insta-Ringtunes & Creating Noteworthy Chimes</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-elevate-your-videography-insights-on-youtube-studio-editor/"><u>[New] In 2024, Elevate Your Videography Insights on YouTube Studio Editor</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-storing-success-top-strategies-for-mov-and-mov-files-in-windows/"><u>[Updated] In 2024, Storing Success Top Strategies for Mov and .mov Files in Windows</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-the-essential-ai-driven-tool-enhancing-your-websites-seo/"><u>Cookiebot: The Essential AI-Driven Tool Enhancing Your Website's SEO</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-your-key-to-effective-online-user-tracking-and-personalization/"><u>Cookiebot: Your Key to Effective Online User Tracking and Personalization</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/customized-tracking-and-analytics-with-cookiebot-technology/"><u>Customized Tracking & Analytics with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/die-zukunft-der-automatisierten-buchhaltung-schlusselelemente-aus-der-jahrestagung-2023/"><u>Die Zukunft Der Automatisierten Buchhaltung: Schlüsselelemente Aus Der Jahrestagung 2023</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-samsung-galaxy-a14-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Samsung Galaxy A14 4G? | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-bypass-android-lock-screen-using-emergency-call-on-oppo-reno-10-5g-by-drfone-android/"><u>In 2024, How to Bypass Android Lock Screen Using Emergency Call On Oppo Reno 10 5G?</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-ideal-5-add-ons-to-enhance-sea-footage/"><u>[New] Ideal 5 Add-Ons to Enhance Sea Footage</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-streamline-projects-with-free-video-intros/"><u>[New] Streamline Projects with Free Video Intros</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-enhancing-zooms-visual-clarity-tips-and-tricks-for-2024/"><u>[Updated] Enhancing Zoom's Visual Clarity Tips and Tricks for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-expert-tips-streaming-success-using-zoom-and-fb-live/"><u>[Updated] Expert Tips Streaming Success Using ZOOM & FB Live</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/202ncdmp3/"><u>「如何在202n年有效地從CD升級到MP3：初學者友好版指南」</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1-quick-guide-watching-your-videos-anywhere-convert-wmv-files-to-vob-format-with-ease/"><u>1. Quick Guide: Watching Your Videos Anywhere - Convert WMV Files to VOB Format with Ease!</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1726222165241-mpeg-movavi/"><u>電腦平台MPEG靜止及動態視頻形式改變 – Movavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/movavi-vob-mjpeg/"><u>完美解決方法：以Movavi 轉換器將線上VOB文件自動改為 MJPEG格式</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/capturando-solo-una-parte-de-la-pantalla-con-windows/"><u>Capturando Solo Una Parte De La Pantalla Con Windows</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/conversion-gratuita-online-de-archivos-asf-a-avi-mediante-movavi-compruebe-la-oferta-hoy/"><u>Conversión Gratuita Online De Archivos ASF a AVI Mediante Movavi - Compruebe La Oferta Hoy!</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/descargar-y-convertir-archivos-mkv-a-formato-wav-sin-coste-guia-paso-a-paso-con-movavi/"><u>Descargar Y Convertir Archivos MKV a Formato WAV Sin Coste: Guía Paso a Paso Con Movavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/effective-strategies-for-recording-conferences-using-zoom-skype-and-similar-platforms/"><u>Effective Strategies for Recording Conferences Using Zoom, Skype, and Similar Platforms</u></a></li>
+<li><a href="https://discover-forum.techidaily.com/free-online-converter-change-ppm-files-to-png-format-with-movavi/"><u>Free Online Converter: Change PPM Files to PNG Format with Movavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/gratuit-gebaseerd-wma-omzetter-onlinerepti-matige-geheugen-moviva/"><u>Gratuit Gebaseerd WMA-Omzetter: Onlinerepti Matige Geheugen - MoviVa</u></a></li>
+<li><a href="https://techidaily.com/reset-pattern-lock-tutorial-for-infinix-note-30-pro-by-drfone-android-unlock-android-unlock/"><u>Reset pattern lock Tutorial for Infinix Note 30 Pro</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/streamlining-tasks-leveraging-chatgpt-to-enhance-scheduling-skills/"><u>Streamlining Tasks: Leveraging ChatGPT to Enhance Scheduling Skills</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-join-avi-files-for-free-top-10-reliable-freeware-options/"><u>Updated In 2024, Join AVI Files for Free Top 10 Reliable Freeware Options</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/verslind-yahoo-het-nieuws-over-hoeweltingse-e-mails-verwijderd-en-wegleggend-strategieen-voor-herstel/"><u>Verslind Yahoo: Het Nieuws Over Hoeweltingse E-Mails Verwijderd En Wegleggend Strategieën Voor Herstel</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/glwssapoikia-eyxhs-kalhs/"><u>Γλωσσαποικία Ευχής Καλής</u></a></li>
 </ul></div>
 

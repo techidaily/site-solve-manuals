@@ -1,7 +1,7 @@
 ---
 title: "The Next Era in Banking: Predictions for the Rise of Smart Banks Powered by Digital Intelligence - Perspectives by ABBYY Experts"
-date: 2024-10-03T16:46:09.814Z
-updated: 2024-10-08T18:11:26.771Z
+date: 2024-10-10T21:43:31.868Z
+updated: 2024-10-15T01:32:13.679Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f93eb5bd46514b847ac07d099dc18d72eab724476fd27a01a5370f94ffa41df8.jpg
@@ -16,22 +16,15 @@ thumbnail: https://thmb.techidaily.com/f93eb5bd46514b847ac07d099dc18d72eab724476
 French
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Intervenants
 
 ![12 Hugueslebret 198X198](https://static4.abbyy.com/abbyycommedia/35537/comptenickel-logo-forspeakers-124x42.png) 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![12 Hugueslebret 198X198](https://static4.abbyy.com/abbyycommedia/25475/12-hugueslebret-198x198.png)
 
@@ -40,6 +33,13 @@ French
 Founder & CEO, **Compte Nickel**
 
 ![04 Lindaameur 198X198](https://static4.abbyy.com/abbyycommedia/25121/logo-2021-90x27.svg) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![04 Lindaameur 198X198](https://static4.abbyy.com/abbyycommedia/25106/04-lindaameur-198x198.png)
 
@@ -51,15 +51,22 @@ Directrice Commerciale France, **ABBYY**
 
 ![07 Oliviervasseur 198X198](https://static4.abbyy.com/abbyycommedia/25112/07-oliviervasseur-198x198.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Olivier Vasseur
 
 Solution Architect, **ABBYY**
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Description
@@ -70,45 +77,38 @@ Au travers des **cas d'usage,** nous vous montrerons comment nos solutions de Di
 
 Lors de la session Q&A qui clôture cet enregistrement, vous obtiendrez des réponse concrètes à des questions posées par l’audience.
 
-### Regardez maintenant
-
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+### Regardez maintenant
 
 ### Get in touch with us
 
 Please note that progressive profiling is used on this form to incrementally collect profile data over time.   
 All personal information collected via this method is under full scope of all provisions in our privacy policy.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Merci et bon webinaire !
 
 [![06 DI Quelleseralabanquededemain](https://static3.abbyy.com/abbyycommedia/28717/06-di-quelleseralabanquededemain.jpg)](https://www.youtube.com/watch?v=hi2ZsxqJKC0) 
 
-![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
-
 <!-- affiliate ads begin -->
-<span id="1977032">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
+<span id="1155462">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
 #### Vous avez des questions ? [Contactez ABBYY](https://tools.techidaily.com/abbyy/products/)
 
@@ -175,18 +175,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-precision-recording-of-skype-calls-via-obs-network/"><u>[New] In 2024, Precision Recording of Skype Calls via OBS Network</u></a></li>
-<li><a href="https://blog-min.techidaily.com/best-3-software-to-transfer-files-tofrom-your-itel-s23plus-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Best 3 Software to Transfer Files to/from Your Itel S23+ via a USB Cable | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-vpna-to-fake-gps-location-on-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>Complete Tutorial to Use VPNa to Fake GPS Location On Apple iPhone 13 mini | Dr.fone</u></a></li>
-<li><a href="https://fox-making.techidaily.com/efficient-file-transfer-mastering-the-copy-and-move-box-wizard/"><u>Efficient File Transfer: Mastering the Copy and Move Box Wizard</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-full-analysis-and-how-to-the-ultimate-picsart-experience/"><u>In 2024, Full Analysis and How-To The Ultimate PicsArt Experience</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-motorola-edge-2023-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Snapchat Location Spoofer to Protect Your Privacy On Motorola Edge 2023? | Dr.fone</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/in-2024-showdown-of-streamers-which-platform-rules-obs-or-twitch-studio/"><u>In 2024, Showdown of Streamers Which Platform Rules, OBS or Twitch Studio?</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-unraveling-adobe-writes-on-shake-reduction-in-photos/"><u>In 2024, Unraveling Adobe’ Writes on Shake Reduction in Photos</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/maximize-site-engagement-using-the-innovative-capabilities-of-cookiebot/"><u>Maximize Site Engagement Using the Innovative Capabilities of Cookiebot</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/new-features-and-renaming-from-abbyy-recognition-server-to-abbyy-finereader-server/"><u>New Features and Renaming: From ABBYY Recognition Server to ABBYY FineReader Server</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/ninety-percent-of-businesses-miss-out-on-prospective-buyers-due-to-inadequate-online-onboarding-experiences/"><u>Ninety Percent of Businesses Miss Out on Prospective Buyers Due to Inadequate Online Onboarding Experiences</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/revolutionize-your-scanning-workflow-with-abbyys-ocr-software-development-kit-for-precise-text-extraction-and-analysis/"><u>Revolutionize Your Scanning Workflow with ABBYY's OCR Software Development Kit for Precise Text Extraction and Analysis</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/unveiling-the-latest-in-computing-with-toms-hardware-insights-t17239718720818/"><u>Unveiling the Latest in Computing with Tom's Hardware Insights</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-capturing-iphone-7-screen-a-step-by-step-guide/"><u>[New] 2024 Approved Capturing iPhone 7 Screen A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-solving-shorts-thumbnail-absence-on-youtube/"><u>[New] In 2024, Solving Shorts Thumbnail Absence on YouTube</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-a-symphony-of-shades-practical-color-utilization/"><u>[Updated] In 2024, A Symphony of Shades Practical Color Utilization</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-recording-titans-collide-for-2024/"><u>[Updated] Recording Titans Collide for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-video-masterclass-crafting-youtube-trailers-using-filmora/"><u>[Updated] Video Masterclass Crafting YouTube Trailers Using Filmora</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1-david-yang-visionary-behind-abbyy-leading-with-strategic-insight-as-board-chairman/"><u>1. David Yang: Visionary Behind ABBYY, Leading with Strategic Insight as Board Chairman</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/abbyy-crowned-fourth-consecutive-leader-of-the-peak-matrix-for-everest-groups-2022-idp-assessment/"><u>ABBYY Crowned Fourth Consecutive Leader of the Peak Matrix® for Everest Group's 2022 IDP Assessment</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/abbyy-digital-identity-verification-enters-the-french-market/"><u>ABBYY Digital Identity Verification Enters the French Market</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/abbyy-holt-zwei-zwei-qualifizierte-experten-ersetzen-die-aktuellen-fuhrungskrafte/"><u>ABBYY Holt Zwei: Zwei Qualifizierte Experten Ersetzen Die Aktuellen Führungskräfte</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/achieve-optimal-wellness-with-our-curated-selection-of-8-chatgpt-plugins/"><u>Achieve Optimal Wellness with Our Curated Selection of 8 ChatGPT Plugins</u></a></li>
+<li><a href="https://program-issues.techidaily.com/fixes-for-batman-arkham-knight-crashing-and-critical-bugs/"><u>Fixes for Batman: Arkham Knight Crashing and Critical Bugs</u></a></li>
+<li><a href="https://fox-links.techidaily.com/master-techniques-for-longevity-in-gopro-batteries-for-2024/"><u>Master Techniques for Longevity in GoPro Batteries for 2024</u></a></li>
+<li><a href="https://win-best.techidaily.com/safeguard-your-hotmail-correspondence-with-these-3-strategies-for-exterior-hard-disk-preservation/"><u>Safeguard Your Hotmail Correspondence with These 3 Strategies for Exterior Hard Disk Preservation</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/seamless-pdf-conversion-and-text-extraction-using-abbyys-powerful-ocr-software-development-kit/"><u>Seamless PDF Conversion & Text Extraction Using ABBYY's Powerful OCR Software Development Kit</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/techtarget-predicts-soaring-rise-workforce-of-software-robots-to-surge-by-half-in-coming-years/"><u>TechTarget Predicts Soaring Rise: Workforce of Software Robots to Surge by Half in Coming Years</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/top-ranked-transpo-cost-control-firm-accelerates-bill-approvals-via-intelligent-data-systems/"><u>Top-Ranked Transpo Cost Control Firm Accelerates Bill Approvals via Intelligent Data Systems</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/unlocking-advanced-features-with-cookiebot-technology-integration/"><u>Unlocking Advanced Features with Cookiebot Technology Integration</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/voicing-love-languages-in-the-hungarian-context/"><u>Voicing Love Languages in the Hungarian Context</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/zeitreisen-durch-digitalisierung-abbyy-verbindet-universitatsbibliothek-frankfurt-mit-der-vergangenheit/"><u>Zeitreisen Durch Digitalisierung – ABBYY Verbindet Universitätsbibliothek Frankfurt Mit Der Vergangenheit</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: IDP革命帷幄，IDP斐然！ - Revolutionary Victories in Investment Decision Processes!
-date: 2024-10-06T16:51:24.775Z
-updated: 2024-10-08T16:59:50.407Z
+date: 2024-10-13T19:17:14.540Z
+updated: 2024-10-14T20:47:44.012Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/dbe86ec4eee57de28307f7a87e5d2dc26b222d4d704a45568094d723e05d6df4.jpg
@@ -23,33 +23,33 @@ January 18, 2023
 
 この変革の中核にあるのは、実は何十年も前から存在する「光学文字認識 (OCR)」と呼ばれる技術です。かつては単にテキストをデジタル化するツールでしたが、OCR は現在、高品質なデータを使って大規模言語モデル (LLM) を学習させる上で欠かせない役割を果たしています。単純なテキスト変換ツールから高度なデータ供給者への進化は、IDP 技術の適応性と持続的な重要性を示しています。従来の IDP は、精度とコンテキストが最優先される新しい時代への道を切り開いているのです。
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938677/19272" target="_top" id="1938677">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938677" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938677/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 実世界での応用と課題
 
 今日の [OCR](https://tools.techidaily.com/abbyy/products/)は、単にテキストを読むだけでなく、テキスト全体を理解することが求められます。企業はこれまで以上に高い精度とより深いデータ洞察を求めているため、IDP技術はより高度で微妙なニュアンスを理解する必要があります。しかし、この進化には課題もあります。精度とコンテキスト理解のバランスが重要になってきます。AI システムに投入するデータは、正確であるだけでなく、文脈的にも関連性があるものであることをどのように保証するのでしょうか？
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424527">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### インテリジェント文書処理（IDP）の未来
 
 本当に理解力のある「IDP」こそが、データとAIに対する考え方そのものを革新し、未来を切り拓く鍵となります。単に文書を処理するだけでなく、内容を理解し、データだけでなくそこからインサイトを引き出すシステムの構築が求められています。 この新しいIDPこそが、絶え間なく進化を遂げるAIのランドマークとなり、より知的で効率的、そして直感的なシステム構築において欠かせない要素となるでしょう。
-
-<!-- affiliate ads begin -->
-<span id="1975636">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 現代のIDPの内幕
 
@@ -66,13 +66,6 @@ January 18, 2023
 #### 継続的な学習と適応
 
 現代の IDP システムの真髄は、継続的に学習して向上できる点にあります。フィードバックループを取り入れることで、これらのシステムはアルゴリズムを改良し、新しいタイプのドキュメントに適応し、時間の経過とともに精度を向上させることができます。この継続的な学習プロセスにより、ドキュメントの種類や形式が進化し続ける中でも、IDP の関連性と有効性が維持されます。
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037334/7443" target="_top" id="2037334">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037334" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037334/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 大規模言語モデル（LLM）学習における高品質データの役割
 
@@ -98,6 +91,19 @@ IDP プロセスは、データ収集から始まります。OCR などの IDP �
 
 学習が完了すると、LLM は厳格なテストと検証を受けます。これには、LLM がさまざまな分野、スタイル、フォーマットの言語を理解し生成する能力をチェックすることが含まれます。この段階からのフィードバックは、学習ループにフィードバックされ、LLM の能力をさらに向上させます
 
+<!-- affiliate ads begin -->
+<span id="1424528">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 新時代の幕開け
 
 「IDP崩御、IDP万歳！」という宣言は決して矛盾ではなく、テクノロジーのしなやかさと進化の証なのです。私たちはかつての IDP を乗り越え、より高度で AI エコシステムの不可欠な部分へと変革を遂げました。インテリジェント文書処理と人工知能の新時代の幕開けを目の当たりにし、この進化を共に歩むことができる、ということは実に嬉しいことです。
@@ -107,10 +113,10 @@ ABBYY が 4 年連続で IDP リーダーに選出された理由をご報告書
 ![Maxime Vermier ABBYY](https://static3.abbyy.com/abbyycommedia/37004/maxime-vermeir_110x110-1.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Maxime Vermeir
@@ -180,18 +186,22 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-crafting-cinematic-magic-making-your-instagram-videos-shine/"><u>[Updated] 2024 Approved Crafting Cinematic Magic Making Your Instagram Videos Shine</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-snap-protection-android-and-mac-app-recommendations/"><u>[Updated] Snap Protection Android & Mac App Recommendations</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-innovative-filmmaking-methods-for-multidevice-integration/"><u>2024 Approved Innovative Filmmaking Methods for Multidevice Integration</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/1726221590413-movavi/"><u>網路無限財富指數還本 - Movavi</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/easy-and-fast-transformation-of-wmv3gp-to-other-formats-for-free-by-movavicom/"><u>Easy and Fast Transformation of WMV/3GP to Other Formats for Free by Movavi.com</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/full-guide-to-unlock-apple-iphone-14-pro-max-with-itunes-drfone-by-drfone-ios/"><u>Full Guide to Unlock Apple iPhone 14 Pro Max with iTunes | Dr.fone</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/get-the-latest-version-of-sapphire-drivers-free-downloads-and-tutorials-for-windows-pcs/"><u>Get the Latest Version of Sapphire Drivers - Free Downloads and Tutorials for Windows PCs</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/neprerazovaci-video-playback-fix-pokus-o-vydarani-pryc-pocitace/"><u>Nepřerazovací Video Playback Fix - Pokus O Vydárání Pryč Počítače</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/shielding-from-swindles-real-vs-fake-gpts/"><u>Shielding From Swindles: Real vs Fake GPTs</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/1726224457959-swf-movavi/"><u>SWF 비디오를 정교하게 조리하고 전통 제품에서 MOVavi 라이브 스타일로 커스터마이트화</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/verbeterde-instructies-om-vlc-permanente-hoepel-titels-te-behoudend-toezicht-te-krijgen/"><u>Verbeterde Instructies Om VLC Permanente Hoepel Titels Te Behoudend Toezicht Te Krijgen</u></a></li>
-<li><a href="https://howto.techidaily.com/why-does-my-oppo-reno-9a-keep-turning-off-by-itself-6-fixes-are-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Does My Oppo Reno 9A Keep Turning Off By Itself? 6 Fixes Are Here | Dr.fone</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/7ywn7iqk7yq466w8ioycroynhoycvouhncdrsjtqvrjslrqg66ek66cl7lcsiouvuoulioyyge2zlcdrp4zrk5zqula/"><u>텍스트를 사진으로 바꾸어 매력찬 미니영화 만드기</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-mastering-screen-recordings-on-windows-10-systems-for-2024/"><u>[New] Mastering Screen Recordings on Windows 10 Systems for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-how-to-get-up-close-with-video-chat-colleagues/"><u>[Updated] In 2024, How to Get Up Close with Video Chat Colleagues</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-inbuilt-screen-capture-huaweis-mate-series-and-p-lineup-phones/"><u>[Updated] Inbuilt Screen Capture Huawei's Mate Series & P Lineup Phones</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/automated-with-cookiebot-enhancing-your-websites-engagement/"><u>Automated with Cookiebot: Enhancing Your Website's Engagement</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/boosting-web-traffic-with-cookiebot-technology-a-game-changer-for-seo-success/"><u>Boosting Web Traffic with Cookiebot Technology: A Game Changer for SEO Success</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/comment-abbyy-renforce-sa-plateforme-timeline-avec-des-fonctionnalites-supplementaires-pour-aider-les-entreprises-a-atteindre-leurs-cibles-operationnelles.m6/"><u>Comment ABBYY Renforce Sa Plateforme Timeline Avec Des Fonctionnalités Supplémentaires Pour Aider Les Entreprises À Atteindre Leurs Cibles Opérationnelles</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-personalization-boosting-your-sites-seo-performance/"><u>Cookiebot-Driven Personalization: Boosting Your Site's SEO Performance</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-site-enhanced-user-experience-and-advanced-tracking/"><u>Cookiebot-Enabled Site: Enhanced User Experience and Advanced Tracking</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-optimize-your-site-with-smart-tracking-technology/"><u>Cookiebot-Enabled: Optimize Your Site with Smart Tracking Technology</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/effective-onboarding-strategies-harmonizing-client-trust-and-anti-fraud-measures/"><u>Effective Onboarding Strategies: Harmonizing Client Trust and Anti-Fraud Measures</u></a></li>
+<li><a href="https://win-data.techidaily.com/effortless-steps-for-accessing-dispatched-messages-within-microsofts-shared-outlook-accounts-office-365/"><u>Effortless Steps for Accessing Dispatched Messages Within Microsoft's Shared Outlook Accounts (Office 365)</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/empowering-online-visibility-with-advanced-cookiebot-features/"><u>Empowering Online Visibility with Advanced Cookiebot Features</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/gpu-acelerada-winx-hd-video-conversion-pro-editing-y-redimensionamiento-de-videos-con-eficiencia/"><u>GPU-Acelerada WinX HD Video Conversion Pro: Editing Y Redimensionamiento De Vídeos Con Eficiencia</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-reimagine-your-snapchat-chats-with-ease-voice-change-guides-here/"><u>In 2024, Reimagine Your Snapchat Chats with Ease Voice Change Guides Here</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/raphic-forecast-the-2023-social-landscape/"><u>Infographic Forecast The 2023 Social Landscape</u></a></li>
+<li><a href="https://windows11.techidaily.com/quick-access-to-troubleshooters-in-windows-11-with-custom-keys/"><u>Quick Access to Troubleshooters in Windows 11 with Custom Keys</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-lost-data-from-oppo-find-n3-by-fonelab-android-recover-data/"><u>Recover lost data from Oppo Find N3</u></a></li>
 </ul></div>
 

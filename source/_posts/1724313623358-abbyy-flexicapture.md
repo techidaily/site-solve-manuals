@@ -1,7 +1,7 @@
 ---
 title: "高付加価値への転換:ABBYY FlexiCapture®による請求書プロセス改革とデジタル技術活用"
-date: 2024-10-02T18:52:36.909Z
-updated: 2024-10-08T16:06:16.877Z
+date: 2024-10-07T16:41:57.606Z
+updated: 2024-10-15T02:09:16.802Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4546ddfed47c887fd8822a083e53e55a360fbac19fd97cadc5d42f68a2d04c9c.png
@@ -20,13 +20,6 @@ Consulting | Accounts Payable Automation
 
 [お客様のストーリーに戻る](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 請求書処理の効率化を目指してABBYY FlexiCapture®を採用   
  デジタル技術の活用により非生産的な業務にかかるリソースを高付加価値の業務にシフト
 
@@ -34,15 +27,22 @@ Consulting | Accounts Payable Automation
 
 ![](https://static1.abbyy.com/abbyycommedia/33006/05-abeam-ja-cover-556x303.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
+  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### お客様の概要
 
 ![アビームコンサルティング株式会社](https://static3.abbyy.com/abbyycommedia/33009/05c-abeam-ja-logo-182x44.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934254/19272" target="_top" id="1934254">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934254" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934254/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 | 氏名     | アビームコンサルティング株式会社                                   |
@@ -136,22 +136,21 @@ FlexiCaptureは、オンプレミス／クラウド／SDKで利用できる多�
 
 [![請求書処理の自動化](https://static4.abbyy.com/abbyycommedia/14351/1-accounts-payable.jpg)](https://tools.techidaily.com/abbyy/products/) [請求書処理の自動化](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [詳細を読む](https://tools.techidaily.com/abbyy/products/) 
 
 [![PDF版](https://static5.abbyy.com/abbyycommedia/33010/05d-abeam-ja-cover-360x162.jpg)](https://static4.abbyy.com/abbyycommedia/33191/customer-story-abeam-ja.pdf "PDF版") [PDF版](https://static4.abbyy.com/abbyycommedia/33191/customer-story-abeam-ja.pdf "PDF版") 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997690/19272" target="_top" id="1997690">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997690" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997690/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [詳細を読む](https://static4.abbyy.com/abbyycommedia/33191/customer-story-abeam-ja.pdf "PDF版") 
@@ -163,6 +162,13 @@ FlexiCaptureは、オンプレミス／クラウド／SDKで利用できる多�
 [ABBYYについて](https://tools.techidaily.com/abbyy/products/) 
 
 [お問い合わせ](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 専門家に相談する準備はできていますか?
 
@@ -185,18 +191,22 @@ FlexiCaptureは、オンプレミス／クラウド／SDKで利用できる多�
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/updated-immersive-editing-unveiling-the-top-15-cine-luts-for-action-cam/"><u>[Updated] Immersive Editing Unveiling the Top 15 Cine LUTs for Action Cam</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-expert-audio-enhancement-toolkit/"><u>[Updated] In 2024, Expert Audio Enhancement Toolkit</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/movavi-mpegwav/"><u>立即無限制下載Movavi MPEG到WAV格式的自由轉換工具 - 在線上</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/all-you-need-to-know-about-the-future-galaxy-unpacking-costs-launch-date-and-specs-for-the-prospective-samsung-s25-ultra/"><u>All You Need to Know About the Future Galaxy: Unpacking Costs, Launch Date & Specs for the Prospective Samsung S25 Ultra</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/boost-your-sites-analytics-using-our-advanced-cookiebot-technology/"><u>Boost Your Site's Analytics Using Our Advanced Cookiebot Technology</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/boosting-metro-ags-wholesale-transactions-abbyy-speeds-up-customer-payments-by-90/"><u>Boosting Metro AG's Wholesale Transactions: ABBYY Speeds Up Customer Payments by 90%</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/brian-unruh-takes-on-role-of-cfo-at-abbyy-steering-financial-strategy-forward/"><u>Brian Unruh Takes on Role of CFO at ABBYY, Steering Financial Strategy Forward</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-automation-enhancing-user-experience-and-data-collection/"><u>Cookiebot-Driven Automation: Enhancing User Experience & Data Collection</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-automation-optimizing-your-online-experience/"><u>Cookiebot-Driven Automation: Optimizing Your Online Experience</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-customized-user-experience/"><u>Cookiebot-Driven Customized User Experience</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/eliminating-opengl-error-3-nvidia-solutions-win1011/"><u>Eliminating OpenGL Error 3: Nvidia Solutions (Win10/11)</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-honor-x8b-phone-without-password-by-drfone-android/"><u>In 2024, How To Unlock Honor X8b Phone Without Password?</u></a></li>
-<li><a href="https://win-rankings.techidaily.com/save-big-with-zdnet-secure-microsofts-top-tier-pro-licenses-for-project-and-visio-at-only-20/"><u>Save Big with ZDNet: Secure Microsoft's Top-Tier Pro Licenses for Project and Visio at Only $20!</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-top-chrome-browser-vocal-transformers-revealed-for-enthusiast-users/"><u>[New] Top Chrome Browser Vocal Transformers Revealed for Enthusiast Users</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-dual-method-strategies-boosting-tiktok-visibility/"><u>[Updated] Dual-Method Strategies Boosting TikTok Visibility</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-harnessing-hashtags-elevating-your-youtube-gaming-series/"><u>[Updated] In 2024, Harnessing Hashtags Elevating Your YouTube Gaming Series</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1726223557441-movavijpg/"><u>「Movaviで簡単なJPGへの変換 - 無料オンラインツール」</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-breakthrough-media-tools-to-complement-xsplit/"><u>2024 Approved Breakthrough Media Tools to Complement XSplit</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-unlocking-fullscreen-potential-in-adobe-premiere/"><u>2024 Approved Unlocking Fullscreen Potential in Adobe Premiere</u></a></li>
+<li><a href="https://solve-lab.techidaily.com/1728486952696-windows-11/"><u>修復Windows 11 磁區劃分失敗：最有力的重建技術</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cambiar-videoes-mjpeg-a-otros-formatos-gratis-con-conversion-online-de-movavi/"><u>Cambiar Videoes .mjpeg a Otros Formatos Gratis Con Conversión Online De Movavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/conversion-bmp-a-tiff-gratuite-sur-ligne-utilisez-movavi/"><u>Conversion BMP À TIFF Gratuite Sur Ligne - Utilisez Movavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/hoe-je-beeld-van-rechts-het-onderscheppen-kun-je-met-movavis-foto-draaidorser/"><u>Hoe Je Beeld Van Rechts Het Onderscheppen Kun Je Met Movavi's Foto Draaidorser</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-xiaomi-redmi-k70-location-by-number-drfone-by-drfone-virtual-android/"><u>How to Track Xiaomi Redmi K70 Location by Number | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-ultimate-guide-on-honor-100-pro-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide on Honor 100 Pro FRP Bypass</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/movavis-easy-guide-convert-aif-files-into-high-quality-m4a-format-at-no-cost/"><u>Movavi's Easy Guide - Convert AIF Files Into High-Quality M4A Format at No Cost</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/movavis-free-web-service-convert-videos-from-flv-format-to-swf-online-instantly/"><u>Movavi's Free Web Service: Convert Videos From FLV Format to SWF Online Instantly!</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/os-9-melhores-concorrentes-gratuitos-online-ideais-para-fazer-videos-perfeitos-no-youtube/"><u>Os 9 Melhores Concorrentes Gratuitos Online Ideais Para Fazer Vídeos Perfeitos No YouTube</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/the-ultimate-checklist-for-achieving-high-quality-vocal-recordings/"><u>The Ultimate Checklist for Achieving High-Quality Vocal Recordings</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/understanding-bmp-files-a-comprehensive-guide-on-the-basics-of-bmp-images-and-viewing-them/"><u>Understanding BMP Files: A Comprehensive Guide on the Basics of .bmp Images & Viewing Them</u></a></li>
 </ul></div>
 

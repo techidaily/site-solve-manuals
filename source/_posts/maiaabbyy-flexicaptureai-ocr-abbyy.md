@@ -1,7 +1,7 @@
 ---
 title: "人工知能文字認識の新時代:株式会社MAIAがABBYY FlexiCapture用に最適化したAI-OCR学習キット - ABBYYニュース"
-date: 2024-10-05T17:39:18.513Z
-updated: 2024-10-08T18:42:38.281Z
+date: 2024-10-07T23:30:26.576Z
+updated: 2024-10-15T00:35:03.519Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1dd490a8bd0fd9490b2a1a7e2f3e07f4fe288167493a224a8c1401933c662484.jpeg
@@ -59,28 +59,29 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-upgrade-your-video-playback-activating-av1-on-youtube/"><u>[New] Upgrade Your Video Playback Activating AV1 on YouTube</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-guiding-principles-for-hiring-high-caliber-film-makers/"><u>[Updated] Guiding Principles for Hiring High-Caliber Film Makers</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/ai-ocr-abbyy/"><u>「テガキを駆使したAI OCR: 手書き文字認識におけるコゲントラボ対フレックスキャプチャーの完璧な合体」 - ABBYYブログ</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/abbyy-introduces-advanced-artificial-intelligence-powered-cloud-solution-for-enhanced-document-insight-and-rapid-data-analysis/"><u>ABBYY Introduces Advanced Artificial Intelligence-Powered Cloud Solution for Enhanced Document Insight and Rapid Data Analysis</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/abbyy-steigert-effizienz-von-munchens-bauakten-durch-digitalisierung/"><u>ABBYY Steigert Effizienz Von Münchens Bauakten Durch Digitalisierung</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/advanced-analytics-and-personalization-enabled-by-cookiebot-inspired-technology/"><u>Advanced Analytics and Personalization Enabled by Cookiebot-Inspired Technology</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/automated-traffic-management-with-the-advanced-capabilities-of-cookiebot/"><u>Automated Traffic Management with the Advanced Capabilities of Cookiebot</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/automation-insights-robotics-employment-and-advanced-text-analysis-on-the-abbeyb-log/"><u>Automation Insights - Robotics, Employment & Advanced Text Analysis on the ABBEYB Log</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/boosting-site-engagement-with-advanced-cookiebot-tracking-solutions/"><u>Boosting Site Engagement with Advanced Cookiebot Tracking Solutions</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-contacts-from-realme-c67-5g-by-fonelab-android-recover-contacts/"><u>How to Rescue Lost Contacts from Realme C67 5G?</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-a-guide-honor-magic-6-pro-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>In 2024, A Guide Honor Magic 6 Pro Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
-<li><a href="https://article-helps.techidaily.com/in-2024-capturing-the-moment-expert-tips-for-amazing-android-slow-mo-videos/"><u>In 2024, Capturing the Moment Expert Tips for Amazing Android Slow Mo Videos</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-realme-narzo-n53-phone-without-password-by-drfone-android/"><u>In 2024, How To Unlock Realme Narzo N53 Phone Without Password?</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-use-allshare-cast-to-turn-on-screen-mirroring-on-oppo-k11-5g-drfone-by-drfone-android/"><u>In 2024, How To Use Allshare Cast To Turn On Screen Mirroring On Oppo K11 5G | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-vivo-v30-pro-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Vivo V30 Pro? | Dr.fone</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/understanding-group-dynamics-in-zoom-sessions/"><u>Understanding Group Dynamics in Zoom Sessions</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-the-vimeo-story-a-hub-for-exclusive-film-content/"><u>[New] In 2024, The Vimeo Story A Hub for Exclusive Film Content</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-camstudio-2023-screen-recorder-insights-and-reviews/"><u>[Updated] CamStudio 2023 Screen Recorder Insights & Reviews</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/advanced-personalization-through-cookiebot-integration-transform-your-site/"><u>Advanced Personalization Through Cookiebot Integration – Transform Your Site!</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/analyse-der-digitalen-transformation-von-unternehmensprozessen-durch-abbyy-und-fraunhofer/"><u>Analyse Der Digitalen Transformation Von Unternehmensprozessen Durch ABBYY Und Fraunhofer</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/automated-data-tracking-with-cutting-edge-cookiebot-technology/"><u>Automated Data Tracking with Cutting-Edge Cookiebot Technology</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/automatisierte-rechnungsbearbeitung-bei-pepsico-mit-hilfe-von-abbyy-software/"><u>Automatisierte Rechnungsbearbeitung Bei PepsiCo Mit Hilfe Von ABBYY Software</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/charting-the-path-of-auto-advancement-in-insurtech-an-idc-visual-guide/"><u>Charting the Path of Auto-Advancement in InsurTech: An IDC Visual Guide</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/convert-pdfs-and-jpgs-of-documentsbooks-into-editable-text-scan-ocr-and-read-effortlessly-on-iphone-with-finereader-app/"><u>Convert PDFs & JPGs of Documents/Books Into Editable Text: Scan, OCR, and Read Effortlessly on iPhone with FineReader App</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-data-insights-for-enhanced-digital-campaigns/"><u>Cookiebot-Driven Data Insights for Enhanced Digital Campaigns</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-technology-enhancing-your-websites-performance/"><u>Cookiebot-Driven Technology: Enhancing Your Website's Performance</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-videos-from-vivo-x100-pro-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Videos from Vivo X100 Pro to iPad | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-3-ways-to-change-location-on-facebook-marketplace-for-vivo-y200e-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Change Location on Facebook Marketplace for Vivo Y200e 5G | Dr.fone</u></a></li>
+<li><a href="https://driver-error.techidaily.com/long-hours-no-pain-a-closer-look-at-the-ergohead-standing-desk-mat-experience/"><u>Long Hours, No Pain: A Closer Look at the ErgoHead Standing Desk Mat Experience</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/master-money-making-on-reddit-in-just-a-few-simple-steps-for-2024/"><u>Master Money-Making on Reddit in Just a Few Simple Steps for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/step-by-step-instructions-to-fix-unresponsive-function-fn-keys-in-dell-notebooks/"><u>Step-by-Step Instructions to Fix Unresponsive Function (Fn) Keys in Dell Notebooks</u></a></li>
+<li><a href="https://os-tips.techidaily.com/unstick-your-idevice-from-update-process-with-easy-troubleshooting-techniques/"><u>Unstick Your iDevice From Update Process with Easy Troubleshooting Techniques</u></a></li>
+<li><a href="https://program-issues.techidaily.com/update-issues-with-minecrafts-default-launcher-heres-how-you-can-solve-them/"><u>Update Issues with Minecraft's Default Launcher? Here's How You Can Solve Them!</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557742/17382" target="_top" id="1557742">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557742" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557742/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "Streamline Your Logistics: The Power of Smart Automation"
-date: 2024-10-06T16:19:34.691Z
-updated: 2024-10-08T18:47:00.145Z
+date: 2024-10-08T19:26:03.034Z
+updated: 2024-10-14T22:23:11.908Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/907f940c68ac3ee45f8b59683cc047cc04665184817513adef7255fa53df8a70.jpg
@@ -18,10 +18,10 @@ eBook
 ![](https://static1.abbyy.com/abbyycommedia/37819/ebook-use-case-financial-services-intelligent-document-processing_tn_360x232-2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043661/7443" target="_top" id="2043661">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043661" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043661/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Autonomous driverless trucks, drone delivery, exoskeletons, and artificial intelligence are exciting players in the automation journey within transportation and logistics. But these advanced technologies can’t be fully embraced before fundamental aspects of process automation are in place. 
@@ -29,10 +29,10 @@ Autonomous driverless trucks, drone delivery, exoskeletons, and artificial intel
 Intelligent automation in shipping begins with the digitization and automation of the documents that drive transportation and logistics processes. 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027176/19272" target="_top" id="2027176">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027176" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027176/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Download it now!
@@ -42,16 +42,10 @@ _“While a cross-border transaction involves multiple actors and requires the e
 Shippers are implementing low-code intelligent document processing to sustainably improve accuracy, expedite processes, and increase traceability in freight forwarding and other transportation/logistics processes. Download this eBook to find out what those automated processes look like, and what sort of results are possible to achieve.
 
 <!-- affiliate ads begin -->
-<span id="1912746">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Thank you for your interest in ABBYY.
@@ -61,10 +55,10 @@ Shippers are implementing low-code intelligent document processing to sustainabl
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)
@@ -136,18 +130,16 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-listen-and-act-complimentary-recognition-software/"><u>2024 Approved Listen and Act Complimentary Recognition Software</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/authenticating-a-step-by-step-for-youtube-users/"><u>Authenticating A Step-by-Step for Youtube Users</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-detect-and-stop-mspy-from-spying-on-your-lava-yuva-3-pro-drfone-by-drfone-virtual-android/"><u>How to Detect and Stop mSpy from Spying on Your Lava Yuva 3 Pro | Dr.fone</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-free-webm-video-editing-software-top-10-picks/"><u>In 2024, Free WebM Video Editing Software Top 10 Picks</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/joining-forces-in-pokemon-go-tips-for-teamwork-and-adventure/"><u>Joining Forces in 'Pokémon GO': Tips for Teamwork and Adventure</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/optimizing-your-site-with-advanced-cookiebot-technology/"><u>Optimizing Your Site with Advanced Cookiebot Technology</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/quality-control-best-free-lut-selections-and-links-reviewed/"><u>Quality Control Best Free LUT Selections & Links Reviewed</u></a></li>
-<li><a href="https://android-frp.techidaily.com/samsung-galaxy-m34-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>Samsung Galaxy M34 ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/strategic-growth-abbyys-commitment-to-expanding-enterprise-solutions-in-early-year-initiatives/"><u>Strategic Growth: Abbyy's Commitment to Expanding Enterprise Solutions in Early-Year Initiatives</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/successfully-integrating-ai-and-rpa-a-five-step-guide-leveraging-advanced-process-insight/"><u>Successfully Integrating AI and RPA: A Five-Step Guide Leveraging Advanced Process Insight</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/unlocking-user-engagement-with-cookiebots-advanced-tracking-solutions/"><u>Unlocking User Engagement with Cookiebot's Advanced Tracking Solutions</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/unveiling-synergy-webinar-on-analytics-automation-and-process-insight-as-interconnected-strategies/"><u>Unveiling Synergy: Webinar on Analytics Automation & Process Insight as Interconnected Strategies</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/webinar-on-smart-data-extraction-techniques-enhancing-business-insights/"><u>Webinar on Smart Data Extraction Techniques: Enhancing Business Insights</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-expert-approved-tempo-transformation-software-index-for-2024/"><u>[Updated] Expert-Approved Tempo Transformation Software Index for 2024</u></a></li>
+<li><a href="https://media-tips.techidaily.com/1-troubleshooting-guide-achieving-seamless-hd-video-playback-with-hdr-support-in-vlc-media-player/"><u>1. Troubleshooting Guide: Achieving Seamless HD Video Playback with HDR Support in VLC Media Player</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-effortlessly-journey-to-your-custom-designed-music-library-on-youtube/"><u>2024 Approved Effortlessly Journey to Your Custom-Designed Music Library on Youtube</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/wav-to-m4b-movavi/"><u>安心で簡単な無料オンラインWAV to M4Bコンバーター – Movavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/conversion-gratuite-mp4-a-format-m4a-online-movavi/"><u>Conversion Gratuite MP4 À Format M4A Online - Movavi</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-tecno-spark-10-pro-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Tecno Spark 10 Pro to Any iOS Devices | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-stanley-j5c09-powerful-performance-in-a-compact-package/"><u>In-Depth Analysis of the Stanley J5C09 - Powerful Performance in a Compact Package</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/mastering-the-art-of-capturing-images-5-simple-methods-to-take-a-screenshot-on-your-acer-notebook-expert-tips-from-movavi/"><u>Mastering the Art of Capturing Images: 5 Simple Methods to Take a Screenshot on Your Acer Notebook - Expert Tips From Movavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/passos-simples-para-fazer-um-montagem-de-imagens-no-seu-iphone-as-opcoes-mais-eficientes/"><u>Passos Simples Para Fazer Um Montagem De Imagens No Seu iPhone – As Opções Mais Eficientes</u></a></li>
+<li><a href="https://app-tips.techidaily.com/the-ultimate-list-of-the-25-leading-video-editing-apps-for-every-ios-device-including-models-15-x8-6-5/"><u>The Ultimate List of the 25 Leading Video Editing Apps for Every iOS Device, Including Models 15-X/8-6-5</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/top-5-techniques-for-layering-images-perfectly/"><u>Top 5 Techniques for Layering Images Perfectly</u></a></li>
 </ul></div>
 

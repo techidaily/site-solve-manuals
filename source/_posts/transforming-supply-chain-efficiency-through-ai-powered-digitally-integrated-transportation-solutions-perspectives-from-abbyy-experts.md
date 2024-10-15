@@ -1,7 +1,7 @@
 ---
 title: Transforming Supply Chain Efficiency Through AI-Powered, Digitally Integrated Transportation Solutions - Perspectives From ABBYY Experts
-date: 2024-10-07T16:57:01.310Z
-updated: 2024-10-08T16:34:17.532Z
+date: 2024-10-09T19:02:13.629Z
+updated: 2024-10-15T01:42:55.499Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ca106d3a1759df91ff994491e604d7b2503de3936ded446ac4b42dea9ea4d4d9.jpg
@@ -15,24 +15,37 @@ thumbnail: https://thmb.techidaily.com/ca106d3a1759df91ff994491e604d7b2503de3936
 
 French
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Intervenants
 
 ![04 Lindaameur 198X198](https://static4.abbyy.com/abbyycommedia/25122/logo-2021-76x23.svg) 
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![04 Lindaameur 198X198](https://static4.abbyy.com/abbyycommedia/25106/04-lindaameur-198x198.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<span id="1975562">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
+  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Linda Ameur
@@ -41,6 +54,13 @@ Directrice Commerciale, **ABBYY France**
 
 ![Joël Glusman](https://static4.abbyy.com/abbyycommedia/32797/71-joelglusman-198x198.png)
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Joël Glusman
 
 Président et CEO, **Crystal Group** et **Qualitair & sea**
@@ -48,13 +68,6 @@ Président et CEO, **Crystal Group** et **Qualitair & sea**
 ![07 Oliviervasseur 198X198](https://static4.abbyy.com/abbyycommedia/25122/logo-2021-76x23.svg) 
 
 ![07 Oliviervasseur 198X198](https://static4.abbyy.com/abbyycommedia/25112/07-oliviervasseur-198x198.png)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Olivier Vasseur
 
@@ -70,28 +83,21 @@ Au travers de différents cas clients ainsi qu’une démonstration, nous avons 
 
 ### Regardez maintenant
 
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
-  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Get in touch with us
 
 Please note that progressive profiling is used on this form to incrementally collect profile data over time.   
 All personal information collected via this method is under full scope of all provisions in our privacy policy.
 
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Merci et bon webinaire !
 
 [![Le Fret Digital Transport Et Logistique Sans Frictions 750X422](https://static4.abbyy.com/abbyycommedia/33075/le-fret-digital-transport-et-logistique-sans-frictions-750x422.jpg)](https://www.youtube.com/watch?v=Esx1TaM8ohw) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
@@ -160,15 +166,19 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/updated-effortless-control-enhancing-gameplay-on-steam-using-switch-pro/"><u>[Updated] Effortless Control Enhancing Gameplay on Steam Using Switch Pro</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-free-and-online-facebook-music-downloaders/"><u>[Updated] Free And Online Facebook Music Downloaders</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-spotlight-strategies-brightening-your-visual-narrative-for-2024/"><u>[Updated] Spotlight Strategies Brightening Your Visual Narrative for 2024</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-technology-fuels-advanced-web-personalization/"><u>Cookiebot Technology Fuels Advanced Web Personalization</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-revolutionizing-personalization-and-analytics-in-digital-marketing/"><u>Cookiebot: Revolutionizing Personalization and Analytics in Digital Marketing</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-your-reliable-partner-for-personalized-marketing-automation/"><u>Cookiebot: Your Reliable Partner for Personalized Marketing Automation</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/customized-ad-targeting-with-cookiebot-the-powerhouse-of-personalization/"><u>Customized Ad Targeting with Cookiebot: The Powerhouse of Personalization</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-music-from-tecno-spark-20-proplus-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Music from Tecno Spark 20 Pro+ to iPod | Dr.fone</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/m4awav/"><u>M4AとWAVに自由に変換!? 優秀な変換ツールリスト</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/solving-hyperx-cloud-alpha-microphone-problems-a-comprehensive-approach/"><u>Solving HyperX Cloud Alpha Microphone Problems – A Comprehensive Approach</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-master-video-transitions-and-effects-using-gopro-studio-protips/"><u>[New] In 2024, Master Video Transitions and Effects Using GoPro Studio ProTips</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-cutthroat-countdown-best-zombies-in-gaming-unveiled/"><u>[Updated] 2024 Approved Cutthroat Countdown Best Zombies In Gaming Unveiled</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/canons-rebel-t7-kit-a-noteworthy-photographic-milestone/"><u>Canon's Rebel T7 Kit: A Noteworthy Photographic Milestone</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/compact-companion-canon-powershot-sx420s-impressive-zoom/"><u>Compact Companion: Canon PowerShot SX420's Impressive Zoom</u></a></li>
+<li><a href="https://change-location.techidaily.com/guide-how-to-unbrick-a-bricked-vivo-s17-pro-phone-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Guide How To Unbrick a Bricked Vivo S17 Pro Phone | Dr.fone</u></a></li>
+<li><a href="https://win-forum.techidaily.com/mastering-social-media-engagement-with-facebook-twitter-instagram-and-youtube-strategies/"><u>Mastering Social Media Engagement with Facebook, Twitter, Instagram & YouTube Strategies</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/neue-ara-fur-abbyy-industrieveteran-robert-youngjohns-wird-als-geschaftsfuhrer-eingesetzt/"><u>Neue Ära Für ABBYY: Industrieveteran Robert Youngjohns Wird Als Geschäftsführer Eingesetzt</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/nouvelles-perspectives-sur-le-travail-automatise-en-france-selon-letude-abbyy-la-plupart-des-citoyens-sont-ouverts-a-la-delegation-de-roles-aux-machines/"><u>Nouvelles Perspectives Sur Le Travail Automatisé en France Selon L’Étude ABBYY : La Plupart Des Citoyens Sont Ouverts À La Délegation De Rôles Aux Machines</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/optimieren-sie-ihr-marktpraferenz-in-der-finanzbranche-mit-abbyy-checklist/"><u>Optimieren Sie Ihr Marktpräferenz in Der Finanzbranche Mit ABBYY Checklist</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/pioneering-digital-evolutions-mastering-accounts-receivable-with-abbyys-innovative-solutions/"><u>Pioneering Digital Evolutions: Mastering Accounts Receivable with ABBYY's Innovative Solutions</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/significant-milestones-reached-by-abbyy-in-the-2019-fiscal-years-third-phase/"><u>Significant Milestones Reached by ABBYY in the 2019 Fiscal Year's Third Phase</u></a></li>
+<li><a href="https://win-advanced.techidaily.com/topi-scelti-di-clonazione-del-disco-soluzioni-ideali-per-windows-11-10-8-e-versioni-precedenti/"><u>Topi Scelti Di Clonazione Del Disco: Soluzioni Ideali per Windows 11, 10, 8 E Versioni Precedenti</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshoot-your-oculus-link-in-minutes-top-6-tips-to-resolve-the-black-screen-problem/"><u>Troubleshoot Your Oculus Link in Minutes: Top 6 Tips to Resolve the Black Screen Problem</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/pdf-finereader-pdfiphoneandroid/"><u>スクリーンショットからPDFへ: FineReader PDFというアプリはiPhone・Androidデバイスでどのように文章をスキャンしますか?</u></a></li>
 </ul></div>
 

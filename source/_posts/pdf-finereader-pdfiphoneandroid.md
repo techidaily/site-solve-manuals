@@ -1,7 +1,7 @@
 ---
 title: "スクリーンショットからPDFへ: FineReader PDFというアプリはiPhone・Androidデバイスでどのように文章をスキャンしますか?"
-date: 2024-10-02T18:47:20.383Z
-updated: 2024-10-08T17:20:22.353Z
+date: 2024-10-09T17:44:21.321Z
+updated: 2024-10-15T00:20:29.588Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b2bf4cd4c4150768a4991186ca82f84c6e82b391b455745b734da2cba3671e13.jpg
@@ -104,6 +104,13 @@ PDF ファイルはPDFエディタで開かれます。そしてレビューし�
 
 [モバイル](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### いいね！、シェア、再投稿
 
 シェア 
@@ -154,19 +161,6 @@ Connect with us
 
 ![](https://static4.abbyy.com/abbyycommedia/32738/microsoftteams-image-20.png) 
 
-<!-- affiliate ads begin -->
-<span id="1975562">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ABBYYのスキャンアプリに新しい名前とアイコンが追加された理由を知りたいですか？ 我々ABBYYは、今回素晴らしいニュースをお伝えします。ABBYYFineScannerはモバイル用のABBYYFineReader PDF for Mobileとして、名前が変更され、対応するデスクトップ製品と統合されました！ なぜ、大きく名前が変わるのですか、そしてあなたにとって何ができるようになりますか？ 早速、本題に入りましょう。
 
 2012年にFineScannerの最初のバージョンがリリースされたとき、多くの人々がスマートフォンをスキャナーとして使用することに懐疑的でした。 それ以来、モバイルスキャンアプリが改善され、以前に比べ、はるかに使いやすくなりました。一方で従来のスキャナー需要が減りつつあるため、多くの変化があります。
@@ -187,16 +181,16 @@ iOS ユーザ向け説明
 ![Mobile 1](https://static1.abbyy.com/abbyycommedia/32746/mobile1.png)
 * Google アカウントへサインインして下さい。
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * **自動アップロード先：**をタップして**Google Drive (FineReader)**を選択下さい。
 * 望んでいる出力ファイルのフォーマット、サイズが選択されているか確認下さい。  
 ![Mobile 2](https://static1.abbyy.com/abbyycommedia/32745/mobile2.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 以上により、新たにスキャンを行うと、自動的にGoogle Drive へアップロードされ、ABBYY [FineReader PDF for Windows](https://tools.techidaily.com/abbyy/products/)と連携されます。
 
@@ -213,16 +207,23 @@ Android ユーザ向け説明
 ![Mobile 3](https://static1.abbyy.com/abbyycommedia/32744/mobile3.png)
 * **Google Drive (FineReader)**の横の**追加**をタップ下さい。
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Google Driveのアカウントへサインインして下さい。
 * 自動アップロードをタップし、Google Drive (FineReader)を選択して下さい。
 * 望んでいる出力ファイルのフォーマット、サイズが選択されているか確認下さい。  
 ![Mobile 4](https://static1.abbyy.com/abbyycommedia/32743/mobile4.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 以上により、新たにスキャンを行うと、自動的にGoogle Drive へアップロードされ、ABBYY [FineReader PDF for Windows](https://tools.techidaily.com/abbyy/products/)と連携されます。
@@ -252,13 +253,6 @@ Google ドライブの中に “**FineReader**” を見つけられない場合
 FineReader PDF 15 は **FineReader**フォルダへのパスを保存し、次回からはモバイルアプリケーションのタブをクリックした際に、そのフォルダを開きます。
 
 ![ABBYY FineReader PDF for Mobile](https://static1.abbyy.com/abbyycommedia/32903/finereader-screenshot-2-jp.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
-  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 FineReader PDF for Mobile アプリでスキャン作成したファイルで作業を続けるには、そのファイルをクリックして下さい。
 
@@ -295,19 +289,20 @@ PDF ファイルはPDFエディタで開かれます。そしてレビューし�
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-unlocking-full-potential-share-videos-on-fb-effectively/"><u>[New] 2024 Approved Unlocking Full Potential Share Videos on FB Effectively</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-innovative-techniques-for-stellar-screen-captures-with-adobe-captivity/"><u>[Updated] In 2024, Innovative Techniques for Stellar Screen Captures with Adobe Captivity</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/4-windows-1111/"><u>4人気の動画切り取り手法: Windows 11と11対応</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/wav-to-m4b-movavi/"><u>安心で簡単な無料オンラインWAV to M4Bコンバーター – Movavi</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/arch-linux-and-post-update-woes-restoring-full-functionality-to-your-bluetooth-mouse-with-ease/"><u>Arch Linux and Post-Update Woes: Restoring Full Functionality to Your Bluetooth Mouse with Ease</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/are-extra-expenses-on-elite-ai-worthwhile/"><u>Are Extra Expenses on Elite AI Worthwhile?</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cambia-archivos-de-sonido-ogg-a-formato-m4a-sin-coste-con-herramientas-en-linea-ejemplos-y-guias/"><u>Cambia Archivos De Sonido OGG a Formato M4A Sin Coste Con Herramientas en Línea - Ejemplos Y Guías</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-vivo-y78plus-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Vivo Y78+ Location without Installing Software? | Dr.fone</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/new-in-2024-6-best-voice-changers-for-chromebook-deserve-a-try-filmora/"><u>New In 2024, 6 Best Voice Changers for Chromebook Deserve a Try - Filmora</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/passos-simples-para-fazer-um-montagem-de-imagens-no-seu-iphone-as-opcoes-mais-eficientes/"><u>Passos Simples Para Fazer Um Montagem De Imagens No Seu iPhone – As Opções Mais Eficientes</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/the-major-technology-breakthroughs-shaping-our-world-after-1844/"><u>The Major Technology Breakthroughs Shaping Our World After 1844</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/top-5-techniques-for-layering-images-perfectly/"><u>Top 5 Techniques for Layering Images Perfectly</u></a></li>
-<li><a href="https://some-skills.techidaily.com/unveiling-the-secrets-of-video-filter-application-techniques-for-2024/"><u>Unveiling the Secrets of Video Filter Application Techniques for 2024</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/pcxjpeg-movavi/"><u>オンラインで手軽な無料変換: PCX画像をJPEGへ - Movaviの使い方</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-tiny-tycoons-trail-to-treasure-ryan-kaji-and-youtube-earnings/"><u>[New] In 2024, Tiny Tycoon’s Trail to Treasure Ryan Kaji and YouTube Earnings</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-best-10-drones-for-high-quality-cinematography/"><u>[Updated] Best 10 Drones for High-Quality Cinematography</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-discover-top-tier-cost-effective-mobile-imaging-enhancers/"><u>[Updated] Discover Top-Tier, Cost-Effective Mobile Imaging Enhancers</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1-automated-conversion-tracking-enhanced-with-cookiebot-technology/"><u>1. Automated Conversion Tracking: Enhanced with Cookiebot Technology</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1724313623358-abbyy-flexicapture/"><u>高付加価値への転換:ABBYY FlexiCapture®による請求書プロセス改革とデジタル技術活用</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-get-the-apple-id-verification-code-on-apple-iphone-8-plus-in-the-best-ways-by-drfone-ios/"><u>In 2024, How To Get the Apple ID Verification Code On Apple iPhone 8 Plus in the Best Ways</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/screeneasew11-simplified-windows-11-recording-software/"><u>ScreenEaseW11 Simplified Windows 11 Recording Software</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-remote-professionals-guide-maximizing-ai-in-work-life/"><u>The Remote Professional's Guide: Maximizing AI in Work Life</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-ergonomic-keyboard-picks-for-2n24/"><u>Top Rated Ergonomic Keyboard Picks for 2N24</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/transform-mobile-scanning-with-abbyys-business-card-reader-for-android-fast-accurate-intuitive-technology/"><u>Transform Mobile Scanning with ABBYY's Business Card Reader for Android: Fast, Accurate, Intuitive Technology</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/transform-your-business-save-time-and-money-with-our-superior-paperless-solutions-and-world-class-ocr-tools-for-smb-success/"><u>Transform Your Business: Save Time & Money with Our Superior Paperless Solutions and World-Class OCR Tools for SMB Success</u></a></li>
+<li><a href="https://win11.techidaily.com/troubleshooting-unknown-hardware-in-windows-1110/"><u>Troubleshooting Unknown Hardware in Windows 11/10</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/understanding-the-financial-wisdom-behind-applecare-plus-extension/"><u>Understanding the Financial Wisdom Behind AppleCare Plus Extension</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/unleashing-potential-with-cookiebot-technology-for-websites/"><u>Unleashing Potential with Cookiebot Technology for Websites</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/webinar-recap-strategies-to-minimize-risks-in-libor-agreements/"><u>Webinar Recap: Strategies to Minimize Risks in LIBOR Agreements</u></a></li>
 </ul></div>
 

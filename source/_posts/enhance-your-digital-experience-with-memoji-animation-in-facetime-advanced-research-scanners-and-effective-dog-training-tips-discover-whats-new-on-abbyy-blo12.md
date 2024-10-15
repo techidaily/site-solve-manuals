@@ -1,7 +1,7 @@
 ---
 title: Enhance Your Digital Experience with Memoji Animation in FaceTime, Advanced Research Scanners, and Effective Dog Training Tips – Discover What's New on ABBYY Blog
-date: 2024-10-04T16:33:39.841Z
-updated: 2024-10-08T18:31:47.528Z
+date: 2024-10-09T23:11:03.166Z
+updated: 2024-10-14T23:16:37.947Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8f59b16f9ed7024a23cc6f18f766904b6f418e4c5b8df6a84d93cf668a943550.jpg
@@ -54,10 +54,10 @@ After you create an AR emoji, your phone will automatically generate GIFs featur
 P.S. For more useful tips on using emojis, see the previous issues of this newsletter [here](https://tools.techidaily.com/abbyy/products/) and [here](https://tools.techidaily.com/abbyy/products/).
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **ABBYY Tip: Using FineScanner in Research Projects**
@@ -70,13 +70,20 @@ FineScanner successfully captured 600+ pages of printed tables, and all of the p
 
 ![abbyy finescanner scanning documents](https://static1.abbyy.com/abbyycommedia/28714/fs2.png) Captured data in Excel
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 For a detailed step-by-step description of the data capture stage of the project, please see [this page](https://www.meredithpaker.com/updates/digitizingdata).
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
+  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **App of the Week: Dogo**
@@ -84,22 +91,15 @@ For a detailed step-by-step description of the data capture stage of the project
 Naturally, you can take your puppy to a dog school, but lots of dog owners choose to train their four-legged pets themselves. [Dogo](https://dogo.pro/) is a mobile app intended to help you with training your dog. The app creates a daily training programme adapted specifically to your pet’s progress, providing you with lots of tips and advice on how to teach your puppy to respond to its name, to offer you its paw, to sit, to roll over, and do lots of other tricks. The app offers detailed step-by-step instructions for teaching your dog each new trick or command. ![train dogs](https://static1.abbyy.com/abbyycommedia/26706/dogo-en.png) ![excirsises for dogs on a smartphone](https://static1.abbyy.com/abbyycommedia/26707/dogo-en2.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972679/19272" target="_top" id="1972679">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 You can then film your dog doing a new trick and submit the video via the app to get additional advice from dog training professionals.
 
 ![good dog](https://static1.abbyy.com/abbyycommedia/26708/dogo-en3.png)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 The app is available on [iOS](https://itunes.apple.com/ru/app/id1153294767) and [Android](https://play.google.com/store/apps/details?id=app.dogo.com.dogo%5Fandroid). That’s all from us for today. See you next Monday!
 
@@ -171,22 +171,14 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-2024-approved-prime-mac-tools-for-capturing-desktop-activity/"><u>[New] 2024 Approved Prime Mac Tools for Capturing Desktop Activity</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-free-fast-and-easy-top-5-choices-for-pinterest-video-downloaders/"><u>[Updated] Free, Fast & Easy Top 5 Choices for Pinterest Video Downloaders</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-in-2024-excellent-screen-capture-apps-for-linux-enthusiasts/"><u>[Updated] In 2024, Excellent Screen Capture Apps for Linux Enthusiasts</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ctical-approach-to-incorporate-youtube-playlists-online-for-2024/"><u>A Practical Approach to Incorporate YouTube Playlists Online for 2024</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/cookiebot-driven-website-optimization-solutions/"><u>Cookiebot-Driven Website Optimization Solutions</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/empowering-automation-elevating-machine-intellect-with-strategic-content-understanding-the-abbyy-perspective/"><u>Empowering Automation: Elevating Machine Intellect with Strategic Content Understanding | The ABBYY Perspective</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/enhance-digital-engagement-with-our-expertise-in-cookiebot-technology-solutions/"><u>Enhance Digital Engagement with Our Expertise in Cookiebot Technology Solutions</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/enhanced-traffic-with-automated-tracking-the-benefits-of-using-cookiebot/"><u>Enhanced Traffic with Automated Tracking: The Benefits of Using Cookiebot</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/harness-the-power-of-cookiebot-for-superior-site-analytics-and-personalization/"><u>Harness the Power of Cookiebot for Superior Site Analytics and Personalization</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-stop-my-spouse-from-spying-on-my-motorola-moto-g84-5g-drfone-by-drfone-virtual-android/"><u>How to Stop My Spouse from Spying on My Motorola Moto G84 5G | Dr.fone</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-inside-hand-tracking-techniques-and-varieties/"><u>In 2024, Inside Hand Tracking Techniques & Varieties</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-your-account-has-been-disabled-in-the-app-store-and-itunes-on-iphone-14-pro-by-drfone-ios/"><u>In 2024, Your Account Has Been Disabled in the App Store and iTunes On iPhone 14 Pro?</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/iphone-document-scanning-and-conversion-convert-pdf-jpg-files-into-editable-text-with-finereader-app/"><u>IPhone Document Scanning & Conversion: Convert PDF, JPG Files Into Editable Text with FineReader App</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/leverage-advanced-web-scraping-with-cookiebot-integration-solutions/"><u>Leverage Advanced Web Scraping with Cookiebot Integration Solutions</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/leveraging-abbyys-expertise-ashling-partners-accelerates-automation-with-elite-program-membership-and-smart-content-insights/"><u>Leveraging ABBYY's Expertise: Ashling Partners Accelerates Automation with Elite Program Membership and Smart Content Insights</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/majority-of-british-workforce-eager-to-outsource-tasks-to-automation-insights-from-abbyy/"><u>Majority of British Workforce Eager to Outsource Tasks to Automation: Insights From ABBYY</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/melodic-marketing-instagram-music-tips-for-2024/"><u>Melodic Marketing Instagram Music Tips for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-13-incredible-minecraft-architectural-plans/"><u>[Updated] 2024 Approved 13 Incredible Minecraft Architectural Plans</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/free-online-converter-mp4-to-wma-format-moveit/"><u>Free Online Converter: MP4 to WMA Format - MoveIt</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-prevent-your-crusader-kings-iii-adventure-from-unexpectedly-ending-due-to-pc-crashes/"><u>How To Prevent Your Crusader Kings III Adventure From Unexpectedly Ending Due to PC Crashes</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/mastering-obs-and-zoom-integration-tips-for-2024/"><u>Mastering OBS & Zoom Integration Tips for 2024</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/mov-a-aiff-convertitore-online-e-gratuito-utilizzo-di-movemovi/"><u>MOV a AIFF Convertitore Online E Gratuito - Utilizzo Di MoveMovi</u></a></li>
+<li><a href="https://win11.techidaily.com/reversing-non-working-filesystem-consolidator/"><u>Reversing Non-Working Filesystem Consolidator</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/top-8-high-performance-web-browser-microphone-recording-apps/"><u>Top 8 High-Performance Web Browser Microphone Recording Apps</u></a></li>
+<li><a href="https://fox-where.techidaily.com/understanding-the-structure-of-page-groups-in-system-revisions-and-alterations/"><u>Understanding the Structure of Page Groups in System Revisions and Alterations</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1726226824751-mp4mp3/"><u>オンラインで手軽にMP4からMP3へ変換!? 無料動画コンバーター</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Convert Your Scanned Documents & Books Into Editable Text with iPhone Scanner App
-date: 2024-10-04T18:34:05.567Z
-updated: 2024-10-08T19:43:03.755Z
+date: 2024-10-11T17:23:58.681Z
+updated: 2024-10-14T16:25:25.659Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/9929e26ad232462fb3012e528ec110b36cc8e34a7ab835cf659d05f21b4127d5.jpg
@@ -30,6 +30,13 @@ The first AI-powered scanner to quickly capture docs and books, create copies in
 
 [![fr_mobile_v2](https://www.abbyy.com/media/2853/fr_mobile_v2.jpg)](https://www.youtube.com/watch?v=TiKgyAl2KHk) 
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Digitize your docs and books anywhere
 
 ![Instead of desktop scanner](https://www.abbyy.com/media/3792/01-features-1-instead-of-desktop.jpg) 
@@ -48,6 +55,13 @@ Neural network analyzes your gallery and automatically splits photos into seven 
 
 ![Extract text from scans](https://www.abbyy.com/media/3794/03-features-3-extracttext.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Extract text from scans
 
 Extract text from scans offline or use online recognition to preserve the original document formatting. Supports [183 languages and 4 formats](https://tools.techidaily.com/abbyy/products/).
@@ -58,31 +72,11 @@ Share your scans with everyone on the go: email, print, or save to cloud storage
 
 ![Export anywhere](https://www.abbyy.com/media/3797/06-features-6-exportanywhere.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925565/19272" target="_top" id="1925565">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925565" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925565/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Annotate scans](https://www.abbyy.com/media/3796/05-features-5-annotate-documents.jpg) 
 
 ### Annotate scans
 
 Use our set of easy-to-use tools to modify your PDFs: add your signature or a text box, use highlighter, write with a pen, or conceal sensitive content with the redaction tool.
-
-<!-- affiliate ads begin -->
-<span id="1983588">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## What people are saying about us
 
@@ -111,30 +105,24 @@ Today I scanned my document to store in iCloud. With a touch of a button (open u
 
 [![The Webby Awards logo](https://www.abbyy.com/media/2489/01b-webby-grey.png)![The Webby Awards logo](https://www.abbyy.com/media/2490/01-webby-color.png)](http://webbyawards.com/winners/2015/mobilesitesapps/handhelddevices/productivity/finescanner/)
 
-<!-- affiliate ads begin -->
-<span id="1743243">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [![Fox Business](https://www.abbyy.com/media/2491/02b-fox-grey.png)![Fox Business](https://www.abbyy.com/media/2492/02-fox-color.png)](http://www.foxbusiness.com/features/2017/10/23/50-best-cloud-services-for-smbs.html)
 
 [![ABBYY FineScanner AI 8 - Smart scanner app to make your remote work easy | Product Hunt](https://api.producthunt.com/widgets/embed-image/v1/featured.svg?post_id=281738&theme=light)](https://www.producthunt.com/posts/abbyy-finescanner-ai-8?utm%5Fsource=badge-featured&utm%5Fmedium=badge&utm%5Fsouce=badge-abbyy-finescanner-ai-8)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111994/7443" target="_top" id="2111994">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111994" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111994/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [![Mobile Village logo](https://www.abbyy.com/media/2495/04b-mobile-star-grey.png)![Mobile Village logo](https://www.abbyy.com/media/2496/04-mobile-star-color.png)](http://www.mobilevillage.com/abbyy-mobile-apps/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [![Lifehacker logo](https://www.abbyy.com/media/2493/03b-lifehacker-grey.png)![Lifehacker logo](https://www.abbyy.com/media/2494/03-lifehacker-color.png)](http://lifehacker.com/five-best-mobile-document-scanning-apps-1691417781#pd%5Fa%5F8725103)
@@ -144,10 +132,10 @@ Today I scanned my document to store in iCloud. With a touch of a button (open u
 [![The new york times logo](https://www.abbyy.com/media/2499/07b-nyt-grey.png)![The new york times logo](https://www.abbyy.com/media/2500/07-nyt-color.png)](https://www.nytimes.com/wirecutter/reviews/best-mobile-scanning-apps/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [![Discovery logo](https://www.abbyy.com/media/2501/08b-discovery-grey.png)![Discovery logo](https://www.abbyy.com/media/2502/08-discovery-color.png)](http://newswatchtv.com/2016/10/21/newswatch-discovery-channel-appwatch-finescanner/)
@@ -155,32 +143,26 @@ Today I scanned my document to store in iCloud. With a touch of a button (open u
 [![Touchit logo](https://www.abbyy.com/media/2503/09b-touchit-grey.png)![Touchit logo](https://www.abbyy.com/media/2504/09-touchit-color.png)](https://touchit.sk/abbyy-premente-smartfon-na-profesionalny-vreckovy-skener/)
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
-  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880927/19272" target="_top" id="1880927">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880927" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880927/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [![Macwelt logo](https://www.abbyy.com/media/2505/10b-macwelt-grey.png)![Macwelt logo](https://www.abbyy.com/media/2506/10-macwelt-color.png)](https://www.macwelt.de/a/test-abbyy-scanapps-mit-texterkennung-fuer-mac-und-ios,3437011)
 
 [![Business Insider](https://www.abbyy.com/media/2507/11b-business-insider-grey.png)![Business Insider](https://www.abbyy.com/media/2508/11-business-insider-color.png)](http://www.businessinsider.com/productivity-strategy-10-minutes-a-day-2017-6)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997657/19272" target="_top" id="1997657">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997657" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997657/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [![CIO](https://www.abbyy.com/media/2509/12b-cio-grey.png)![CIO](https://www.abbyy.com/media/2510/12-cio-color.png)](https://www.cio.com/article/230048/10-essential-productivity-tips-for-road-warriors.html)
 
 [![Techradar](https://www.abbyy.com/media/2487/13b-techradar-grey.png)![Techradar](https://www.abbyy.com/media/2488/13-techradar-color.png)](https://www.techradar.com/uk/best/best-document-scanning-apps)
-
-<!-- affiliate ads begin -->
-<span id="1982596">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## OCR Specification
 
@@ -582,13 +564,6 @@ Latvian (Fraktur font)_×_ _×_
 
 ![](https://www.abbyy.com/media/2513/bcr-logo-80x80.svg) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### ABBYY Business Card Reader
 
 Scan and manage all your business cards and contacts in a flash.
@@ -610,6 +585,19 @@ FineReader for Mobile — The Answers to Nine Frequently Asked Questions
 [![seven-tips-for-creating-ideal-scans-cover](https://www.abbyy.com/media/4186/seven-tips-for-creating-ideal-scans-cover.png) ![seven-tips-for-creating-ideal-scans-cover](https://www.abbyy.com/media/4186/seven-tips-for-creating-ideal-scans-cover.png) Seven Tips for Creating Ideal Mobile Scans](https://www.abbyy.com/blog/mobile/seven-tips-for-creating-ideal-scans/) 
 
 [![14323_15_features in 15 minutes_841x360](https://www.abbyy.com/media/3399/14323_15_features-in-15-minutes_841x360.png) ![14323_15_features in 15 minutes_841x360](https://www.abbyy.com/media/3399/14323_15_features-in-15-minutes_841x360.png) 15 Mobile Tips for Digital Transformation in the Legal Industry](https://www.abbyy.com/blog/15-mobile-tips-for-digital-transformation-in-the-legal-industry/) 
+
+<!-- affiliate ads begin -->
+<span id="1993651">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Subscribe to our newsletter
 
@@ -664,18 +652,24 @@ Submit
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-digital-pioneers-guide-combining-pcmac-dslr-for-engaging-streams/"><u>[New] 2024 Approved Digital Pioneer's Guide Combining PC/Mac, DSLR for Engaging Streams</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-unlocking-the-secrets-to-effective-screen-capturing-with-apeaksoft-for-2024/"><u>[New] Unlocking the Secrets to Effective Screen Capturing with Apeaksoft for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-a-detailed-list-of-top-free-cross-platform-mobile-video-chats/"><u>2024 Approved A Detailed List of Top Free, Cross-Platform Mobile Video Chats</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-deep-windows-11-know-how-importing-media-like-a-pro/"><u>2024 Approved Deep Windows 11 Know-How Importing Media Like a Pro</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/harness-the-power-of-cookiebot-for-superior-site-analytics-and-personalization/"><u>Harness the Power of Cookiebot for Superior Site Analytics and Personalization</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-all-must-knows-to-use-fake-gps-go-location-spoofer-on-infinix-note-30-drfone-by-drfone-virtual-android/"><u>In 2024, All Must-Knows to Use Fake GPS GO Location Spoofer On Infinix Note 30 | Dr.fone</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-night-photography-perfection-with-iphones/"><u>In 2024, Night Photography Perfection with iPhones</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/intel-serial-io-driver-download-and-install/"><u>Intel Serial IO Driver Download and Install</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/iphone-document-scanning-and-conversion-convert-pdf-jpg-files-into-editable-text-with-finereader-app/"><u>IPhone Document Scanning & Conversion: Convert PDF, JPG Files Into Editable Text with FineReader App</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/leverage-advanced-web-scraping-with-cookiebot-integration-solutions/"><u>Leverage Advanced Web Scraping with Cookiebot Integration Solutions</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/leveraging-abbyys-expertise-ashling-partners-accelerates-automation-with-elite-program-membership-and-smart-content-insights/"><u>Leveraging ABBYY's Expertise: Ashling Partners Accelerates Automation with Elite Program Membership and Smart Content Insights</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/majority-of-british-workforce-eager-to-outsource-tasks-to-automation-insights-from-abbyy/"><u>Majority of British Workforce Eager to Outsource Tasks to Automation: Insights From ABBYY</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/mitigating-workplace-stress-through-automated-solutions-research-overview/"><u>Mitigating Workplace Stress Through Automated Solutions - Research Overview</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-unlocking-adsense-potential-in-youtube-content-creation/"><u>[New] In 2024, Unlocking AdSense Potential in YouTube Content Creation</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-pursuit-of-pleasure-10-games-echoing-gta-v/"><u>[Updated] Pursuit of Pleasure 10 Games Echoing GTA V</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/6-ultimate-free-film-editor-applications-no-cost-options/"><u>6 Ultimate Free Film Editor Applications - No Cost Options</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/movavi-ogv-mov/"><u>免費線上服務：Movavi提供的 OGV 和 MOV 影片專家轉換器</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/beginners-guide-the-15-leading-video-editing-programs-easy-to-use/"><u>Beginner's Guide: The 15 Leading Video Editing Programs Easy To Use</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cambiar-formatos-de-archivo-sin-coste-convertir-pgm-a-imagenes-bitmap-libremente-con-movavi/"><u>Cambiar Formatos De Archivo Sin Coste - Convertir PGM a Imagenes Bitmap Libremente Con Movavi</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/full-guide-to-unlock-your-infinix-hot-40i-by-drfone-android/"><u>Full Guide to Unlock Your Infinix Hot 40i</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/gratis-digitaal-converter-versterk-uw-soundfiles-van-wav-tot-flacaiff-via-movavi/"><u>Gratis Digitaal Converter: Versterk Uw Soundfiles Van WAV Tot FLAC/AIFF via Movavi</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-flash-dead-xiaomi-redmi-note-12r-safely-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Flash Dead Xiaomi Redmi Note 12R Safely | Dr.fone</u></a></li>
+<li><a href="https://fox-place.techidaily.com/immediate-fixes-overcoming-the-hurdle-of-error-code-429-on-roblox/"><u>Immediate Fixes: Overcoming the Hurdle of Error Code #429 on Roblox</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-future-cinema-the-vr-impact/"><u>In 2024, Future Cinema The VR Impact</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-unlocking-the-full-potential-of-iphones-hdr-functions/"><u>In 2024, Unlocking the Full Potential of iPhone's HDR Functions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580883532-learn-bengali-online-in-just-10-minutes-a-day/"><u>Learn Bengali Online In Just 10 Minutes A Day</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1726227583001-movavi-video-editor/"><u>Movavi Video Editor: 高效下载与使用指南</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/the-essentials-of-logging-live-performances-online/"><u>The Essentials of Logging Live Performances Online</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/top-18-editores-de-peliculas-sin-costo-para-windows-11-8-y-7-guia-completa/"><u>Top 18 Editores De Películas Sin Costo Para Windows 11, 8 Y 7: Guía Completa</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/transform-your-mp4-footage-into-high-quality-content-using-movavis-editing-tool/"><u>Transform Your MP4 Footage Into High-Quality Content Using Movavi's Editing Tool</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-samsung-galaxy-a23-5g-drfone-by-drfone-virtual-android/"><u>What Pokémon Evolve with A Dawn Stone For Samsung Galaxy A23 5G? | Dr.fone</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1726222869124-wmvgif-movavi/"><u>オンラインで無料WMVからGIFへの高速変換 - Movaviサポート</u></a></li>
 </ul></div>
 

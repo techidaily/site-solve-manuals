@@ -1,7 +1,7 @@
 ---
 title: "Introducing the Latest Milestone: ABBYY Opens a State-of-the-Art Innovation Center for Smart Automation in Serbia"
-date: 2024-10-01T18:30:28.270Z
-updated: 2024-10-08T16:59:56.586Z
+date: 2024-10-12T19:39:58.048Z
+updated: 2024-10-14T19:24:55.893Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d615ac68260522d8e70b422dd5540cece714bbc625d61d049281d91eac42f958.jpg
@@ -34,10 +34,16 @@ ABBYY is actively hiring new employees across Serbia and provides remote work op
 ABBYY is recognized as a leader [by several major analyst firms](https://tools.techidaily.com/abbyy/products/), including Everest Group and ISG, in Intelligent Document Processing (IDP), and in Process & Task Mining by NelsonHall, Zinnov, and others. To learn more about ABBYY intelligent process automation solutions, visit <https://www.abbyy.com/solutions/intelligent-process-automation-ipa/>.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1444782">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### About ABBYY
@@ -51,10 +57,10 @@ ABBYY is a US-based global company with offices in 15 countries. For more inform
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies and may not be used without consent of its respective owners.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006928/19272" target="_top" id="2006928">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Editorial Contact
@@ -62,10 +68,10 @@ ABBYY can either be a registered trademark or a trademark and can also be a logo
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Gina Ray, APR
@@ -92,21 +98,15 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-unlock-the-full-potential-of-your-video-with-studio-editor/"><u>[New] 2024 Approved Unlock the Full Potential of Your Video with Studio Editor</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-channel-personality-complimentary-youtube-graphics/"><u>[New] In 2024, Channel Personality Complimentary YouTube Graphics</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-the-ultimate-guide-to-improved-zoom-video-quality/"><u>[New] In 2024, The Ultimate Guide to Improved Zoom Video Quality</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-the-experts-guide-to-instagrams-licensed-music-posting-policies/"><u>[Updated] The Expert’s Guide to Instagram's Licensed Music Posting Policies</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-ultimate-drivers-delight-5-top-race-games/"><u>2024 Approved Ultimate Driver's Delight 5 Top Race Games</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/exploring-the-efficiency-of-cookiebot-in-digital-marketing-strategies/"><u>Exploring the Efficiency of Cookiebot in Digital Marketing Strategies</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/future-proof-your-finance-institution-essential-digital-tactics-and-strategies-featuring-abbyy-industry-experts/"><u>Future-Proof Your Finance Institution: Essential Digital Tactics & Strategies, Featuring ABBYY Industry Experts</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/high-quality-streaming-showdown-whos-your-favorite-vmixwirecast/"><u>High-Quality Streaming Showdown Who's Your Favorite, VMix/Wirecast?</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-motorola-moto-e13-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>How to Unlock Motorola Moto E13 Phone Pattern Lock without Factory Reset</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/idpidp-revolutionary-victories-in-investment-decision-processes/"><u>IDP革命帷幄，IDP斐然！ - Revolutionary Victories in Investment Decision Processes!</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Apple iPhone 11 | Dr.fone</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/innovative-synergy-strengthening-the-purposeful-ai-collaboration-between-abbyy-and-novelis/"><u>Innovative Synergy: Strengthening the Purposeful AI Collaboration Between ABBYY & Novelis</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/integrating-ai-into-your-business-top-7-strategies-from-the-abbyy-expertise/"><u>Integrating AI Into Your Business: Top 7 Strategies From the ABBYY Expertise</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/1726029086422-iphone/"><u>IPhoneカメラ撮影時に低音量発生する理由と解消方法</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/konstantin-anisimovich-visionary-leader-and-co-creator-of-innovative-enterprise/"><u>Konstantin Anisimovich: Visionary Leader & Co-Creator of Innovative Enterprise</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/latest-enhancements-in-ocr-technology-insights-from-the-abbyy-experts/"><u>Latest Enhancements in OCR Technology: Insights From the ABBYY Experts</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-crafting-impactful-video-campaigns-for-startups/"><u>[New] 2024 Approved Crafting Impactful Video Campaigns for Startups</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-action-footage-clarity-the-top-10-camera-mics/"><u>[New] Action Footage Clarity The Top 10 Camera Mics</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/beginners-guide-the-15-leading-video-editing-programs-easy-to-use/"><u>Beginner's Guide: The 15 Leading Video Editing Programs Easy To Use</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/gratis-digitaal-converter-versterk-uw-soundfiles-van-wav-tot-flacaiff-via-movavi/"><u>Gratis Digitaal Converter: Versterk Uw Soundfiles Van WAV Tot FLAC/AIFF via Movavi</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-avoid-facebook-reels-habit/"><u>How to Avoid Facebook Reels Habit</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-reset-itunes-backup-password-of-iphone-11-prevention-and-solution-by-drfone-ios/"><u>In 2024, Reset iTunes Backup Password Of iPhone 11 Prevention & Solution</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/transform-your-mp4-footage-into-high-quality-content-using-movavis-editing-tool/"><u>Transform Your MP4 Footage Into High-Quality Content Using Movavi's Editing Tool</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/transform-your-photos-downloadable-no-cost-arw-to-png-converter-by-movavi/"><u>Transform Your Photos: Downloadable, No-Cost ARW to PNG Converter by Movavi</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/unveiling-zooms-hidden-visual-treasures-with-filters-for-2024/"><u>Unveiling Zoom's Hidden Visual Treasures with Filters for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/bes-first-visual-hook-creating-personalized-thumbnails/"><u>YouTube's First Visual Hook Creating Personalized Thumbnails</u></a></li>
 </ul></div>
 

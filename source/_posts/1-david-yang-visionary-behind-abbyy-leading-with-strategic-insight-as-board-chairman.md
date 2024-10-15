@@ -1,7 +1,7 @@
 ---
 title: "1. David Yang: Visionary Behind ABBYY, Leading with Strategic Insight as Board Chairman"
-date: 2024-10-01T17:28:17.941Z
-updated: 2024-10-08T19:34:44.987Z
+date: 2024-10-08T20:52:17.029Z
+updated: 2024-10-14T23:32:53.788Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/98061f90f0702266772c41039bf7505ea26afb88709675b4845f86d9c07123c1.jpg
@@ -26,10 +26,10 @@ Dr. Yang started a variety of business, creative, and educational projects: he c
 Dr. Yang holds numerous patents and has published several research papers and articles. His areas of interest include AI, modern art, architecture, and education. The World Economic Forum in Davos named him as one of the top 100 World Technology Pioneers.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105873/7443" target="_top" id="2105873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Ready to speak with an expert?
@@ -51,18 +51,19 @@ Dr. Yang holds numerous patents and has published several research papers and ar
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-chart-a-course-for-success-top-5-effective-video-marketing-strategies-on-youtube/"><u>[New] 2024 Approved Chart a Course for Success Top 5 Effective Video Marketing Strategies on YouTube</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-2024-approved-engaging-ways-to-use-time-with-podcast-tracks/"><u>[New] 2024 Approved Engaging Ways to Use Time with Podcast Tracks</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-must-have-mac-tts-apps-for-seamless-communication/"><u>[New] Must-Have Mac TTS Apps for Seamless Communication</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/20-zacitla-ceskych-mp3-konv-bezplatnych-pro-windows-movavi/"><u>20 Začítlá Českých MP3 Konv. Bezplatných Pro Windows - Movavi</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-intro-ideas-free-download-options/"><u>2024 Approved Intro Ideas Free Download Options</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/ts-mkv-movavi/"><u>免費線上 TS 到 MKV 轉換服務 - 運用 Movavi 技術</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/convertisseur-audio-gratuit-pour-transformer-vos-fichiers-m4a-movavi/"><u>Convertisseur Audio Gratuit Pour Transformer Vos Fichiers M4A - Movavi</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-adeptly-archive-your-fb-friends-lives-in-seconds/"><u>In 2024, Adeptly Archive Your Fb Friends' Lives in Seconds</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-on-samsung-galaxy-s24-ultra-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock on Samsung Galaxy S24 Ultra Devices</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-nokia-c300-by-phone-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Nokia C300 by Phone Number | Dr.fone</u></a></li>
-<li><a href="https://discover-brilliant.techidaily.com/streamlined-product-release-processes-in-top-breweries-via-abbyy-solutions/"><u>Streamlined Product Release Processes in Top Breweries via ABBYY Solutions</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/transformacion-digital-modernizada-un-paso-facil-de-vhs-a-versatilidades-multimedias-mp4-dvd/"><u>Transformación Digital Modernizada: Un Paso Fácil De VHS a Versatilidades Multimedias (MP4, DVD)</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/unlocking-growth-potential-through-cookiebot-power-solutions/"><u>Unlocking Growth Potential Through Cookiebot Power Solutions</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-efficient-routines-for-video-game-screening/"><u>[New] 2024 Approved Efficient Routines for Video Game Screening</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-top-picks-user-friendly-software-for-new-game-recorders-and-editors/"><u>[New] Top Picks User-Friendly Software for New Game Recorders & Editors</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-expert-guide-moving-snaps-from-snapchat-app-effortlessly/"><u>[Updated] 2024 Approved Expert Guide Moving Snaps From Snapchat App Effortlessly</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/becoming-a-snapshot-wizard-top-positions-for-iphone-photos/"><u>Becoming a Snapshot Wizard Top Positions for iPhone Photos</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/enhancing-record-accuracy-at-pwc-through-abbyys-cutting-edge-document-processing-systems/"><u>Enhancing Record Accuracy at PwC Through ABBYY's Cutting-Edge Document Processing Systems</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/general-motors-commits-to-protecting-customer-vehicle-information-privacy/"><u>General Motors Commits to Protecting Customer Vehicle Information Privacy</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-detect-and-stop-mspy-from-spying-on-your-motorola-moto-g13-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Stop mSpy from Spying on Your Motorola Moto G13 | Dr.fone</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/learn-abbyy-vantage-with-our-comprehensive-online-tutorial-videos/"><u>Learn ABBYY Vantage with Our Comprehensive Online Tutorial Videos</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/llama-vs-gpt-4-showdown-determining-the-superior-ai/"><u>Llama vs GPT-4 Showdown: Determining the Superior AI</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/maximize-site-engagement-using-the-innovative-capabilities-of-cookiebot/"><u>Maximize Site Engagement Using the Innovative Capabilities of Cookiebot</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/new-features-and-renaming-from-abbyy-recognition-server-to-abbyy-finereader-server/"><u>New Features and Renaming: From ABBYY Recognition Server to ABBYY FineReader Server</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/ninety-percent-of-businesses-miss-out-on-prospective-buyers-due-to-inadequate-online-onboarding-experiences/"><u>Ninety Percent of Businesses Miss Out on Prospective Buyers Due to Inadequate Online Onboarding Experiences</u></a></li>
+<li><a href="https://howto.techidaily.com/super-easy-ways-to-deal-with-tecno-pova-5-pro-unresponsive-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Super Easy Ways To Deal with Tecno Pova 5 Pro Unresponsive Screen | Dr.fone</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-how-to-use-voice-recorder-on-samsung-s10s9-for-2024/"><u>Updated How to Use Voice Recorder on Samsung S10/S9 for 2024</u></a></li>
 </ul></div>
 

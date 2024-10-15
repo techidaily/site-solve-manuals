@@ -1,7 +1,7 @@
 ---
 title: "Effective Onboarding Strategies: Harmonizing Client Trust and Anti-Fraud Measures"
-date: 2024-10-07T18:26:28.690Z
-updated: 2024-10-08T17:26:32.798Z
+date: 2024-10-08T23:32:55.851Z
+updated: 2024-10-15T01:44:08.689Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a6535057526d825a812b9edea09b4a8a4894edee43c3184c203deba2afb4fbdc.jpg
@@ -14,10 +14,10 @@ eBook
 ## Onboarding: Balance customer expectations with fraud controls
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948905/19272" target="_top" id="1948905">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948905" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948905/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### This ebook explores how end-to-end identity proofing and affirmation tools are not only crucial to reducing this risk, but they also have the added benefit of increased customer confidence.
@@ -25,28 +25,15 @@ eBook
 ![Onboarding: Balance customer expectations with fraud controls](https://static1.abbyy.com/abbyycommedia/37268/onboarding-balance-customer-expectations-with-fraud-controls.jpg)
 
 <!-- affiliate ads begin -->
-<span id="2135471">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://electronicx.pxf.io/c/5597632/1167086/14483" target="_top" id="1167086">
+  <img src="//a.impactradius-go.com/display-ad/14483-1167086" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1167086/14483" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 In a world in which the line between virtual and offline identities has become increasingly blurred, it’s become more important than ever for organizations to ensure that they know the true identity of their users, customers, employees, and partners.  
   
 Verifying the true identity of customers and employees has become more difficult and more important as scammers become more sophisticated. Highly regulated industries like banking and healthcare are hyper focused on cybersecurity, but it’s become increasingly important for businesses in every industry to make sure they have best-in-class fraud prevention procedures in place. 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144281/7443" target="_top" id="2144281">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144281" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144281/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Download it now!
 
@@ -58,10 +45,10 @@ This playbook will dig into the challenges of verifying user identities online. 
 * Why identity proofing isn’t enough.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Thank you for your interest in ABBYY.
@@ -69,6 +56,13 @@ This playbook will dig into the challenges of verifying user identities online. 
 [Read eBook](https://digital.abbyy.com/hubfs/documents/content/ebook-use-case-playbook-onboarding-en.pdf "Read eBook") 
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)
 
@@ -139,22 +133,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/ed-navigating-the-markets-youtubes-top-picks/"><u>[Updated] Navigating the Markets YouTube's Top Picks</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-superior-6-apps-to-subtitle-videos-internationally/"><u>[Updated] Superior 6 Apps to Subtitle Videos Internationally</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-become-a-skilled-concealer-of-in-game-voices-compre-points-on-altering-sounds-in-free-fire/"><u>2024 Approved Become a Skilled Concealer of In-Game Voices Compre Points on Altering Sounds in Free Fire</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/6-ultimate-free-film-editor-applications-no-cost-options/"><u>6 Ultimate Free Film Editor Applications - No Cost Options</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/movavi-ogv-mov/"><u>免費線上服務：Movavi提供的 OGV 和 MOV 影片專家轉換器</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/beginners-guide-the-15-leading-video-editing-programs-easy-to-use/"><u>Beginner's Guide: The 15 Leading Video Editing Programs Easy To Use</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cambiar-formatos-de-archivo-sin-coste-convertir-pgm-a-imagenes-bitmap-libremente-con-movavi/"><u>Cambiar Formatos De Archivo Sin Coste - Convertir PGM a Imagenes Bitmap Libremente Con Movavi</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/gratis-digitaal-converter-versterk-uw-soundfiles-van-wav-tot-flacaiff-via-movavi/"><u>Gratis Digitaal Converter: Versterk Uw Soundfiles Van WAV Tot FLAC/AIFF via Movavi</u></a></li>
-<li><a href="https://fox-place.techidaily.com/guide-eradicate-all-adchoices-intrusive-windows-for-a-cleaner-browsing-experience/"><u>Guide: Eradicate All AdChoices Intrusive Windows for a Cleaner Browsing Experience</u></a></li>
-<li><a href="https://fox-that.techidaily.com/how-to-fix-airplay-when-its-not-working/"><u>How to Fix AirPlay When It's Not Working</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/1726227583001-movavi-video-editor/"><u>Movavi Video Editor: 高效下载与使用指南</u></a></li>
-<li><a href="https://fox-http.techidaily.com/perfecting-your-shots-action-cameras-for-skisnowboarding/"><u>Perfecting Your Shots Action Cameras for Ski/Snowboarding</u></a></li>
-<li><a href="https://driver-download.techidaily.com/simple-guide-updating-your-lenovo-bios-and-chipset-drivers/"><u>Simple Guide: Updating Your Lenovo BIOS and Chipset Drivers</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/step-by-step-guide-concealing-your-taskbar-in-windows-11/"><u>Step-by-Step Guide: Concealing Your Taskbar in Windows 11</u></a></li>
-<li><a href="https://fox-that.techidaily.com/tackling-last-character-unavailable-glitch-on-your-ios-device-expert-strategies-for-success/"><u>Tackling 'Last Character Unavailable' Glitch on Your iOS Device: Expert Strategies for Success</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/top-18-editores-de-peliculas-sin-costo-para-windows-11-8-y-7-guia-completa/"><u>Top 18 Editores De Películas Sin Costo Para Windows 11, 8 Y 7: Guía Completa</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/transform-your-mp4-footage-into-high-quality-content-using-movavis-editing-tool/"><u>Transform Your MP4 Footage Into High-Quality Content Using Movavi's Editing Tool</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-crafting-professional-content-on-youtube-via-enhancements/"><u>[New] 2024 Approved Crafting Professional Content on YouTube via Enhancements</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-how-to-insert-youtube-links-for-an-engaging-ppt-experience/"><u>[New] 2024 Approved How to Insert YouTube Links for an Engaging PPT Experience</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-the-artist-writes-an-ipad-guide-to-time-lapse-photography/"><u>[Updated] The Artist' Writes An iPad Guide to Time-Lapse Photography</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/6-methods-for-switching-from-apple-iphone-x-to-samsung-drfone-by-drfone-transfer-from-ios/"><u>6 Methods for Switching from Apple iPhone X to Samsung | Dr.fone</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/abbey/"><u>損害賠償申請プロセスの流れを適切にコントロールしている方法 | ABBEYブック</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/a-retrospective-journey-through-2018-what-has-changed-thought-leadership-at-abbyy-blog/"><u>A Retrospective Journey Through 2018: What Has Changed? | Thought Leadership at ABBYY Blog</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/abbyy-study-shows-finance-professionals-uphold-regulations-more-than-public-servants-exclusive-insights/"><u>ABBYY Study Shows Finance Professionals Uphold Regulations More Than Public Servants - Exclusive Insights</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/abbyy-welcomes-torsten-malchow-as-new-vp-and-head-of-worldwide-enterprise-solutions/"><u>ABBYY Welcomes Torsten Malchow as New VP and Head of Worldwide Enterprise Solutions</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/apple-unveils-groundbreaking-solution-for-cleaning-up-virtual-worlds-new-patent-targets-metaverse-graffiti/"><u>Apple Unveils Groundbreaking Solution for Cleaning Up Virtual Worlds - New Patent Targets Metaverse Graffiti</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-your-account-has-been-disabled-in-the-app-store-and-itunes-on-iphone-6-by-drfone-ios/"><u>In 2024, Your Account Has Been Disabled in the App Store and iTunes On iPhone 6?</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/smart-automation-losungen-fur-die-versicherungswirtschaft/"><u>Smart Automation Lösungen Für Die Versicherungswirtschaft</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/smart-document-handling-examples-in-transit-operations-and-distribution-management/"><u>Smart Document Handling Examples in Transit Operations and Distribution Management</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/stop-deathloop-from-crashing-on-your-computer-easy-fixes-revealed/"><u>Stop Deathloop From Crashing on Your Computer - Easy Fixes Revealed!</u></a></li>
+<li><a href="https://discover-cloud.techidaily.com/top-20-free-live-ip-camera-software-options-with-legjobb-features-by-movavi/"><u>Top 20 Free Live IP Camera Software Options with Legjobb Features by Movavi</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/top-9-essentials-you-should-know-before-purchasing-your-first-dashboard-camera/"><u>Top 9 Essentials You Should Know Before Purchasing Your First Dashboard Camera</u></a></li>
+<li><a href="https://games-able.techidaily.com/top-strategies-for-limiting-steam-web-helpers-ram-use/"><u>Top Strategies for Limiting Steam Web Helper's RAM Use</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/unlocking-the-secrets-of-optimizing-your-websites-page-rank/"><u>Unlocking the Secrets of Optimizing Your Website's Page Rank</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/utilizing-the-power-of-cookiebot-for-effective-ad-campaigns/"><u>Utilizing the Power of Cookiebot for Effective Ad Campaigns</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/web-page-excellence-key-strategies-for-effective-search-engine-visibility/"><u>Web Page Excellence: Key Strategies for Effective Search Engine Visibility</u></a></li>
 </ul></div>
 

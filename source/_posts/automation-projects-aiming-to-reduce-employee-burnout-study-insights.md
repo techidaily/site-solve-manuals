@@ -1,7 +1,7 @@
 ---
 title: Automation Projects Aiming to Reduce Employee Burnout - Study Insights
-date: 2024-10-02T17:56:26.858Z
-updated: 2024-10-08T16:39:35.234Z
+date: 2024-10-11T23:53:03.533Z
+updated: 2024-10-14T17:48:11.399Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b8a6614e5e46e83c73c99e937a620940173ecb3e527c0b15c86864ff7f2cf4ce.png
@@ -63,10 +63,10 @@ _Linda Ameur, Directrice France chez ABBYY_
 Cette étude a été menée par ABBYY en collaboration avec Sapio Research en mars 2022 auprès de 1 208 décideurs informatiques répartis en France, au Royaume-Uni, en Allemagne, aux États-Unis et au Japon sur les investissements des entreprises dans des projets d'automatisation, les raisons pour lesquelles elles ont opté pour des stratégies technologiques et l'impact du facteur comportemental sur la réussite des projets.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144273/7443" target="_top" id="2144273">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144273" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144273/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### À propos d’ABBYY
@@ -76,10 +76,10 @@ ABBYY est un acteur référent de l’Intelligent Process Automation. L’entrep
 ABBYY est une multinationale basée aux États-Unis, et dont les bureaux sont répartis au sein de 15 pays. Pour plus d’informations, veuillez consulter le site <https://www.abbyy.com/fr/>.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012401/19272" target="_top" id="2012401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012401" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Contact presse
@@ -87,10 +87,10 @@ ABBYY est une multinationale basée aux États-Unis, et dont les bureaux sont r�
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Bianca Stupp
@@ -116,24 +116,22 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-facebook-video-acquisition-made-easy-best-android-downloader-apps-ranked/"><u>[New] In 2024, Facebook Video Acquisition Made Easy Best Android Downloader Apps Ranked</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/1-automated-conversion-tracking-enhanced-with-cookiebot-technology/"><u>1. Automated Conversion Tracking: Enhanced with Cookiebot Technology</u></a></li>
-<li><a href="https://win-lab.techidaily.com/1-mastering-the-art-of-email-signatures-a-step-by-step-guide-with-microsoft-outlook/"><u>1. Mastering the Art of Email Signatures: A Step-by-Step Guide with Microsoft Outlook</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-funnyframefactory-imggigglesworkshop/"><u>2024 Approved FunnyFrameFactory ImgGigglesWorkshop</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-the-basics-of-slug-lines-explained/"><u>2024 Approved The Basics of Slug Lines Explained</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/are-electric-cars-effective-during-intense-temperature-fluctuations-a-closer-look-at-their-durability/"><u>Are Electric Cars Effective During Intense Temperature Fluctuations: A Closer Look at Their Durability</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/excellence-in-flight-choosing-superior-drone-motor-technology-for-2024/"><u>Excellence in Flight Choosing Superior Drone Motor Technology for 2024</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/leveraging-artificeinvoice-automation-the-ultimate-guide-to-using-ai-in-electronic-invoicing/"><u>Leveraging Artificeinvoice Automation: The Ultimate Guide to Using AI in Electronic Invoicing</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/mastering-supply-chain-durability-incorporating-process-insights-into-your-strategy-with-abbyy-industry-leaders/"><u>Mastering Supply Chain Durability: Incorporating Process Insights Into Your Strategy with ABBYY Industry Leaders</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/optimized-with-advanced-cookiebot-technology/"><u>Optimized with Advanced Cookiebot Technology</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/ready-set-go-a-quick-checklist-for-transitioning-to-windows-amo-10-creators-update/"><u>Ready, Set, Go! A Quick Checklist for Transitioning to Windows Amo 10 Creators Update</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/slash-expenses-in-newspaper-digitization-dl-consultings-use-of-abbyy-software/"><u>Slash Expenses in Newspaper Digitization: DL Consulting's Use of ABBYY® Software</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/the-next-chapter-in-operating-systems-windows-11/"><u>The Next Chapter in Operating Systems Windows 11</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-pros-and-cons-of-the-fl5500a-flatwave-by-winegard-solid-work-with-pricey-demand/"><u>The Pros and Cons of the #FL5500A FlatWave by Winegard: Solid Work with Pricey Demand</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/tips-to-mend-text-not-showing-up-on-discord-windows/"><u>Tips to Mend Text Not Showing Up on Discord Windows</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/transform-mobile-scanning-with-abbyys-business-card-reader-for-android-fast-accurate-intuitive-technology/"><u>Transform Mobile Scanning with ABBYY's Business Card Reader for Android: Fast, Accurate, Intuitive Technology</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/transform-your-business-save-time-and-money-with-our-superior-paperless-solutions-and-world-class-ocr-tools-for-smb-success/"><u>Transform Your Business: Save Time & Money with Our Superior Paperless Solutions and World-Class OCR Tools for SMB Success</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/unleashing-potential-with-cookiebot-technology-for-websites/"><u>Unleashing Potential with Cookiebot Technology for Websites</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/webinar-recap-strategies-to-minimize-risks-in-libor-agreements/"><u>Webinar Recap: Strategies to Minimize Risks in LIBOR Agreements</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-from-amateur-to-pro-gopro-vlogging-secrets-revealed/"><u>[New] 2024 Approved From Amateur to Pro Gopro Vlogging Secrets Revealed</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-front-row-diversions-beyond-sports-galore/"><u>[Updated] 2024 Approved Front Row Diversions Beyond Sports Galore</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-unmissable-virtual-realms-for-gamers/"><u>[Updated] Unmissable Virtual Realms for Gamers</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/202ncdmp3/"><u>「如何在202n年有效地從CD升級到MP3：初學者友好版指南」</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-building-an-online-empire-through-effective-marketing/"><u>2024 Approved Building an Online Empire Through Effective Marketing</u></a></li>
+<li><a href="https://fake-location.techidaily.com/all-must-knows-to-use-fake-gps-go-location-spoofer-on-tecno-pova-5-drfone-by-drfone-virtual-android/"><u>All Must-Knows to Use Fake GPS GO Location Spoofer On Tecno Pova 5 | Dr.fone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/1723015814832-borderlands-3-audio-glitch-heres-how-to-get-your-game-sounds-back-on-pc/"><u>Borderlands 3 Audio Glitch? Here's How to Get Your Game Sounds Back on PC</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/conversion-gratuita-online-de-archivos-asf-a-avi-mediante-movavi-compruebe-la-oferta-hoy/"><u>Conversión Gratuita Online De Archivos ASF a AVI Mediante Movavi - Compruebe La Oferta Hoy!</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/effective-strategies-for-recording-conferences-using-zoom-skype-and-similar-platforms/"><u>Effective Strategies for Recording Conferences Using Zoom, Skype, and Similar Platforms</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/free-online-converter-mp4-to-wma-format-moveit/"><u>Free Online Converter: MP4 to WMA Format - MoveIt</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-fix-icloud-lock-from-your-apple-iphone-15-pro-and-ipad-by-drfone-ios/"><u>In 2024, How to fix iCloud lock from your Apple iPhone 15 Pro and iPad</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/los-reproductores-de-video-mas-populares-y-efectivos-para-su-pc-top-12/"><u>Los Reproductores De Video Más Populares Y Efectivos Para Su PC: Top 12</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/mastering-the-art-of-crafting-a-winning-resume-with-chatgpt/"><u>Mastering the Art of Crafting a Winning Résumé with ChatGPT</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/mov-a-aiff-convertitore-online-e-gratuito-utilizzo-di-movemovi/"><u>MOV a AIFF Convertitore Online E Gratuito - Utilizzo Di MoveMovi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/top-8-high-performance-web-browser-microphone-recording-apps/"><u>Top 8 High-Performance Web Browser Microphone Recording Apps</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-is-a-sim-network-unlock-pin-get-your-nokia-105-classic-phone-network-ready-by-drfone-android/"><u>What Is a SIM Network Unlock PIN? Get Your Nokia 105 Classic Phone Network-Ready</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1726226824751-mp4mp3/"><u>オンラインで手軽にMP4からMP3へ変換!? 無料動画コンバーター</u></a></li>
 </ul></div>
 

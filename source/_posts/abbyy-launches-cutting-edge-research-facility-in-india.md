@@ -1,7 +1,7 @@
 ---
 title: ABBYY Launches Cutting-Edge Research Facility in India
-date: 2024-10-05T16:59:47.716Z
-updated: 2024-10-08T19:14:49.720Z
+date: 2024-10-10T00:18:40.435Z
+updated: 2024-10-14T23:43:14.285Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/614e0e5c423fbfce776b4242bea85cadda084bd0ef851e6cf9024dcc8525ee26.jpg
@@ -40,10 +40,10 @@ ABBYY is a recognized leader by more than a dozen analysts for its [intelligent 
 _1_ _[Forrester: APAC Tech Spend to Grow 7% Annually, Reaching US $876 Billion In 2027](https://www.forrester.com/press-newsroom/forrester-apac-tech-spend-forecast-2024/#:~:text=SINGAPORE%2C%20June%2011%2C%202024%20%E2%80%94,US%20%24876%20billion%20in%202027.#:~:text=SINGAPORE%2C%20June%2011%2C%202024%20%E2%80%94,US%20%24876%20billion%20in%202027.), June 11, 2024._ 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### About ABBYY
@@ -69,18 +69,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-from-social-to-storage-iphone-and-android-gif-savings-for-2024/"><u>[New] From Social to Storage IPhone & Android GIF Savings for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-hurdlehop-pausevidsnapshot/"><u>[Updated] 2024 Approved HurdleHop PauseVidSnapshot</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-free-visual-culture-posthumous-works-unbound/"><u>2024 Approved Free Visual Culture Posthumous Works Unbound</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-unleash-the-magic-of-time-lapse-photography-on-samsung-gear/"><u>2024 Approved Unleash the Magic of Time-Lapse Photography on Samsung Gear</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-growth-unleashing-potential-in-website-optimization-and-conversions/"><u>Cookiebot-Driven Growth: Unleashing Potential in Website Optimization and Conversions</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-optimization-skyrocketing-your-seo-success-overnight/"><u>Cookiebot-Driven Optimization: Skyrocketing Your SEO Success Overnight!</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-success-optimizing-your-website-with-smart-analytics-tools/"><u>Cookiebot-Driven Success: Optimizing Your Website with Smart Analytics Tools</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-optimized-website-performance-and-personalization/"><u>Cookiebot-Enabled: Optimized Website Performance and Personalization</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-location-on-facebook-dating-for-your-nokia-xr21-drfone-by-drfone-virtual-android/"><u>How to Change Location On Facebook Dating for your Nokia XR21 | Dr.fone</u></a></li>
-<li><a href="https://android-location.techidaily.com/how-to-fake-gps-on-android-without-mock-location-for-your-infinix-smart-8-drfone-by-drfone-virtual/"><u>How to Fake GPS on Android without Mock Location For your Infinix Smart 8 | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-unlock-apple-id-activation-lock-from-apple-iphone-se-2020-by-drfone-ios/"><u>In 2024, How to Unlock Apple ID Activation Lock From Apple iPhone SE (2020)?</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/logitech-driver-update-made-simple-fast-downloads-and-compatible-with-windows-os/"><u>Logitech Driver Update Made Simple - Fast Downloads & Compatible with Windows OS</u></a></li>
-<li><a href="https://games-able.techidaily.com/premium-games-necessity-or-luxury-for-mts/"><u>Premium Games: Necessity or Luxury for MTs?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-joint-filmmaking-and-gaining-followers-quickly/"><u>[New] Joint Filmmaking & Gaining Followers Quickly</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-enhancing-engagement-10-must-have-tools-for-ig-gurus/"><u>[Updated] Enhancing Engagement 10 Must-Have Tools for IG Gurus</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-finding-opportunities-where-youtube-collaborations-thrive/"><u>[Updated] Finding Opportunities Where YouTube Collaborations Thrive</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/7-ways-to-unlock-a-locked-nokia-130-music-phone-by-drfone-android/"><u>7 Ways to Unlock a Locked Nokia 130 Music Phone</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/9-libres-y-gratuitos-de-insercion-de-texto-en-videos-una-guia-completa/"><u>9 Libres Y Gratuitos De Inserción De Texto en Videos: Una Guía Completa</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/conversion-gratuita-di-file-pef-in-formato-png-con-movavi-strategie-seo-per-massimizzare-il-tuo-traffico-web/"><u>Conversion Gratuita Di File PEF in Formato PNG Con Movavi - Strategie SEO per Massimizzare Il Tuo Traffico Web</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/conversione-gratuita-online-da-vob-a-3gp-con-movavi/"><u>Conversione Gratuita Online Da VOB a 3GP Con Movavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/effortless-audio-and-video-editing-convert-wav-tracks-to-premium-mkv-on-movavi-for-free/"><u>Effortless Audio and Video Editing: Convert WAV Tracks to Premium MKV on Movavi for Free!</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/evaluating-the-motorola-mg7700-for-quick-and-trustworthy-data-transfer/"><u>Evaluating the Motorola MG7700 for Quick & Trustworthy Data Transfer</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/expertly-curated-discover-the-best-16-video-streamers-on-the-market/"><u>Expertly Curated: Discover the Best 16 Video Streamers on the Market</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/free-webp-file-converter-effortless-online-image-format-transformation-by-movavi/"><u>Free WebP File Converter: Effortless Online Image Format Transformation by Movavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/gratis-mp4-videos-in-asf-konverteren-met-de-vervangbare-online-oplossing-van-movavi/"><u>Gratis MP4-Video's in ASF Konverteren Met De Vervangbare Online Oplossing Van Movavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/gratuito-conversion-de-mpeg-a-flac-online-con-movavi-pasos-simples/"><u>Gratuito Conversión De MPEG a FLAC Online Con Movavi: Pasos Simples</u></a></li>
+<li><a href="https://win-blog.techidaily.com/helldivers-2-launch-problems-a-step-by-step-guide-to-fix-the-black-screen-error/"><u>Helldivers 2 Launch Problems: A Step-by-Step Guide to Fix the Black Screen Error</u></a></li>
+<li><a href="https://win-dash.techidaily.com/how-to-update-and-install-tp-links-ub40eblisher-driver-package/"><u>How to Update & Install TP-Link's UB40eblisher Driver Package</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/is-chatgpt-an-indispnidable-companion-when-lost-in-natures-embrace/"><u>Is ChatGPT an Indispnidable Companion When Lost in Nature's Embrace?</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/master-the-fresh-start-comprehensive-tips-for-refreshing-your-lenovo-pc-with-factory-settings/"><u>Master the Fresh Start: Comprehensive Tips for Refreshing Your Lenovo PC with Factory Settings</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/record-your-mac-livestreams-like-a-pro-top-5-free-tools-and-techniques/"><u>Record Your Mac Livestreams Like a Pro: Top 5 FREE Tools & Techniques</u></a></li>
+<li><a href="https://common-error.techidaily.com/step-by-step-guide-to-fix-user-profile-service-failed-sign-in-problems-on-windows-1011/"><u>Step-by-Step Guide to Fix User Profile Service Failed Sign-In Problems on Windows 10/11</u></a></li>
 </ul></div>
 

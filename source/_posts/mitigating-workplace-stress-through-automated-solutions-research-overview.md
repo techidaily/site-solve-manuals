@@ -1,7 +1,7 @@
 ---
 title: Mitigating Workplace Stress Through Automated Solutions - Research Overview
-date: 2024-10-05T18:43:50.346Z
-updated: 2024-10-08T16:52:12.610Z
+date: 2024-10-09T22:38:27.437Z
+updated: 2024-10-14T19:03:08.554Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5b8892c5db775bfe3651bc6e97180034918a1871516139b779bbf46994cbed29.jpg
@@ -63,16 +63,10 @@ _Linda Ameur, Directrice France chez ABBYY_
 Cette étude a été menée par ABBYY en collaboration avec Sapio Research en mars 2022 auprès de 1 208 décideurs informatiques répartis en France, au Royaume-Uni, en Allemagne, aux États-Unis et au Japon sur les investissements des entreprises dans des projets d'automatisation, les raisons pour lesquelles elles ont opté pour des stratégies technologiques et l'impact du facteur comportemental sur la réussite des projets.
 
 <!-- affiliate ads begin -->
-<span id="1975562">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### À propos d’ABBYY
@@ -82,16 +76,10 @@ ABBYY est un acteur référent de l’Intelligent Process Automation. L’entrep
 ABBYY est une multinationale basée aux États-Unis, et dont les bureaux sont répartis au sein de 15 pays. Pour plus d’informations, veuillez consulter le site <https://www.abbyy.com/fr/>.
 
 <!-- affiliate ads begin -->
-<span id="2135472">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Contact presse
@@ -99,10 +87,10 @@ ABBYY est une multinationale basée aux États-Unis, et dont les bureaux sont r�
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Bianca Stupp
@@ -128,17 +116,19 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/ed-the-top-ten-accelerating-youtube-sectors-of-thought/"><u>[Updated] The Top Ten Accelerating YouTube Sectors of Thought</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-unveil-the-best-of-history-top-10-youtube-channel-list-for-2024/"><u>[Updated] Unveil the Best of History Top 10 YouTube Channel List for 2024</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/1724313535664-abbyy/"><u>「タスクマイニングの基礎: 効率的なワークフローへの道」 - ABBYYブログで探るタスク分析と自動化</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-prowl-these-top-ranked-sites-for-generous-vector-imagery-access/"><u>2024 Approved Prowl These Top-Ranked Sites for Generous Vector Imagery Access</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-strategic-marketing-websites-for-youtube-videos/"><u>2024 Approved Strategic Marketing Websites for YouTube Videos</u></a></li>
-<li><a href="https://howto.techidaily.com/8-solutions-to-solve-youtube-app-crashing-on-infinix-hot-40-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Solutions to Solve YouTube App Crashing on Infinix Hot 40 | Dr.fone</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/abbyy-welcomes-tomohito-shimizu-as-new-head-of-its-japan-operations/"><u>ABBYY Welcomes Tomohito Shimizu as New Head of Its Japan Operations</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/boost-your-sites-traffic-with-cookiebot-the-smart-way/"><u>Boost Your Site's Traffic with Cookiebot - The Smart Way</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/1724313295714-dx/"><u>DX初心者をサポートする入門書リスト</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ring-the-past-top-10-educational-history-yt-channels-for-2024/"><u>Exploring the Past Top 10 Educational History YT Channels for 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-prevent-cross-site-tracking-on-samsung-galaxy-a24-and-browser-drfone-by-drfone-virtual-android/"><u>In 2024, Prevent Cross-Site Tracking on Samsung Galaxy A24 and Browser | Dr.fone</u></a></li>
-<li><a href="https://win-able.techidaily.com/troubleshooting-palworld-solutions-when-it-wont-start/"><u>Troubleshooting Palworld: Solutions When It Won't Start</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-launching-a-channel-heres-what-you-need/"><u>[New] 2024 Approved Launching a Channel? Here’s What You Need</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-capturing-the-globe-from-novice-to-experienced-travel-videographer-for-2024/"><u>[New] Capturing the Globe From Novice to Experienced Travel Videographer for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-invent-iconic-images-through-giphy/"><u>[New] Invent Iconic Images Through Giphy</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-learn-the-ins-and-outs-of-adding-gifs-on-instagram-in-4-steps/"><u>[New] Learn the Ins and Outs of Adding GIFs on Instagram in 4 Steps</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-soft-soundscapes-low-profile-alterations-in-garageband/"><u>[New] Soft Soundscapes Low-Profile Alterations in Garageband</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-constructing-home-made-vr-headgear-with-google-cards/"><u>2024 Approved Constructing Home-Made VR Headgear with Google Cards</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-enhanced-optimize-your-website-with-cutting-edge-analytics-tools/"><u>Cookiebot-Enhanced: Optimize Your Website with Cutting-Edge Analytics Tools</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebots-magic-touch-in-enhancing-your-websites-visibility-unveiling-the-secrets-behind-successful-seo/"><u>Cookiebot's Magic Touch in Enhancing Your Website's Visibility - Unveiling the Secrets Behind Successful SEO!</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/driven-with-advanced-ai-the-modern-solution-of-cookiebot/"><u>Driven with Advanced AI: The Modern Solution of Cookiebot</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/effortless-docbook-digitization-for-iphones-using-ocr-technology-try-the-power-of-finereader/"><u>Effortless Doc/Book Digitization for iPhones Using OCR Technology - Try the Power of FineReader!</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/elevate-site-traffic-with-advanced-cookiebot-driven-seo-techniques/"><u>Elevate Site Traffic with Advanced Cookiebot-Driven SEO Techniques</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/elevating-enterprise-success-through-process-intelligence-explore-innovations-on-the-abbyy-platform/"><u>Elevating Enterprise Success Through Process Intelligence - Explore Innovations on the ABBYY Platform</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/navigating-the-best-practices-for-fb-video-advertising-for-2024/"><u>Navigating the Best Practices for FB Video Advertising for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/step-by-step-solution-for-realtek-rtl8723be-driver-compatibility-problems/"><u>Step-by-Step Solution for Realtek RTL8723BE Driver Compatibility Problems</u></a></li>
 </ul></div>
 

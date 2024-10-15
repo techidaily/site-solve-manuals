@@ -1,7 +1,7 @@
 ---
 title: "Webinar Invitation: Strategies for Safeguarding Finances From Fraud & Money Laundering"
-date: 2024-10-05T16:22:17.494Z
-updated: 2024-10-08T18:13:25.652Z
+date: 2024-10-07T17:16:16.500Z
+updated: 2024-10-14T16:21:06.787Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/35711b04893827e589108adbb18a73b7e3ecd093c90f2ad47957b85620005c06.png
@@ -24,10 +24,10 @@ Artificial Intelligence and smarter technologies can help financial institutions
 Join industry experts including analyst Aite Group for a lively, interactive panel discussion about protecting against financial crimes that exploit virtualization, process automation, identity theft and fake identity. Viewers will get three unique perspectives on the topic.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### This webinar covers:
@@ -37,19 +37,19 @@ Join industry experts including analyst Aite Group for a lively, interactive pan
 * How digital intelligence helps banks to understand how and where questionable interactions between customers and the banks are taking place
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Fill in the form to register for the webinar now
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997675/19272" target="_top" id="1997675">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997675" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997675/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Get in touch with us
@@ -62,10 +62,10 @@ All personal information collected via this method is under full scope of all pr
 [![06 Protecting Against Fraud And Money Laundering 643X363](https://static4.abbyy.com/abbyycommedia/30454/06-protecting-against-fraud-and-money-laundering-643x363.jpg)](https://www.youtube.com/watch?v=7DLjZtdoQNo) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012401/19272" target="_top" id="2012401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012401" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Please check your inbox, we have sent you a confirmation email.
@@ -137,22 +137,19 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-crafting-collabs-that-attract-and-retain-viewers/"><u>[New] 2024 Approved Crafting Collabs that Attract and Retain Viewers</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-in-2024-the-ultimate-look-at-logitechs-high-quality-4k-cam/"><u>[New] In 2024, The Ultimate Look at Logitech's High-Quality 4K Cam</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/new-securely-sharing-video-on-youtube-with-settings/"><u>[New] Securely Sharing Video on YouTube with Settings</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-what-are-the-best-sites-to-download-text-effects/"><u>[New] What Are The Best Sites To Download Text Effects?</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-capture-the-thrill-essential-recording-tips-for-overwatch/"><u>[Updated] 2024 Approved Capture the Thrill Essential Recording Tips for Overwatch</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-the-ultimate-selection-top-10-vimeo-download-tools-unveiled/"><u>[Updated] In 2024, The Ultimate Selection Top 10 Vimeo Download Tools Unveiled</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/discover-these-fascinating-facts-about-your-favorite-emojis/"><u>Discover These Fascinating Facts About Your Favorite Emojis</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/effortless-audio-file-exchange-upload-your-m4a-and-download-as-ogg-without-cost/"><u>Effortless Audio File Exchange - Upload Your M4A and Download as Ogg without Cost</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/exploring-task-mining-enhancing-your-approach-to-workplace-efficiency-insights-from-the-abbyy-blog/"><u>Exploring Task Mining: Enhancing Your Approach to Workplace Efficiency - Insights From the ABBYY Blog</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/harnessing-the-power-of-cookiebot-for-optimized-user-engagement/"><u>Harnessing the Power of Cookiebot for Optimized User Engagement</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/leverage-cookiebot-technology-for-advanced-site-insights-and-lead-generation/"><u>Leverage Cookiebot Technology for Advanced Site Insights & Lead Generation</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/leverage-cookiebot-technology-for-improved-analytics-and-personalized-engagement-on-your-website/"><u>Leverage Cookiebot Technology for Improved Analytics and Personalized Engagement on Your Website</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/neue-leitungswelle-bei-abbeyy-holt-zwei-berufung-von-it-fachleuten-ins-board-of-directors/"><u>Neue Leitungswelle Bei ABBEYY Holt Zwei: Berufung Von IT-Fachleuten Ins Board of Directors</u></a></li>
-<li><a href="https://win-outstanding.techidaily.com/purchase-microsoft-office-2019-get-installed-on-pc-or-mac-for-just-25-a-detailed-guide-by-techexpert/"><u>Purchase Microsoft Office 2019: Get Installed on PC or Mac for Just $25 – A Detailed Guide by TechExpert</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/smart-automation-losungen-fur-die-versicherungswirtschaft/"><u>Smart Automation Lösungen Für Die Versicherungswirtschaft</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/smart-document-handling-examples-in-transit-operations-and-distribution-management/"><u>Smart Document Handling Examples in Transit Operations and Distribution Management</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/unlocking-the-secrets-of-optimizing-your-websites-page-rank/"><u>Unlocking the Secrets of Optimizing Your Website's Page Rank</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-react-and-relate-harness-the-power-of-alternate-perspectives-for-compelling-youtube-vids-2-pov-method/"><u>[New] 2024 Approved React and Relate - Harness the Power of Alternate Perspectives for Compelling YouTube Vids (2 POV Method)</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-a-simple-path-to-enhanced-youtube-sign-ups-create-animated-subscription-bar-using-filmora/"><u>[Updated] 2024 Approved A Simple Path to Enhanced YouTube Sign-Ups - Create Animated Subscription Bar Using Filmora</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-detailed-guide-instastickers-your-pathway-to-musical-posting-for-2024/"><u>[Updated] Detailed Guide InstaStickers – Your Pathway to Musical Posting for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-fast-forward-your-twitch-experience-for-2024/"><u>[Updated] Fast-Forward Your Twitch Experience for 2024</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1726224446806-2024/"><u>2024上市最新型高級音樂編曲軟件 - 自由使用或付費選擇</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/3-easy-methods-to-unlock-icloud-locked-iphone-15-pro-maxipadipod-by-drfone-ios/"><u>3 Easy Methods to Unlock iCloud Locked iPhone 15 Pro Max/iPad/iPod</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/advanced-ios-data-erasing-techniques-keep-your-mobile-sensitive-files-secret/"><u>Advanced iOS Data Erasing Techniques: Keep Your Mobile Sensitive Files Secret</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cambiar-video-mov-en-vivo-sin-coste-guia-paso-a-paso-para-convertirlo-a-formato-avi/"><u>Cambiar Video MOV en Vivo Sin Coste: Guía Paso a Paso Para Convertirlo a Formato AVI</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/comprendre-lenregistrement-ecran-plus-audio-en-quick-time-une-approche-complete-et-simple-a-suivre/"><u>Comprendre L’Enregistrement Écran + Audio en QuiC(k-Time): Une Approche Complète Et Simple À Suivre !</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/convertisseur-audio-gratuit-pour-transformer-vos-fichiers-m4a-movavi/"><u>Convertisseur Audio Gratuit Pour Transformer Vos Fichiers M4A - Movavi</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-changefake-your-motorola-razr-40-location-on-viber-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change/Fake Your Motorola Razr 40 Location on Viber | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-samsung-galaxy-m14-5g-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Samsung Galaxy M14 5G to Other Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/movavi-werk-aan-wmv-videos-om-in-aac-format-te-worden-geconveert-voor-gratis-gebruik-online/"><u>Movavi Werk Aan WMV-Video's Om in AAC-Format Te Worden Geconveert Voor Gratis Gebruik Online</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/step-by-step-walkthrough-switching-nat-type-on-wins-10-and-11/"><u>Step-By-Step Walkthrough: Switching NAT Type on Wins 10 & 11</u></a></li>
 </ul></div>
 

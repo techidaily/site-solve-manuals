@@ -1,7 +1,7 @@
 ---
 title: "Streamlining Revenue Cycles and Cutting Down on Denials: Insights From an ABBYY Specialist on Remote Work Efficiency"
-date: 2024-10-03T16:37:52.203Z
-updated: 2024-10-08T19:14:45.112Z
+date: 2024-10-11T23:07:31.572Z
+updated: 2024-10-14T18:27:41.972Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8ff8906f51872923e9c5692da8760464bdd1f9c3eac0a2d615e95926075c7419.jpg
@@ -19,26 +19,13 @@ English
 
 ![35 Paulbuonopane 198X198](https://static4.abbyy.com/abbyycommedia/25121/logo-2021-90x27.svg) 
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![35 Paulbuonopane 198X198](https://static3.abbyy.com/abbyycommedia/28877/35-paulbuonopane-198x198.png)
 
 <!-- affiliate ads begin -->
-<span id="701707">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Paul Buonopane
@@ -53,15 +40,22 @@ Performance Improvement Expert, **ABBYY**
 
 Director, **The Chartis Group**
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Enterprise policies are in place for all schedulers to collect, enter and verify patient and insurance information at point of scheduling, but these processes are not always followed.
 
 With patient and insurance information making up to 55 percent of the data on claims, and hospital programs requiring accurate patient information, these policies are crucial in ensuring providers are managing their data collection process effectively, which will lead to a reduction in denials.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Learn how ABBYY and Chartis are working together using ABBYY Timeline’s unique Process Intelligence capabilities.
@@ -75,25 +69,19 @@ Learning points include:
 * How to develop reporting to track and trend compliance
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886015/19272" target="_top" id="1886015">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886015" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886015/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Watch now
 
 <!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
+  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Thank you, enjoy your webinar!
@@ -167,22 +155,20 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-precision-sculpting-perfect-circles-spheres-in-minecraft-world-for-2024/"><u>[New] Precision Sculpting Perfect Circles, Spheres in Minecraft World for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-discover-the-leading-15-cost-effective-online-photo-editors-2023/"><u>[Updated] 2024 Approved Discover the Leading 15 Cost-Effective Online Photo Editors, 2023</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/boost-your-sites-performance-with-the-robust-features-of-cookiebot-technology/"><u>Boost Your Site's Performance with the Robust Features of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/boost-your-website-with-advanced-tracking-the-power-of-cookiebot-technology/"><u>Boost Your Website with Advanced Tracking: The Power of Cookiebot Technology</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-evaluation-of-the-razer-blade-stealth-nix-redefining-ultp-innovation/"><u>Comprehensive Evaluation of the Razer Blade Stealth Nix: Redefining ULTP Innovation</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/comprehensive-security-report-understanding-organizational-safeguards/"><u>Comprehensive Security Report: Understanding Organizational Safeguards</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/comprehensive-step-by-step-tutorial-on-preparing-datasets-for-artificnial-intelligence/"><u>Comprehensive Step-by-Step Tutorial on Preparing Datasets for Artificnial Intelligence</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-personalization-enhancing-your-sites-user-experience/"><u>Cookiebot-Driven Personalization: Enhancing Your Site's User Experience</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-enhanced-experience-optimize-your-website-with-advanced-tracking-solutions/"><u>Cookiebot-Enhanced Experience: Optimize Your Website with Advanced Tracking Solutions</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-enhanced-optimize-your-website-with-cutting-edge-analytics-tools/"><u>Cookiebot-Enhanced: Optimize Your Website with Cutting-Edge Analytics Tools</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebots-magic-touch-in-enhancing-your-websites-visibility-unveiling-the-secrets-behind-successful-seo/"><u>Cookiebot's Magic Touch in Enhancing Your Website's Visibility - Unveiling the Secrets Behind Successful SEO!</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-network-locked-sim-card-inserted-on-your-motorola-moto-g84-5g-phone-unlock-it-now-by-drfone-android/"><u>In 2024, Network Locked SIM Card Inserted On Your Motorola Moto G84 5G Phone? Unlock It Now</u></a></li>
-<li><a href="https://techtrends.techidaily.com/maximizing-your-budget-the-ultimate-strategy-for-accessing-lenovos-student-discount-deals/"><u>Maximizing Your Budget: The Ultimate Strategy for Accessing Lenovo's Student Discount Deals</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/1722972326466-negative-externalities-can-result-from-private-transactions-causing-harm-to-others-like-pollution/"><u>Negative Externalities Can Result From Private Transactions Causing Harm to Others, Like Pollution.</u></a></li>
-<li><a href="https://techtrends.techidaily.com/the-buzz-on-pc-fans-how-to-reduce-the-noise-of-your-machines-cooler/"><u>The Buzz on PC Fans: How to Reduce the Noise of Your Machine's Cooler</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-bring-your-vision-to-life-advanced-video-editing-techniques-for-home-movie-makers/"><u>Updated In 2024, Bring Your Vision to Life Advanced Video Editing Techniques for Home Movie Makers</u></a></li>
-<li><a href="https://apple-account.techidaily.com/your-account-has-been-disabled-in-the-app-store-and-itunes-from-iphone-15-plus-by-drfone-ios/"><u>Your Account Has Been Disabled in the App Store and iTunes From iPhone 15 Plus?</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-first-time-user-steps-for-effortless-vrecorder-setup/"><u>[New] In 2024, First-Time User Steps for Effortless VRecorder Setup</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-step-by-step-method-for-capturing-internet-radio-frequencies/"><u>[New] Step-by-Step Method for Capturing Internet Radio Frequencies</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-investigating-alternatives-to-popular-video-broadcaster/"><u>[Updated] Investigating Alternatives to Popular Video Broadcaster</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-mastery-through-motion-a-garageband-guide-to-podcasting/"><u>[Updated] Mastery Through Motion A GarageBand Guide to Podcasting</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-techkey-bluetooth-dongle-driver-compatible-with-windows-11-7-and-8/"><u>Download Techkey Bluetooth Dongle Driver: Compatible with Windows 11, 7 & 8</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/enhanced-traffic-with-automated-tracking-the-benefits-of-using-cookiebot/"><u>Enhanced Traffic with Automated Tracking: The Benefits of Using Cookiebot</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/harness-the-power-of-cookiebot-for-superior-site-analytics-and-personalization/"><u>Harness the Power of Cookiebot for Superior Site Analytics and Personalization</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-use-phone-clone-to-migrate-your-tecno-pop-8-data-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Use Phone Clone to Migrate Your Tecno Pop 8 Data? | Dr.fone</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/iphone-document-scanning-and-conversion-convert-pdf-jpg-files-into-editable-text-with-finereader-app/"><u>IPhone Document Scanning & Conversion: Convert PDF, JPG Files Into Editable Text with FineReader App</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/leverage-advanced-web-scraping-with-cookiebot-integration-solutions/"><u>Leverage Advanced Web Scraping with Cookiebot Integration Solutions</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/leveraging-abbyys-expertise-ashling-partners-accelerates-automation-with-elite-program-membership-and-smart-content-insights/"><u>Leveraging ABBYY's Expertise: Ashling Partners Accelerates Automation with Elite Program Membership and Smart Content Insights</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/majority-of-british-workforce-eager-to-outsource-tasks-to-automation-insights-from-abbyy/"><u>Majority of British Workforce Eager to Outsource Tasks to Automation: Insights From ABBYY</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/reclaim-lively-sounds-in-muted-video-tweets-for-2024/"><u>Reclaim Lively Sounds in Muted Video Tweets for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/solution-guide-addressing-the-no-ring-problem-in-iphone-devices-effectively/"><u>Solution Guide: Addressing the 'No Ring' Problem in iPhone Devices Effectively</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/the-art-of-recording-your-steam-gaming-sessions-for-2024/"><u>The Art of Recording Your Steam Gaming Sessions for 2024</u></a></li>
 </ul></div>
 

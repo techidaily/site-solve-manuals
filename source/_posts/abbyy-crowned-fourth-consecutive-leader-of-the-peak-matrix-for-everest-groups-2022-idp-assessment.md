@@ -1,7 +1,7 @@
 ---
 title: ABBYY Crowned Fourth Consecutive Leader of the Peak Matrix® for Everest Group's 2022 IDP Assessment
-date: 2024-10-07T18:02:51.826Z
-updated: 2024-10-08T16:35:58.178Z
+date: 2024-10-12T16:59:26.777Z
+updated: 2024-10-15T00:48:12.608Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/142f97e5dde3eaa8c469e7fcae52ffd9c48a3f3c6447b480a9b0d3148ed090af.jpeg
@@ -37,10 +37,10 @@ _Ashwin Gopakumar, Practice Director, Everest Group._
 Lesen Sie den ausführlichen Report unter <https://www.abbyy.com/resources/report/intelligent-document-processing-everest-group-2022/>.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934254/19272" target="_top" id="1934254">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934254" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934254/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Über ABBYY
@@ -54,16 +54,10 @@ ABBYY ist ein globales Unternehmen mit Sitz in den USA und Niederlassungen in 15
 ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeichen von ABBYY Software Ltd. Alle anderen Warenzeichen sind Eigentum ihrer jeweiligen Inhaber. 
 
 <!-- affiliate ads begin -->
-<span id="1983573">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Pressekontakt:
@@ -71,10 +65,10 @@ ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeich
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959707/19272" target="_top" id="1959707">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959707" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959707/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Bianca Stupp
@@ -100,19 +94,14 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-audio-capture-system-testing-guide/"><u>[New] 2024 Approved Audio Capture System Testing Guide</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-audiovisual-powerhouses-select-best-laptops-for-editing/"><u>[Updated] In 2024, Audiovisual Powerhouses Select Best Laptops for Editing</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/1726224446806-2024/"><u>2024上市最新型高級音樂編曲軟件 - 自由使用或付費選擇</u></a></li>
-<li><a href="https://win11.techidaily.com/beginning-your-art-with-ms-paint-windows-11-way/"><u>Beginning Your Art with MS Paint - Windows 11 Way</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cambiar-video-mov-en-vivo-sin-coste-guia-paso-a-paso-para-convertirlo-a-formato-avi/"><u>Cambiar Video MOV en Vivo Sin Coste: Guía Paso a Paso Para Convertirlo a Formato AVI</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/choosing-between-apple-tv-n-4k-and-roku-ultra-features-compared/"><u>Choosing Between Apple TV N 4K and Roku Ultra: Features Compared</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/comprendre-lenregistrement-ecran-plus-audio-en-quick-time-une-approche-complete-et-simple-a-suivre/"><u>Comprendre L’Enregistrement Écran + Audio en QuiC(k-Time): Une Approche Complète Et Simple À Suivre !</u></a></li>
-<li><a href="https://win-dash.techidaily.com/get-the-latest-windows-7-wi-fi-driver-updates-now/"><u>Get the Latest Windows 7 Wi-Fi Driver Updates Now!</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-bypassing-buffer-blocks-in-photo-booth-videos/"><u>In 2024, Bypassing Buffer Blocks in Photo Booth Videos</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-check-if-your-xiaomi-is-unlocked-by-drfone-android/"><u>In 2024, How To Check if Your Xiaomi Is Unlocked</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-network-locked-sim-card-inserted-on-your-vivo-y55s-5g-2023-phone-unlock-it-now-by-drfone-android/"><u>In 2024, Network Locked SIM Card Inserted On Your Vivo Y55s 5G (2023) Phone? Unlock It Now</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/movavi-werk-aan-wmv-videos-om-in-aac-format-te-worden-geconveert-voor-gratis-gebruik-online/"><u>Movavi Werk Aan WMV-Video's Om in AAC-Format Te Worden Geconveert Voor Gratis Gebruik Online</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/ways-to-find-unlocking-codes-for-oppo-a1x-5g-phones-by-drfone-android/"><u>Ways To Find Unlocking Codes For Oppo A1x 5G Phones</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/webm-a-mp4-ele-alir-online-doldurmak-hassaslarin-uzerinde-ozellikle-hizli-ve-kolay-bir-etkinlige/"><u>WebM a MP4 Ele Alır Online Doldurmak Hassasların Üzerinde Özellikle Hızlı Ve Kolay Bir Etkinliğe</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-ultimate-quadcopter-propeller-pick-achieve-optimal-efficiency-for-2024/"><u>[New] Ultimate Quadcopter Propeller Pick Achieve Optimal Efficiency for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/movavi-flv-to-mp4/"><u>「Movavi ウェブベースのフリーFLV to MP4コンバーター - 簡単に高品質を！」</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/3-easy-methods-to-unlock-icloud-locked-apple-iphone-14-pro-maxipadipod-by-drfone-ios/"><u>3 Easy Methods to Unlock iCloud Locked Apple iPhone 14 Pro Max/iPad/iPod</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-premium-10-drones-capturing-images-and-films/"><u>In 2024, Premium 10 Drones Capturing Images & Films</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-premium-watchlists-highest-youtube-movie-selections/"><u>In 2024, Premium Watchlists Highest YouTube Movie Selections</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/revolutionize-your-scanning-workflow-with-abbyys-ocr-software-development-kit-for-precise-text-extraction-and-analysis/"><u>Revolutionize Your Scanning Workflow with ABBYY's OCR Software Development Kit for Precise Text Extraction and Analysis</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/seamless-conversion-experience-via-ai-driven-analytics-the-power-of-cookiebot/"><u>Seamless Conversion Experience via AI-Driven Analytics - The Power of Cookiebot</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/streamline-your-contract-management-discover-the-power-of-apttuss-intelligent-import-feature-enhanced-with-abbyy-and-machine-learning-innovation/"><u>Streamline Your Contract Management: Discover the Power of Apttus's Intelligent Import Feature Enhanced with ABBYY and Machine Learning Innovation</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/utilizing-cookiebot-technology-for-optimized-user-experience-and-analytics-tracking/"><u>Utilizing Cookiebot Technology for Optimized User Experience & Analytics Tracking</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "AI-Driven Triumph: ABBYY Achieves 60%% Revenue Surge - Accolades From IDC MarketScape"
-date: 2024-10-07T16:14:46.476Z
-updated: 2024-10-08T16:43:49.847Z
+date: 2024-10-07T18:16:25.237Z
+updated: 2024-10-15T00:47:04.521Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d9e5776de3811350c1a1e02825a34775cfed017b7d72a415b115da4cadd107c4.jpg
@@ -38,10 +38,16 @@ Matt Arcaro, IDC’s Research Director, Computer Vision and AI
 ABBYYは、インテリジェントオートメーションエコシステムにおいて影響力のある企業としてアナリストに認められ続けており、Gartner社、Everest Group社、NelsonHall社、GigaOm社の業界アナリスト4社も、ABBYYをインテリジェントドキュメントプロセッシング（IDP）とプロセスマイニングソリューションのリーダーとして位置づけています。ガートナーは、カスタマーサービスおよびサポートテクノロジー、ITマネジメントインテリジェンス、自律型会計、ERP、収益および販売テクノロジーを含む5つの2023年ハイプサイクルレポートでABBYYを取り上げました。
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983553">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### ABBYYについて 
@@ -51,10 +57,10 @@ ABBYYは、目的を絞り込んだAIでお客様の情報を活用します。�
 ABBYY は登録商標または商標であり、ABBYY グループ会社のロゴ、会社名 (またはその一部)、製品名の一部である場合もあり、それぞれの所有者の同意なしに使用することはできません。
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049379/7443" target="_top" id="2049379">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### ABBYY編集部連絡先
@@ -62,10 +68,10 @@ ABBYY は登録商標または商標であり、ABBYY グループ会社のロ�
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Gina Ray
@@ -91,18 +97,14 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/xpertly-edited-content-choosing-the-best-editor-for-2024/"><u>[New] Expertly Edited Content Choosing The Best Editor for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-plug-in-proweries-expert-analysis/"><u>[New] In 2024, PLUG-IN PROWERIES Expert Analysis</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-discover-the-magic-behind-effective-youtube-short-videos-for-2024/"><u>[Updated] Discover the Magic Behind Effective YouTube Short Videos for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-unlocking-the-secrets-the-ultimate-guide-to-instagram-stories-mastery-for-2024/"><u>[Updated] Unlocking the Secrets The Ultimate Guide to Instagram Stories Mastery for 2024</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-enhanced-boost-your-sites-performance-and-personalization/"><u>Cookiebot-Enhanced: Boost Your Site's Performance and Personalization</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-the-advanced-tool-behind-exceptional-personalization-and-targeting/"><u>Cookiebot: The Advanced Tool Behind Exceptional Personalization and Targeting</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/customized-audience-tracking-with-cookiebot-enhance-your-websites-engagement/"><u>Customized Audience Tracking with Cookiebot: Enhance Your Website's Engagement</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/discover-the-ultimate-document-conversion-tool-with-abbyy-finereader-14-your-go-to-pdf-and-scan-handler/"><u>Discover the Ultimate Document Conversion Tool with ABBYY FineReader 14 – Your Go-To PDF & Scan Handler!</u></a></li>
-<li><a href="https://extra-information.techidaily.com/discovering-movavis-advanced-video-editor-plus-plus/"><u>Discovering Movavi's Advanced Video Editor Plus +</u></a></li>
-<li><a href="https://howto.techidaily.com/fixing-persistent-pandora-crashes-on-vivo-v29-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixing Persistent Pandora Crashes on Vivo V29 | Dr.fone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-oneplus-ace-2-profrp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your OnePlus Ace 2 ProFRP Lock</u></a></li>
-<li><a href="https://win-answers.techidaily.com/troubleshooting-your-granblue-fantasy-reconnect-on-desktop-systems/"><u>Troubleshooting Your Granblue Fantasy Reconnect on Desktop Systems</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/vdx-pro-video-capture-an-in-depth-analysis/"><u>VDX Pro Video Capture An In-Depth Analysis</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/10-guide-complet-des-11-meilleurs-choix/"><u>10 - Guide Complet Des 11 Meilleurs Choix</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/comment-creer-des-screenshots-passants-sur-toutes-les-plates-formes-avec-movavi/"><u>Comment Créer Des Screenshots Passants Sur Toutes Les Plates-Formes Avec Movavi</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/eyecatcher-ultimate-screen-capture-guide-for-2024/"><u>EyeCatcher Ultimate Screen Capture Guide for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/guide-to-fixing-when-iphone-displays-no-more-lines-left-message/"><u>Guide to Fixing: When iPhone Displays 'No More Lines Left' Message</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-remove-the-two-factor-authentication-from-iphone-se-2020-by-drfone-ios/"><u>In 2024, How To Remove the Two Factor Authentication From iPhone SE (2020)</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/innovative-strategies-for-vimeo-video-recording-for-2024/"><u>Innovative Strategies for Vimeo Video Recording for 2024</u></a></li>
+<li><a href="https://win-forum.techidaily.com/overcoming-hardware-limitations-how-to-activate-windows-11-on-ineligible-processors-with-revouninstaller-techniques/"><u>Overcoming Hardware Limitations: How to Activate Windows 11 on Ineligible Processors with RevoUninstaller Techniques</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/rmvb-to-mpeg-4-free-online-converter-with-movavi-quick-and-easy-video-format-change/"><u>RMVB to MPEG-4 FREE ONLINE Converter with Movavi - Quick & Easy Video Format Change</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/top-10-risorse-online-per-scaricare-cartoons-free-nel-2024-guida-seo/"><u>Top 10 Risorse Online Per Scaricare Cartoons Free Nel 2024 - Guida SEO</u></a></li>
 </ul></div>
 

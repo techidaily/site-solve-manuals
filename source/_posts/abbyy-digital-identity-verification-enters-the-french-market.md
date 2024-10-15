@@ -1,7 +1,7 @@
 ---
 title: ABBYY Digital Identity Verification Enters the French Market
-date: 2024-10-03T16:05:36.968Z
-updated: 2024-10-08T17:18:06.338Z
+date: 2024-10-07T22:16:50.041Z
+updated: 2024-10-15T02:05:31.280Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c010ac8c095463e82a02d0121c6ae49a6934a26c38ee953e2dee2be944508d80.jpg
@@ -45,10 +45,16 @@ Les entreprises souhaitant optimiser leurs expériences d’onboarding et rédui
 Plus de détails sont disponibles sur le portail [ABBYY Proof of Identity](https://tools.techidaily.com/abbyy/products/).
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1834906">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### À propos d’ABBYY
@@ -58,10 +64,10 @@ ABBYY est un acteur référent de l’Intelligent Process Automation. L’entrep
 ABBYY est une multinationale basée aux États-Unis, et dont les bureaux sont répartis au sein de 15 pays. Pour plus d’informations, veuillez consulter le site[https://www.abbyy.com/fr/](https://tools.techidaily.com/abbyy/products/).
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Contact presse
@@ -69,10 +75,10 @@ ABBYY est une multinationale basée aux États-Unis, et dont les bureaux sont r�
 ![02E Eva Mariahufschmitt](https://static4.abbyy.com/abbyycommedia/23663/02e-eva-mariahufschmitt.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100533/7443" target="_top" id="2100533">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087409/7443" target="_top" id="2087409">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087409" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100533/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087409/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Eva-Maria Hufschmitt
@@ -98,22 +104,22 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-dreamy-minecraft-domiciles-decoded/"><u>[New] In 2024, Dreamy Minecraft Domiciles Decoded</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-unleashing-funimate-on-android-step-by-step-apk-tutorial/"><u>[New] Unleashing Funimate on Android - Step-by-Step APK Tutorial</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-enhancing-user-experience-with-responsive-html-designs/"><u>[Updated] 2024 Approved Enhancing User Experience with Responsive HTML Designs</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cambiar-videoes-mjpeg-a-otros-formatos-gratis-con-conversion-online-de-movavi/"><u>Cambiar Videoes .mjpeg a Otros Formatos Gratis Con Conversión Online De Movavi</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/constructing-fitness-goals-leveraging-ai-insight/"><u>Constructing Fitness Goals: Leveraging AI Insight</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/conversion-bmp-a-tiff-gratuite-sur-ligne-utilisez-movavi/"><u>Conversion BMP À TIFF Gratuite Sur Ligne - Utilisez Movavi</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/crear-gifs-sin-costo-desde-archivos-ogv-online-con-movavi/"><u>Crear GIFs Sin Costo Desde Archivos OGV Online Con Movavi</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/critical-analysis-leading-screencast-applications-of-today/"><u>Critical Analysis Leading Screencast Applications of Today</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/elite-discordian-companions-automation-for-2024/"><u>Elite Discordian Companions Automation for 2024</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/free-conversion-change-your-files-from-aiff-to-wma-using-an-online-tool/"><u>Free Conversion: Change Your Files From AIFF to WMA Using an Online Tool</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/grabacion-de-audio-gratuita-para-windows-y-macos/"><u>Grabación De Audio Gratuita Para Windows Y macOS</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/hoe-je-beeld-van-rechts-het-onderscheppen-kun-je-met-movavis-foto-draaidorser/"><u>Hoe Je Beeld Van Rechts Het Onderscheppen Kun Je Met Movavi's Foto Draaidorser</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-excellence-exchange-global-creators/"><u>In 2024, Excellence Exchange Global Creators</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/os-9-melhores-concorrentes-gratuitos-online-ideais-para-fazer-videos-perfeitos-no-youtube/"><u>Os 9 Melhores Concorrentes Gratuitos Online Ideais Para Fazer Vídeos Perfeitos No YouTube</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/semaine-francaise-une-symphonie-en-langue/"><u>Semaine Française : Une Symphonie en Langue</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-9-xiaomi-14-ultra-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>Top 9 Xiaomi 14 Ultra Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/transformez-gratuitement-un-fichier-pbm-en-format-png-avec-movavi-convertissez-facilement-et-sans-frais/"><u>Transformez Gratuitement Un Fichier PBM en Format PNG Avec Movavi - Convertissez Facilement Et Sans Frais !</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-engineering-engaging-media-excerpts-for-2024/"><u>[New] Engineering Engaging Media Excerpts for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-the-speakers-guide-to-captivating-visual-storytelling-for-2024/"><u>[New] The Speaker's Guide to Captivating Visual Storytelling for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-unlocking-youtube-success-top-10-keyword-research-utilities-listed/"><u>[Updated] Unlocking YouTube Success Top 10 Keyword Research Utilities Listed</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1724313312556-abby/"><u>「ABBYフレックスキャプチャー®による生命保険事務手続きの効率的なオペレーション自動化方法」</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1-outsourcing-expertise-subcontracting-for-enhanced-abbyy-professionals/"><u>1. Outsourcing Expertise: Subcontracting for Enhanced ABBYY Professionals</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-dynamic-distortions-for-compelling-image-narratives/"><u>2024 Approved Dynamic Distortions for Compelling Image Narratives</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/abbyy-announces-worldwide-effort-to-advance-reliable-and-ethical-ai-technologies/"><u>ABBYY Announces Worldwide Effort to Advance Reliable and Ethical AI Technologies</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/abbyy-introduces-advanced-artificial-intelligence-powered-cloud-solution-for-enhanced-document-insight-and-rapid-data-analysis/"><u>ABBYY Introduces Advanced Artificial Intelligence-Powered Cloud Solution for Enhanced Document Insight and Rapid Data Analysis</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/abbyy-steigert-effizienz-von-munchens-bauakten-durch-digitalisierung/"><u>ABBYY Steigert Effizienz Von Münchens Bauakten Durch Digitalisierung</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/advanced-analytics-and-personalization-enabled-by-cookiebot-inspired-technology/"><u>Advanced Analytics and Personalization Enabled by Cookiebot-Inspired Technology</u></a></li>
+<li><a href="https://discover-alternatives.techidaily.com/experience-effortless-baking-with-the-power-of-cookiebot/"><u>Experience Effortless Baking with the Power of Cookiebot</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-vivo-v30-pro-phone-without-any-data-loss-by-drfone-android/"><u>How to Unlock Vivo V30 Pro Phone without Any Data Loss</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-5-good-book-trailer-examples/"><u>In 2024, 5 Good Book Trailer Examples</u></a></li>
+<li><a href="https://blog-min.techidaily.com/step-by-step-guide-converting-divx-files-to-mkv-format-online-and-offline-methods/"><u>Step-by-Step Guide: Converting DivX Files to MKV Format - Online & Offline Methods</u></a></li>
+<li><a href="https://fox-that.techidaily.com/top-10-solutions-for-iphone-calling-issues/"><u>Top 10 Solutions for iPhone Calling Issues</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/virtual-town-hall-webinar-on-enhancing-ap-support-services/"><u>Virtual Town Hall Webinar on Enhancing AP Support Services</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/abbyy-ai-ocr-4/"><u>パーソルグループの名刺管理システムにABBYY AI OCRを実装: モバイル且つ4枚まとめて高精度読み取り</u></a></li>
 </ul></div>
 

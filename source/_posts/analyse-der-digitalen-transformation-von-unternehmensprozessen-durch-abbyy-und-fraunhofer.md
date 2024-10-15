@@ -1,7 +1,7 @@
 ---
 title: Analyse Der Digitalen Transformation Von Unternehmensprozessen Durch ABBYY Und Fraunhofer
-date: 2024-10-02T17:35:19.588Z
-updated: 2024-10-08T18:12:30.238Z
+date: 2024-10-09T22:22:41.885Z
+updated: 2024-10-14T23:13:33.783Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3940086541c823408b7e3893cd4adcfe04714cf8a1d0ceb2c3d06364d867bc68.png
@@ -46,10 +46,10 @@ Prof. Maximilian Röglinger, Inhaber des Lehrstuhls für Wirtschaftsinformatik u
 Die gesamten Studienergebnisse sowie weiterführende Informationen erhalten Sie unter: <https://digital.abbyy.com/fraunhofer-studie.html>
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
+  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Über Fraunhofer FIT
@@ -57,10 +57,16 @@ Die gesamten Studienergebnisse sowie weiterführende Informationen erhalten Sie 
 Als Partner für Digitalisierung, Industrie 4.0 und das Internet der Dinge entwickelt das Fraunhofer-Institut für Angewandte Informationstechnik FIT seit knapp 40 Jahren IT-Lösungen, die auf Menschen zugeschnitten sind und sich nahtlos in Unternehmensprozesse einfügen. Als Innovationstreiber bietet es nicht nur Orientierung, sondern gestaltet auch den digitalen Wandel in Wirtschaft, Umwelt und Gesellschaft. Die Projektgruppe Wirtschaftsinformatik des Fraunhofer FIT hat sich als international anerkanntes Forschungszentrum an der Schnittstelle von Finanzmanagement, Informationsmanagement und Wirtschaftsinformatik etabliert. Derzeit arbeiten wir insbesondere in den Geschäftsbereichen Digital Disruption, Digital Business und Digital Transformation. Die Grundsätze unserer Forschung sind Innovation, Interdisziplinarität und Ganzheitlichkeit. Darauf basierend wurde gemeinsam mit der Abteilung Data Science und Künstliche Intelligenz des Fraunhofer FIT das [Center for Process Intelligence](https://cpi.fit.fraunhofer.de/) (CPI) gegründet, welches ganzheitliche Beratungsleistungen im Bereich der datengetriebenen Prozessanalyse, Prozessmodellierung und Prozessanalyse für die Industrie anbietet.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="701707">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Über ABBYY
@@ -70,10 +76,10 @@ ABBYY ermöglicht es, mit seiner Digital Intelligence Plattform die gesamten Ges
 ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeichen von ABBYY Software Ltd. Alle anderen Warenzeichen sind Eigentum ihrer jeweiligen Inhaber.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Pressekontakt:
@@ -81,10 +87,10 @@ ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeich
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934254/19272" target="_top" id="1934254">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934254" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://dhgate.sjv.io/c/5597632/1186864/12108" target="_top" id="1186864">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186864" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934254/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186864/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Bianca Stupp
@@ -110,21 +116,24 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-how-much-could-you-make-on-youtube-snippets/"><u>[New] In 2024, How Much Could You Make on YouTube Snippets?</u></a></li>
-<li><a href="https://games-able.techidaily.com/after-ps5-availability-pricing-expectations-uncertain/"><u>After PS5 Availability, Pricing Expectations Uncertain</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/s-of-online-videos-the-easiest-10-ideas-for-beginners-on-youtube-for-2024/"><u>Basics of Online Videos The Easiest 10 Ideas for Beginners on YouTube for 2024</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-technology-fuels-advanced-web-personalization/"><u>Cookiebot Technology Fuels Advanced Web Personalization</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-enhanced-enhance-your-websites-user-experience-with-personalized-content/"><u>Cookiebot-Enhanced: Enhance Your Website's User Experience with Personalized Content</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-enhanced-optimized-site-performance/"><u>Cookiebot-Enhanced: Optimized Site Performance</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-revolutionizing-personalization-and-analytics-in-digital-marketing/"><u>Cookiebot: Revolutionizing Personalization and Analytics in Digital Marketing</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-your-reliable-partner-for-personalized-marketing-automation/"><u>Cookiebot: Your Reliable Partner for Personalized Marketing Automation</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/customized-ad-targeting-with-cookiebot-the-powerhouse-of-personalization/"><u>Customized Ad Targeting with Cookiebot: The Powerhouse of Personalization</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/effiziente-prufung-und-analyse-von-fehlerarmen-einreichen-mit-abbyy-software-tools/"><u>Effiziente Prüfung Und Analyse Von Fehlerarmen Einreichen Mit ABBYY Software Tools</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/1725290161451-emailing-large-videos-over-25mb-with-gmail-a-comprehensive-guide/"><u>Emailing Large Videos Over 25MB with Gmail - A Comprehensive Guide</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/finding-legal-ways-to-watch-netflix-without-paying-a-comprehensive-guide/"><u>Finding Legal Ways to Watch Netflix Without Paying: A Comprehensive Guide</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-sign-xlsm-files-online-by-ldigisigner-sign-a-excel-sign-a-excel/"><u>How to sign .xlsm files online</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, A Detailed Guide on Faking Your Location in Mozilla Firefox On Realme 11X 5G | Dr.fone</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/in-2024-cutting-edge-webcam-utilization-at-home/"><u>In 2024, Cutting-Edge Webcam Utilization at Home</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-visual-magic-how-to-create-stunning-video-effects-like-a-pro/"><u>Updated Visual Magic How to Create Stunning Video Effects Like a Pro</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-capture-studio-high-fidelity-screen-record-for-2024/"><u>[New] Capture Studio High Fidelity Screen Record for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-explore-the-best-spots-for-acquiring-got-tones/"><u>[New] Explore the Best Spots for Acquiring GoT Tones</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-aggregate-attention-masterful-telegram-advertising-approaches/"><u>[Updated] 2024 Approved Aggregate Attention Masterful Telegram Advertising Approaches</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-professional-webcam-videotaping-tips-and-tricks/"><u>[Updated] Professional WebCam Videotaping Tips & Tricks</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-technology-enhancing-your-websites-performance/"><u>Cookiebot-Driven Technology: Enhancing Your Website's Performance</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-solutions-enhance-your-websites-performance/"><u>Cookiebot-Enabled Solutions: Enhance Your Website's Performance</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-enhance-your-websites-user-experience-with-advanced-tracking/"><u>Cookiebot-Enabled: Enhance Your Website's User Experience with Advanced Tracking</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-enhancing-your-sites-user-experience-with-personalized-tracking/"><u>Cookiebot-Enabled: Enhancing Your Site's User Experience with Personalized Tracking</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-enhanced-sites-experience-advanced-personalization-and-analytics/"><u>Cookiebot-Enhanced Sites: Experience Advanced Personalization and Analytics</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-enhanced-tailored-experiences-with-smart-tracking-technology/"><u>Cookiebot-Enhanced: Tailored Experiences with Smart Tracking Technology</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/deloitte-et-abbyy-unissent-forces-pour-transformer-les-processus-operationnels-clientiels-par-lautomatisation/"><u>Deloitte Et ABBYY Unissent Forces Pour Transformer Les Processus Opérationnels Clientiels Par L'Automatisation</u></a></li>
+<li><a href="https://techtrends.techidaily.com/demystifying-electric-motorcycle-powertrains-and-systems/"><u>Demystifying Electric Motorcycle Powertrains and Systems</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/enhance-your-digital-experience-with-memoji-animation-in-facetime-advanced-research-scanners-and-effective-dog-training-tips-discover-whats-new-on-abbyy-blo12/"><u>Enhance Your Digital Experience with Memoji Animation in FaceTime, Advanced Research Scanners, and Effective Dog Training Tips – Discover What's New on ABBYY Blog</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/enhancing-user-experience-through-advanced-cookiebot-powered-insights/"><u>Enhancing User Experience Through Advanced Cookiebot-Powered Insights</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-i-transferred-messages-from-tecno-camon-20-premier-5g-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How I Transferred Messages from Tecno Camon 20 Premier 5G to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-spy-on-text-messages-from-computer-and-oppo-reno-9a-drfone-by-drfone-virtual-android/"><u>In 2024, How to Spy on Text Messages from Computer & Oppo Reno 9A | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/secure-direct-purchase-of-winx-hd-video-converter-for-macos-best-features-and-pricing/"><u>Secure Direct Purchase of WinX HD Video Converter for macOS: Best Features and Pricing</u></a></li>
+<li><a href="https://blog-min.techidaily.com/top-5-metodi-di-registrazione-audio-su-pc-con-windows-11/"><u>Top 5 Metodi Di Registrazione Audio Su PC Con Windows 11</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-dolby-atmos-for-optimal-sound-experience-on-windows-systems/"><u>Troubleshooting Dolby Atmos for Optimal Sound Experience on Windows Systems</u></a></li>
 </ul></div>
 
