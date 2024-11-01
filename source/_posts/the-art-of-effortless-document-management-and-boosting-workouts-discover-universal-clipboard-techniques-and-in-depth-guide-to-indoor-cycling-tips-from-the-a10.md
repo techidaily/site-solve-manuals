@@ -1,7 +1,7 @@
 ---
 title: "The Art of Effortless Document Management and Boosting Workouts: Discover Universal Clipboard Techniques & In-Depth Guide to Indoor Cycling | Tips From the ABBYY Blog"
-date: 2024-10-08T01:02:05.152Z
-updated: 2024-10-14T22:59:18.318Z
+date: 2024-10-26T23:18:52.268Z
+updated: 2024-10-31T23:41:17.050Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/043a6e9400628e90ba868e49367a439edaed6ed2655e7384611850ca4beac263.jpg
@@ -19,11 +19,31 @@ September 10, 2018
 
 Today we want to be able to switch between our devices while working. If you are one of those who regularly e-mail texts to yourself, read on. We’re going to reveal a much faster method of sharing files between gadgets.
 
+<!-- affiliate ads begin -->
+<span id="1993647">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **iOS Tip: Universal Clipboard**
 
 The Apple ecosystem is so integrated that sometimes you feel as if you’re using the same device in slightly different guises.
 
 ![icloud login](https://static1.abbyy.com/abbyycommedia/26467/icloud-login.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 To make this magic happen, you need to perform a few small steps:
 
@@ -40,13 +60,6 @@ Now you can use Apple’s Universal Clipboard to copy and paste text, images, an
 ![copy screen](https://static1.abbyy.com/abbyycommedia/26468/copy-screen.png)
 
 ![paste mac](https://static1.abbyy.com/abbyycommedia/26469/paste-mac.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884002/19272" target="_top" id="1884002">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884002" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884002/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Android Tip: Cloud-Enabled Clipboard**
 
@@ -69,19 +82,6 @@ Sometimes you may be asked to provide a scan of our ID papers, or you may need t
 
 ![Finescanner abbyy](https://static1.abbyy.com/abbyycommedia/26471/finescanner.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1975658">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Don’t forget to supply your scans with tags to make them easier to find. Simply tap the ellipsis icon next to the document and select **Properties**.
 
 [FineScanner](http://qrs.ly/pl4x25p) allows you to e-mail scans, [upload them to a cloud storage service](https://tools.techidaily.com/abbyy/products/), or print them off. Any of the above operations are accessible by clicking the “share” icon that appears next to each document.
@@ -89,10 +89,10 @@ Don’t forget to supply your scans with tags to make them easier to find. Simpl
 If you already have good-quality document scans, you can import them into [FineScanner](http://qrs.ly/pl4x25p). iPad users can drag-and-drop scans onto their device. Read this [ABBYY Tip](https://tools.techidaily.com/abbyy/products/) to find out more about importing content into [FineScanner](http://qrs.ly/pl4x25p). There you will also learn how to remove excess background or convert your scans to PDF.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886019/19272" target="_top" id="1886019">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886019/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **App of the Week: Insight Timer**
@@ -107,31 +107,24 @@ The **Timer** tab is where you come into harmony with yourself and the surroundi
 
 ![insight4](https://static1.abbyy.com/abbyycommedia/26473/insight4.png)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148646/16836" target="_top" id="2148646">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148646" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148646/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Besides meditation, you can choose yoga, walking, breathing, and even prayer. This setting is only used to log your statistics so that you know how much progress you’ve made and what type of relaxation you did.
 
 ![insight3](https://static1.abbyy.com/abbyycommedia/26474/insight3.png)
 
 The app is available for [iOS](https://itunes.apple.com/us/app/insight-timer-meditation-app/id337472899?mt=8) and [Android](https://play.google.com/store/apps/details?id=com.spotlightsix.zentimerlite2&hl=ru).
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## First-Hand Experience: Advice From a Colleague
 
 _Shared by Olga Titova, Product Owner, Mobile SDK_
 
 ![OlgaTitova](https://static1.abbyy.com/abbyycommedia/26475/olgatitova.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Only a year ago I couldn’t understand the purpose of a cycle studio. Why go somewhere after work to push pedals on a stationary bike in the company of three dozen office workers like myself? Last winter, however, a friend managed to talk me into trying indoor cycling and now I’m a regular spinner.
 
@@ -153,6 +146,13 @@ P.S. You can find the previous issue of our newsletter [here](https://tools.tech
 [Russian](https://tools.techidaily.com/abbyy/products/)
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
+  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -218,21 +218,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-top-portable-audio-choices-decoded/"><u>[New] In 2024, Top Portable Audio Choices Decoded</u></a></li>
-<li><a href="https://fox-info.techidaily.com/foremost-companies-pioneering-vr-technology/"><u>Foremost Companies Pioneering VR Technology</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-bypass-android-lock-screen-using-emergency-call-on-honor-magic-6-lite-by-drfone-android/"><u>In 2024, How to Bypass Android Lock Screen Using Emergency Call On Honor Magic 6 Lite?</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-tailored-guide-to-following-and-watching-facebook-broadcasts/"><u>In 2024, Tailored Guide to Following and Watching Facebook Broadcasts</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/master-the-reset-a-users-manual-for-a-fresh-start-with-your-samsung-soundbar/"><u>Master the Reset: A User's Manual for a Fresh Start with Your Samsung Soundbar</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/mitigating-workplace-stress-through-automated-solutions-research-overview/"><u>Mitigating Workplace Stress Through Automated Solutions - Research Overview</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-video-to-audio-conversion-made-easy-best-mobile-apps/"><u>New In 2024, Video to Audio Conversion Made Easy Best Mobile Apps</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/next-gen-thrills-the-elite-selection-of-2024s-game-systems/"><u>Next-Gen Thrills: The Elite Selection of 2024'S Game Systems</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/onboarding-ist-entscheidend-erkennen-sie-die-risiken-bei-denen-fast-jeder-unternehmen-mit-dem-verlust-von-interessenten-rechnen-sollte/"><u>Onboarding Ist Entscheidend: Erkennen Sie Die Risiken, Bei Denen Fast Jeder Unternehmen Mit Dem Verlust Von Interessenten Rechnen Sollte.</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/optimize-with-cookiebot-advanced-insights-for-successful-online-presence/"><u>Optimize with Cookiebot - Advanced Insights for Successful Online Presence</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/optimize-your-digital-footprint-using-smart-tracking-technology-powered-by-cookiebot/"><u>Optimize Your Digital Footprint Using Smart Tracking Technology - Powered by Cookiebot</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/optimized-with-the-help-of-cookiebot-boost-your-websites-performance/"><u>Optimized with the Help of Cookiebot: Boost Your Website's Performance</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/optimizing-with-cookiebot-smart-website-analytics-and-personalization-tools/"><u>Optimizing with Cookiebot: Smart Website Analytics and Personalization Tools</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/optimizing-your-legal-paperwork-5-key-tips-using-abbyy-tech/"><u>Optimizing Your Legal Paperwork: 5 Key Tips Using ABBYY Tech</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/stealth-mode-a-guide-to-living-large-unlabeled/"><u>Stealth Mode A Guide to Living Large, Unlabeled</u></a></li>
-<li><a href="https://program-issues.techidaily.com/upgrade-cpu-power-why-you-need-enough-processing-strength-for-vanguard-utility/"><u>Upgrade CPU Power: Why You Need Enough Processing Strength for Vanguard Utility</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2023s-ultimate-selection-of-ios-devices-for-classic-psp-games/"><u>[New] 2023'S Ultimate Selection of iOS Devices for Classic PSP Games</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-step-into-the-realm-of-3d-graffiti-a-guide-to-10-exceptional-websites/"><u>[New] Step Into the Realm of 3D Graffiti A Guide to 10 Exceptional Websites</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-unleashing-content-effortless-download-of-youtube-video-for-ios/"><u>[Updated] Unleashing Content Effortless Download of Youtube Video for iOS</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/2024-approved-top-10-fb-movies-in-one-place/"><u>2024 Approved Top 10 Fb Movies in One Place</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/pc4/"><u>不意を突くデータ失われに対して、ノートPCで成功する4方法</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1728472370408-windows-11/"><u>如何修正 Windows 11 磁碟容量超出問題的解決辦法</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1728474053654-windows-11/"><u>用 Windows 11 簡單方法自行打造外部設備鏈結映像</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/y-behind-the-screen-color-correction-insights/"><u>Beauty Behind the Screen Color Correction Insights</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/canon-mp560-printer-seamless-driver-downloading-and-updating-process-explained/"><u>Canon MP560 Printer: Seamless Driver Downloading & Updating Process Explained</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/comment-resoudre-le-probleme-de-formatage-dun-disque-dur-externe-qui-refuse-de-se-formater/"><u>Comment Résoudre Le Problème De Formatage D'un Disque Dur Externe Qui Refuse De Se Formater</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/comparing-full-day-incremental-and-differential-backups-which-one-works-best/"><u>Comparing Full-Day Incremental and Differential Backups: Which One Works Best?</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/create-and-run-your-own-free-local-gpt-clone-app-for-engaging-dialogues/"><u>Create and Run Your Own Free, Local GPT Clone App for Engaging Dialogues</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-budget-friendly-secret-to-superior-sound-amazon-basics/"><u>Discover the Budget-Friendly Secret to Superior Sound: Amazon Basics</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/free-file-and-folder-rescue-restore-deletions-from-cd-drive-without-backups-using-ifind-data-recovery/"><u>Free File & Folder Rescue: Restore Deletions From C/D Drive Without Backups Using iFinD Data Recovery</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/guide-to-vmware-vspheres-data-rescue-strategies-esxi-assets-and-substitutes-explored/"><u>Guide to VMware vSphere's Data Rescue Strategies - ESXi Assets & Substitutes Explored</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-free-video-editing-for-beginners-a-step-by-step-guide-to-getting-started/"><u>In 2024, Free Video Editing for Beginners A Step-by-Step Guide to Getting Started</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/maximize-efficiency-with-aomeis-free-task-scheduler-optimization-tool-for-windows-users/"><u>Maximize Efficiency with AOMEI's Free Task Scheduler Optimization Tool for Windows Users</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/the-art-of-influencing-amplifying-instagram-post-reach/"><u>The Art of Influencing Amplifying Instagram Post Reach</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/unexpectedly-missing-files-on-your-usb-discover-5-simple-solutions/"><u>Unexpectedly Missing Files on Your USB: Discover 5 Simple Solutions</u></a></li>
 </ul></div>
 

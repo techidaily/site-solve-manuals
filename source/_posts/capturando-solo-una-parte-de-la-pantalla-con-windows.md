@@ -1,7 +1,7 @@
 ---
 title: Capturando Solo Una Parte De La Pantalla Con Windows
-date: 2024-10-12T21:11:33.381Z
-updated: 2024-10-14T18:40:28.567Z
+date: 2024-10-27T05:44:52.087Z
+updated: 2024-10-31T19:12:37.837Z
 categories:
   - movavi
 thumbnail: https://thmb.techidaily.com/b89ffcd4bf4187d5ce782fa255f3d31e70eba20fbf846963d325dce5a6f79e5f.jpg
@@ -157,16 +157,16 @@ Movavi 的首要目標是就是為您提供經過驗證的資訊。為了確保�
 
 ![](https://cdn.staticont.net/default/0023/55/0a43aca722d72a76f5dadbc9d81350a623b7681e.webp)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Windows Photo Viewer 圖片瀏覽器的最佳替代方案
 
 接著我們就來介紹一下 Windows 10 的 7 大桌面式相片檢視器。各個軟體都有不同程度的編輯功能，包括可以新增外掛程式，使軟體更適合專業任務，如批次編輯、製作電影或動畫等等。無論您是要快速處理大型圖像、簡單的使用者介面還是打開各類檔案格式的能力，都請您繼續閱讀，以便找到最適合自己的相片檢查器。
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 
 
@@ -182,13 +182,6 @@ Movavi 的首要目標是就是為您提供經過驗證的資訊。為了確保�
 
 ![](https://cdn.staticont.net/page_type/0023/47/9528cbd19dc376aa4f2986e4928cb80d2a982827.webp)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027162/19272" target="_top" id="2027162">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027162" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027162/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Photo Editor 是Movavi最新一代圖片瀏覽器，不僅能秀圖，也支援相片管理，甚至還能為你做好照片編輯! 在瀏覽與管理方面，它可透過無痛管理的方式，輕鬆地過濾大量相片。最棒的是，它還支援臉部識別功能，能透過AI技術幫每位家人自動建立相簿，便於日後分類與觀賞。在編輯方面，本app保留了實用功能與簡易操作。但版面與工具重新調整排列，進一步提高使用效率。用戶直接拖放照片檔到中央編輯區，即可開始工作，照著直覺進行真的超簡單! 相片編輯亦導入大量AI功能，智慧型四功能包括:HDR照明、增強 、去除雜訊，以及「AI 還原」含照片著色 (皆老照片修復專用)。Photo Editor是一款強大的照片瀏覽器，運作既可靠又穩定。
 
 優點：
@@ -199,18 +192,18 @@ Photo Editor 是Movavi最新一代圖片瀏覽器，不僅能秀圖，也支援�
 
 * 圖片都必須上傳至軟體
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528689/16446" target="_top" id="1528689">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528689" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528689/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 
 
 [**Apowersoft Photo Viewer**](https://tools.techidaily.com/apowersoft/products/)
 
 ![](https://cdn.staticont.net/page_type/0013/45/45fecd0579324a4520e69e9420f2563d91051f49.webp)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 使用者首次啟動 Apowersoft Photo Viewer 並開啟相片後，馬上就會注意到沒有任何控制項或工具。這是因為控制項或工具就巧妙隱藏在某個彈出式選單列之中，只要將滑鼠游標懸停特定位置 (底部和兩側)，選單列就會出現。這使得本相片檢視器成為最簡潔的應用程式之一，而圖像則會填滿整個視窗，成為焦點。本軟體能在圖像上充分新增形狀、線條和文字，但外觀和行為卻和早期的 Microsoft Paint 非常相似。不過，該軟體的優點是可以儲存到雲端，也可以直接將圖片分享到社群媒體上，讓使用者能輕易在網際網路上與朋友和家人分享照片。
 
@@ -242,13 +235,6 @@ FastStone 可能是最牢靠的看圖軟體了。該軟體在瀏覽、簡單的�
 
 * 對普通使用者而言工具太多了
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948891/19272" target="_top" id="1948891">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948891" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948891/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 
 
 [**IrfanView**](https://www.irfanview.com/)
@@ -265,18 +251,18 @@ FastStone 可能是最牢靠的看圖軟體了。該軟體在瀏覽、簡單的�
 
 * 使用者介面過時且不符合大眾口味
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 
 
 [**XnView**](https://www.xnview.com/en/)
 
 ![](https://cdn.staticont.net/page_type/0013/40/9462b44dd7787a9d521c67727a9d947cbc74b9ef.webp)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 與 FastStone 的圖片檢視器類似，XnView 的介面易於瀏覽，可以清晰顯示所有圖像，並為使用者提供所選照片的大型視圖。該軟體支援所有標準的圖像檔案類型，如 JPEG、PNG 和 TIFF，甚至還支援其他一些編解碼器，如相機的 RAW 檔等等。甚至還能當作多媒體瀏覽平台來使用，讓您開啟並檢查影音檔。雖然在新增動畫和轉換檔案方面沒有 Windows Photo Viewer 那麼全面，但仍不失為 XnView Classic 的推薦替代品，或者只需支付少量費用就能獲得強化的 MP 版本。
 
@@ -287,19 +273,6 @@ FastStone 可能是最牢靠的看圖軟體了。該軟體在瀏覽、簡單的�
 缺點：
 
 * 圖片只能在單一頁籤中開啟且無法捲動
-
-<!-- affiliate ads begin -->
-<span id="1424529">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 
 
@@ -322,6 +295,13 @@ FastStone 可能是最牢靠的看圖軟體了。該軟體在瀏覽、簡單的�
 [**Google Photos**](https://www.google.com/intl/zh-TW/photos/about/)
 
 ![](https://cdn.staticont.net/page_type/0013/45/d64fdda203dbd8ccf5369a8901c4a494f69794ae.webp)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Google Photos 與其套件中的其他 Google 應用程式一起運作。這些應用程式都是在線上提供，而不會儲存在本機裝置上。這使得本工具非常適合那些隨時保持網路連線、並用多種裝置 (筆記型電腦、智慧型手機、平板電腦等等)，而且需要同步編輯的數位游牧民。然而，您仍可從五種不同的儲存模式中進行選擇，其中一種便是離線模式。離線儲存使您無論身在何方，都能存取檔案，而不需要網際網路連線。正如您所期望的那樣，Google 的介面流暢而現代，視窗中的工具都很直觀，但確實缺乏像 Windows Photo Viewer 那樣建立電影或新增動畫的能力。
 
@@ -348,20 +328,26 @@ Movavi Photo Editor
 ![Movavi Photo Editor](https://cdn.staticont.net/products/0023/55/9a17d17e3b725cbe831e0805991a555d41a72bca.webp)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983549">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 常見問題集
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 最好的 Windows 相片檢視器是什麼？
 
@@ -373,6 +359,13 @@ Movavi Photo Editor
 * XnView
 * Nomacs
 * Google Photos
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 那一個是用於觀賞照片的最佳軟體?
 
@@ -425,6 +418,13 @@ Movavi Photo Editor
 
 ![有問題嗎?](https://cdn.staticont.net/global/0023/54/e832fd4fe897893df1de795a67cafcd74a13283a.webp)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 有問題嗎?
 
 若找不到問題的答案，請隨時與支援團隊聯繫。
@@ -464,24 +464,20 @@ Movavi Photo Editor
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/updated-converting-tiktok-audio-into-desired-mobile-ringtones/"><u>[Updated] Converting TikTok Audio Into Desired Mobile Ringtones</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/achieve-10-free-tools-for-thumbnail-extraction-for-2024/"><u>Achieve 10 Free Tools for Thumbnail Extraction for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/active-recorder-assessment-industry-standards-met-in-2024/"><u>Active Recorder Assessment Industry Standards Met, In 2024</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-site-enhanced-user-experience-and-advanced-tracking/"><u>Cookiebot-Enabled Site: Enhanced User Experience and Advanced Tracking</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/effective-onboarding-strategies-harmonizing-client-trust-and-anti-fraud-measures/"><u>Effective Onboarding Strategies: Harmonizing Client Trust and Anti-Fraud Measures</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/empowering-online-visibility-with-advanced-cookiebot-features/"><u>Empowering Online Visibility with Advanced Cookiebot Features</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/engaging-visuals-for-maximum-impact-with-these-ideas/"><u>Engaging Visuals for Maximum Impact with These Ideas</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/enhance-user-experience-and-track-data-efficiently-opt-for-advanced-insights-through-cookiebot-technology/"><u>Enhance User Experience & Track Data Efficiently: Opt for Advanced Insights Through Cookiebot Technology</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/enhance-your-digital-campaigns-using-advanced-cookiebot-enabled-tools/"><u>Enhance Your Digital Campaigns Using Advanced Cookiebot-Enabled Tools</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/enhance-your-marketing-analytics-using-the-cookiebot-platform/"><u>Enhance Your Marketing Analytics Using the Cookiebot Platform</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/enhance-your-site-traffic-with-cutting-edge-cookiebot-technology/"><u>Enhance Your Site Traffic with Cutting-Edge Cookiebot Technology</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/enhancing-visibility-with-cookiebot-technology-smart-seo-solutions/"><u>Enhancing Visibility with Cookiebot Technology - Smart SEO Solutions</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/exploring-abbyys-cutting-edge-solutions-for-enhanced-digital-intelligence-highlights-of-the-reimagine-conference-as-featured-on-our-official-blog/"><u>Exploring ABBYY's Cutting-Edge Solutions for Enhanced Digital Intelligence – Highlights of the Reimagine Conference as Featured on Our Official Blog</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/developers-top-recording-tools/"><u>Game Developers' Top Recording Tools</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-exclusive-insight-into-low-cost-footage-websites/"><u>In 2024, Exclusive Insight Into Low-Cost Footage Websites</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-vivo-y78plus-t1-edition-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Vivo Y78+ (T1) Edition? | Dr.fone</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/table-streaming-start-top-8-income-strategies/"><u>Profitable Streaming Start Top 8 Income Strategies</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/quintessential-screenplays-among-varied-genres-for-2024/"><u>Quintessential Screenplays Among Varied Genres for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/through-the-lens-sage-advice-for-improving-your-edits-for-2024/"><u>Through the Lens Sage Advice for Improving Your Edits for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-solved-obs-full-screen-anomaly/"><u>[New] In 2024, Solved OBS Full Screen Anomaly</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-live-streaming-mac-all-at-no-charge-for-2024/"><u>[New] Live Streaming Mac, All at No Charge for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-snapchat-integration-for-the-tech-savvy-mac-user/"><u>[New] Snapchat Integration for the Tech-Savvy Mac User</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/44cm5yyf5ous55qe44gq44kr44k544k44oe44o844kx44ki44ks5oplusq5l6b44gz44kl44k544oi44os44o844k444oh44oq44kk44k544gu44ks44kk44oj44cn/"><u>「包括的なカスタマーケアを提供するストレージデバイスのガイド」</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-scouting-talent-top-5-video-artists-who-create-with-rhythm-and-beat/"><u>2024 Approved Scouting Talent Top 5 Video Artists Who Create With Rhythm & Beat</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1728502108147-windows-11/"><u>失去修復環境的 Windows 11: 迅速重置設定的最簡便指南</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1728497526313-aomei/"><u>AOMEI バックアッパーによるログ閲覧の効果的な手法</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/detaillierte-installationsanleitung-fur-windows-server-2e-ein-leitfaden-mit-einzelnen-schritten/"><u>Detaillierte Installationsanleitung Für Windows Server 2E: Ein Leitfaden Mit Einzelnen Schritten</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210420385-9781401968205-dream-guidance/"><u>Dream Guidance | Free Book</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/guida-passo-passo-restaurare-la-cronologia-di-whatsapp-da-icloud-su-risolta/"><u>Guida Passo-Passo: Restaurare La Cronologia Di WhatsApp Da iCloud Su Risolta</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/guida-rapida-alla-sincronizzazione-delle-cartelle-in-windows-11-metodi-semplificati/"><u>Guida Rapida Alla Sincronizzazione Delle Cartelle in Windows 11: Metodi Semplificati</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-create-an-apple-developer-account-from-iphone-6-by-drfone-ios/"><u>How To Create an Apple Developer Account From iPhone 6</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-remove-passcode-from-iphone-7-plus-complete-guide-drfone-by-drfone-ios/"><u>How To Remove Passcode From iPhone 7 Plus? Complete Guide | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/maximize-functionality-with-windows-11-pro-upgrade/"><u>Maximize Functionality with Windows 11 Pro Upgrade</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/mehrdeutung-bei-fotokopierung-auf-iphones-wie-sie-duplikate-verhindern/"><u>Mehrdeutung Bei Fotokopierung Auf iPhones - Wie Sie Duplikate Verhindern</u></a></li>
 </ul></div>
 

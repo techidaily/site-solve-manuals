@@ -1,7 +1,7 @@
 ---
 title: "Streamlining Revenue Cycles and Cutting Down on Denials: Insights From an ABBYY Specialist on Remote Work Efficiency"
-date: 2024-10-11T23:07:31.572Z
-updated: 2024-10-14T18:27:41.972Z
+date: 2024-10-29T04:15:01.114Z
+updated: 2024-11-01T00:37:23.001Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8ff8906f51872923e9c5692da8760464bdd1f9c3eac0a2d615e95926075c7419.jpg
@@ -15,18 +15,18 @@ thumbnail: https://thmb.techidaily.com/8ff8906f51872923e9c5692da8760464bdd1f9c3e
 
 English
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Featuring
 
 ![35 Paulbuonopane 198X198](https://static4.abbyy.com/abbyycommedia/25121/logo-2021-90x27.svg) 
 
 ![35 Paulbuonopane 198X198](https://static3.abbyy.com/abbyycommedia/28877/35-paulbuonopane-198x198.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Paul Buonopane
 
@@ -36,27 +36,27 @@ Performance Improvement Expert, **ABBYY**
 
 ![36 Prashantkaramchandani 198X198](https://static3.abbyy.com/abbyycommedia/28879/36-prashantkaramchandani-198x198.png)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
+  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Prashant Karamchandani
 
 Director, **The Chartis Group**
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Enterprise policies are in place for all schedulers to collect, enter and verify patient and insurance information at point of scheduling, but these processes are not always followed.
 
 With patient and insurance information making up to 55 percent of the data on claims, and hospital programs requiring accurate patient information, these policies are crucial in ensuring providers are managing their data collection process effectively, which will lead to a reduction in denials.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Learn how ABBYY and Chartis are working together using ABBYY Timeline’s unique Process Intelligence capabilities.
 
@@ -68,27 +68,27 @@ Learning points include:
 * Learn real time management of staff and system behaviors to immediately streamline workflows
 * How to develop reporting to track and trend compliance
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886015/19272" target="_top" id="1886015">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886015" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886015/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Watch now
-
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
-  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Thank you, enjoy your webinar!
 
 [![10 How To Reduce Denials](https://static3.abbyy.com/abbyycommedia/29407/10-how-to-reduce-denials.jpg)](https://www.youtube.com/watch?v=3Xp-j0%5FO%5F9Q) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)
 
@@ -155,20 +155,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-first-time-user-steps-for-effortless-vrecorder-setup/"><u>[New] In 2024, First-Time User Steps for Effortless VRecorder Setup</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-step-by-step-method-for-capturing-internet-radio-frequencies/"><u>[New] Step-by-Step Method for Capturing Internet Radio Frequencies</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-investigating-alternatives-to-popular-video-broadcaster/"><u>[Updated] Investigating Alternatives to Popular Video Broadcaster</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-mastery-through-motion-a-garageband-guide-to-podcasting/"><u>[Updated] Mastery Through Motion A GarageBand Guide to Podcasting</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/download-techkey-bluetooth-dongle-driver-compatible-with-windows-11-7-and-8/"><u>Download Techkey Bluetooth Dongle Driver: Compatible with Windows 11, 7 & 8</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/enhanced-traffic-with-automated-tracking-the-benefits-of-using-cookiebot/"><u>Enhanced Traffic with Automated Tracking: The Benefits of Using Cookiebot</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/harness-the-power-of-cookiebot-for-superior-site-analytics-and-personalization/"><u>Harness the Power of Cookiebot for Superior Site Analytics and Personalization</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-use-phone-clone-to-migrate-your-tecno-pop-8-data-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Use Phone Clone to Migrate Your Tecno Pop 8 Data? | Dr.fone</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/iphone-document-scanning-and-conversion-convert-pdf-jpg-files-into-editable-text-with-finereader-app/"><u>IPhone Document Scanning & Conversion: Convert PDF, JPG Files Into Editable Text with FineReader App</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/leverage-advanced-web-scraping-with-cookiebot-integration-solutions/"><u>Leverage Advanced Web Scraping with Cookiebot Integration Solutions</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/leveraging-abbyys-expertise-ashling-partners-accelerates-automation-with-elite-program-membership-and-smart-content-insights/"><u>Leveraging ABBYY's Expertise: Ashling Partners Accelerates Automation with Elite Program Membership and Smart Content Insights</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/majority-of-british-workforce-eager-to-outsource-tasks-to-automation-insights-from-abbyy/"><u>Majority of British Workforce Eager to Outsource Tasks to Automation: Insights From ABBYY</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/reclaim-lively-sounds-in-muted-video-tweets-for-2024/"><u>Reclaim Lively Sounds in Muted Video Tweets for 2024</u></a></li>
-<li><a href="https://fox-that.techidaily.com/solution-guide-addressing-the-no-ring-problem-in-iphone-devices-effectively/"><u>Solution Guide: Addressing the 'No Ring' Problem in iPhone Devices Effectively</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/the-art-of-recording-your-steam-gaming-sessions-for-2024/"><u>The Art of Recording Your Steam Gaming Sessions for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-seamlessly-post-vimeo-to-instagram-for-2024/"><u>[New] Seamlessly Post Vimeo to Instagram for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-a-comprehensible-guide-to-instagrams-latest-updates/"><u>[Updated] A Comprehensible Guide to Instagram's Latest Updates</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-how-to-harvest-huge-volumes-of-content-from-tiktok-effortlessly/"><u>[Updated] How to Harvest Huge Volumes of Content From TikTok Effortlessly</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/apple-musicitunes-playlist4/"><u>Apple Music以外におすすめ！iTunes Playlistを効果的にシェアする手段：4コツのガイド!</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/comment-restaurer-les-fichiers-uniques-en-utilisant-une-capture-decran-de-votre-systeme/"><u>Comment Restaurer Les Fichiers Uniques en Utilisant Une Capture D'écran De Votre Système</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/complimentary-vsphere-data-protection-no-agent-required/"><u>Complimentary vSphere Data Protection: No Agent Required</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/effizientes-kopieren-von-windows-11-auf-einen-ssd-mit-gparted-schritt-fur-schritt-anleitung-und-losungsansatze/"><u>Effizientes Kopieren Von Windows 11 Auf Einen SSD Mit GParted: Schritt-Für-Schritt-Anleitung Und Lösungsansätze</u></a></li>
+<li><a href="https://fox-sure.techidaily.com/essential-mst-framework-varieties-uncovering-different-approaches/"><u>Essential MST Framework Varieties: Uncovering Different Approaches</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/essential-no-cost-disk-partitioning-applications-to-streamline-your-system-in-windows-11-10-8-and-7/"><u>Essential No-Cost Disk Partitioning Applications to Streamline Your System in Windows 11, 10, 8, and 7</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/fast-solutions-recovering-data-on-your-non-responsive-laptop-with-dark-display-issues/"><u>Fast Solutions: Recovering Data on Your Non-Responsive Laptop with Dark Display Issues</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/fixing-unresponsive-chrome-browser-quick-refresh-tips/"><u>Fixing Unresponsive Chrome Browser - Quick Refresh Tips</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-the-latest-killer-network-drivers-at-zero-price-compatible-with-windows-10-8-7/"><u>Get the Latest Killer Network Drivers at Zero Price - Compatible with Windows 10, 8, 7</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/guide-to-installing-the-windows-11-23h2-update-with-complete-steps-and-pre-installation-backup-tips/"><u>Guide to Installing the Windows 11 23H2 Update with Complete Steps & Pre-Installation Backup Tips</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-10-free-location-spoofers-to-fake-gps-location-on-your-vivo-x100-drfone-by-drfone-virtual/"><u>In 2024, 10 Free Location Spoofers to Fake GPS Location on your Vivo X100 | Dr.fone</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/macicloud3/"><u>Mac上でのiCloud同期中断マニュアル※3シナリオを探せ！</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/step-by-step-guide-setting-up-microsoft-office-suite-on-your-computer/"><u>Step-by-Step Guide: Setting Up Microsoft Office Suite on Your Computer</u></a></li>
+<li><a href="https://howto.techidaily.com/super-easy-ways-to-deal-with-oppo-a58-4g-unresponsive-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Super Easy Ways To Deal with Oppo A58 4G Unresponsive Screen | Dr.fone</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/transferencia-de-archivo-sin-complicaciones-desde-computadora-a-tarjeta-usb/"><u>Transferencia De Archivo Sin Complicaciones Desde Computadora a Tarjeta USB</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/youcamessentials-webcamrecorderbasics-for-2024/"><u>YouCamEssentials WebCamRecorderBasics for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Neue Ära Für ABBYY: Industrieveteran Robert Youngjohns Wird Als Geschäftsführer Eingesetzt"
-date: 2024-10-12T21:43:15.252Z
-updated: 2024-10-15T01:21:21.491Z
+date: 2024-10-29T00:30:26.611Z
+updated: 2024-11-01T05:52:18.060Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5f8ab25178398b0800b6345046953e2b2e89a6d9e6a8838419dd9465e3b6b177.jpg
@@ -60,31 +60,25 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-cut-the-hassle-with-macos-easy-to-follow-video-size-adjustment-for-instagram/"><u>[New] In 2024, Cut the Hassle with MacOS Easy-to-Follow Video Size Adjustment for Instagram</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-google-meet-go-live-your-youtube-broadcast-companion/"><u>[New] In 2024, Google Meet Go Live - Your YouTube Broadcast Companion</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-automation-enhancing-user-experience-and-data-collection/"><u>Cookiebot-Driven Automation: Enhancing User Experience & Data Collection</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-automation-optimizing-your-online-experience/"><u>Cookiebot-Driven Automation: Optimizing Your Online Experience</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-customized-user-experience/"><u>Cookiebot-Driven Customized User Experience</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-growth-unleashing-potential-in-website-optimization-and-conversions/"><u>Cookiebot-Driven Growth: Unleashing Potential in Website Optimization and Conversions</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-optimization-skyrocketing-your-seo-success-overnight/"><u>Cookiebot-Driven Optimization: Skyrocketing Your SEO Success Overnight!</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-success-optimizing-your-website-with-smart-analytics-tools/"><u>Cookiebot-Driven Success: Optimizing Your Website with Smart Analytics Tools</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-optimized-website-performance-and-personalization/"><u>Cookiebot-Enabled: Optimized Website Performance and Personalization</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-enhanced-boost-your-sites-performance-and-personalization/"><u>Cookiebot-Enhanced: Boost Your Site's Performance and Personalization</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-the-advanced-tool-behind-exceptional-personalization-and-targeting/"><u>Cookiebot: The Advanced Tool Behind Exceptional Personalization and Targeting</u></a></li>
-<li><a href="https://driver-download.techidaily.com/easy-steps-linksys-wusb6300-driver-setup-and-download-instructions/"><u>Easy Steps: Linksys WUSB6300 Driver Setup and Download Instructions</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/efficient-ways-to-access-windows-troubleshooting-with-hotkeys/"><u>Efficient Ways to Access Windows Troubleshooting with Hotkeys</u></a></li>
-<li><a href="https://win-able.techidaily.com/1723008669317-fix-your-deathloop-starting-problem-with-these-simple-solutions/"><u>Fix Your Deathloop Starting Problem with These Simple Solutions!</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-sharefake-location-on-whatsapp-for-samsung-galaxy-s23-fe-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share/Fake Location on WhatsApp for Samsung Galaxy S23 FE | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-top-10-password-cracking-tools-for-tecno-spark-10-pro-by-drfone-android/"><u>In 2024, Top 10 Password Cracking Tools For Tecno Spark 10 Pro</u></a></li>
-<li><a href="https://win-able.techidaily.com/mp4-to-wav-windows-1011/"><u>MP4 to WAV: 最適なコツがわかるWindows 10/11における高速変換手法</u></a></li>
-<li><a href="https://program-issues.techidaily.com/no-more-freezes-mastering-the-fixes-for-stable-total-war-warhammer-iii-gameplay/"><u>No More Freezes! Mastering the Fixes for Stable Total War: Warhammer III Gameplay</u></a></li>
-<li><a href="https://win-docs.techidaily.com/optimal-ios-email-solutions-your-ultimate-guide-to-mobile-communication-apps/"><u>Optimal iOS Email Solutions: Your Ultimate Guide to Mobile Communication Apps</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-full-guide-to-download-windows-movie-maker-60/"><u>[New] 2024 Approved Full Guide to Download Windows Movie Maker 6.0</u></a></li>
+<li><a href="https://program-issues.techidaily.com/1722988694028-accelerate-chrome-swift-and-simple-fixes-for-speedier-surfing/"><u>Accelerate Chrome: Swift & Simple Fixes for Speedier Surfing!</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/complete-walkthrough-for-saving-your-icloud-pics-onto-a-separate-hdd/"><u>Complete Walkthrough for Saving Your iCloud Pics Onto a Separate HDD.</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/fixing-windows-11-cannot-connect-issue-step-by-step-guide-using-myrecover/"><u>Fixing 'Windows 11 Cannot Connect' Issue: Step-by-Step Guide Using MyRecover</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/game-enthusiasts-guide-to-early-black-friday-deals-october-2024-special-discounts-on-zdnet/"><u>Game Enthusiasts' Guide to Early Black Friday Deals - October 2024 Special Discounts on ZDNET</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/guide-easy-to-follow-cloner-un-ssd-sur-une-ps3-gratuitement-avec-le-logiciel-de-clonage-le-plus-efficace/"><u>Guide Easy-to-Follow : Cloner Un SSD Sur Une PS3 Gratuitement Avec Le Logiciel De Clonage Le Plus Efficace</u></a></li>
+<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-from-nokia-c02-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock from Nokia C02 Phones with/without a PC</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-perfect-pairings-of-sound-and-sight-on-social-platforms/"><u>In 2024, Perfect Pairings of Sound and Sight on Social Platforms</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/sauvegarde-de-windows-cuisine-salon-salle-a-manger-et-autres-pieces-de-la-maison-sont-des-espaces-ou-lorganisation-est-essentielle-pour-faciliter-les-activi244/"><u>Sauvegarde De Windows Cuisine, Salon, Salle À Manger Et Autres Pièces De La Maison Sont Des Espaces Où L'organisation Est Essentielle Pour Faciliter Les Activités Quotidiennes. Dans Un Contexte Domestique Typique, Ces Zones Servent À Différentes Fins :</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/september-marks-release-of-intels-ultra-series-launch-unveiling-cutting-edge-processors-powered-by-lunar-lake-technology/"><u>September Marks Release of Intel's Ultra Series Launch: Unveiling Cutting-Edge Processors Powered by Lunar Lake Technology</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/wiederherstellen-sie-ihr-windows-11-system-schnelle-losungen-mit-der-eingabeaufforderung/"><u>Wiederherstellen Sie Ihr Windows 11-System: Schnelle Lösungen Mit Der Eingabeaufforderung</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/wiederherstellung-geloschter-daten-auf-sandisk-festplatten-professionelle-losungen/"><u>Wiederherstellung Gelöschter Daten Auf Sandisk Festplatten - Professionelle Lösungen</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/xbox-series-x-examined-powerful-features-and-exceptional-4k-visuals-for-gamers/"><u>Xbox Series X Examined: Powerful Features & Exceptional 4K Visuals for Gamers</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948909/19272" target="_top" id="1948909">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948909" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948909/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

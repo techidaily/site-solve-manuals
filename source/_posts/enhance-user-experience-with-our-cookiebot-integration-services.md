@@ -1,7 +1,7 @@
 ---
 title: Enhance User Experience with Our Cookiebot Integration Services
-date: 2024-10-13T00:56:09.900Z
-updated: 2024-10-14T19:53:44.781Z
+date: 2024-10-24T16:45:04.884Z
+updated: 2024-10-31T22:53:36.864Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/dfc76f0ba5d27ec9fc744372720f89b9cd207751d15fc2d7499285fee5808af2.jpg
@@ -17,19 +17,6 @@ The Sports Enthusiasts of ABBYY
 July 26, 2024
 
 Welcome to another article in our "Beyond the Job Title" series, where we explore the passions of ABBYY employees outside of work and how these interests contribute to their success in the workplace. This time, we dive into the lives of our sports and fitness enthusiasts, showcasing how their athletic pursuits help them excel both personally and professionally. In this article, you’ll meet Pierre, our US-based Director of Professional Services with a passion for bodybuilding; Greta, our UK-based Field Marketing and Demand Generation Specialist who thrives on kickboxing; Aniko, a Customer Excellence Business Operations Specialist in Budapest who finds her second home at the gym; and Ukraine-based Oksana who’s not only one of our Renewals Manager, but also a world-class powerlifter.
-
-<!-- affiliate ads begin -->
-<span id="1498635">
-					<video width="320" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Pierre Van der Westhuizen, Director of Professional Services, US
 
@@ -53,9 +40,23 @@ When asked this question, Pierre was quick to correct us “bodybuilding is not 
 
 Bodybuilding has taught Pierre valuable lessons in discipline and consistency. "There really are no secrets, you show up and do the work!" He also highlights how the sport teaches perseverance through challenging tasks and fosters a sense of community and mentorship. These skills translate well into his professional life, helping him approach work with the same dedication and willingness to share knowledge.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Greta Banaityte, Field Marketing and Demand Generation Specialist, UK
 
 ![abbyy-greta-848](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/beyond-the-job-title-the-sports-enthusiasts-of-abbyy/abbyy-greta-848.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Greta’s passion for kickboxing not only keeps her fit but also boosts her confidence and relieves stress. Here’s how kickboxing plays a crucial role in her work-life balance and professional development.
 
@@ -72,22 +73,15 @@ Kickboxing provides Greta with a great way to stay active and unwind, ensuring s
 Several skills and lessons from kickboxing are highly transferable to Greta's work at ABBYY. She highlights patience and stamina as invaluable when managing various marketing situations. "Kickboxing has taught me the importance of perseverance," she notes, explaining how this mindset helps her navigate setbacks. Additionally, kickboxing has shown her not to be intimidated by others, allowing her to approach interactions with courage and determination. “Everyone has their weak spots, and this understanding helps me approach interactions with confidence and assertiveness, ensuring that my voice and ideas are heard within the team”, she told us.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
-  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Aniko Biro, Hungary-based Customer Excellence Business Operations Specialist, Hungary
 
 ![aniko-abbyy-848](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/beyond-the-job-title-the-sports-enthusiasts-of-abbyy/aniko-abbyy-848.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Aniko’ commitment to the gym has not only improved her physical health but also provided her with valuable skills that enhance her performance at ABBYY. We sat down with her to find out more about how passion for fitness contributes positively to her day job at ABBYY.
 
@@ -111,16 +105,16 @@ Aniko highlights several transferable skills developed through her gym training:
 * Stress Management: Regular physical activity is a great way to manage stress, helping her stay calm and focused under pressure.
 * Time Management: Balancing gym time with other responsibilities improves her ability to manage time efficiently, ensuring she stays productive both at work and in her personal life.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Oksana Motrunchyk, Renewals Manager, Ukraine
 
 ![oksana-abbyy-848](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/beyond-the-job-title-the-sports-enthusiasts-of-abbyy/oksana-abbyy-848.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100529/7443" target="_top" id="2100529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Oksana found her passion in powerlifting, a sport that has significantly influenced her professional life at ABBYY. Here’s how her dedication to powerlifting helps her achieve a better work-life balance and develop essential skills.
 
@@ -199,24 +193,17 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-the-shot-without-a-lifeline-hand-balancing-hacks/"><u>[New] 2024 Approved The Shot Without a Lifeline Hand Balancing Hacks</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-how-to-make-outstanding-youtube-outro/"><u>[New] How to Make Outstanding YouTube Outro?</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-perfecting-your-youtube-experience-stop-previews-for-2024/"><u>[New] Perfecting Your YouTube Experience - Stop Previews for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-quick-start-making-professional-gifs/"><u>2024 Approved Quick Start Making Professional GIFs</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/2024-approved-srt-simplified-core-concepts-made-clear/"><u>2024 Approved SRT Simplified Core Concepts Made Clear</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/boost-your-mac-ventura-system-update-guide/"><u>Boost Your Mac: Ventura System Update Guide</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-analytics-and-optimization-solutions/"><u>Cookiebot-Driven Analytics and Optimization Solutions</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-analytics-optimizing-your-websites-performance/"><u>Cookiebot-Driven Analytics: Optimizing Your Website's Performance</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-solutions-for-optimal-website-analytics-and-personalization/"><u>Cookiebot-Driven Solutions for Optimal Website Analytics and Personalization</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-personalization-enhancing-user-experience-and-engagement/"><u>Cookiebot-Enabled Personalization: Enhancing User Experience and Engagement</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-site-optimization-boosting-your-seo-success/"><u>Cookiebot-Enabled Site Optimization: Boosting Your SEO Success</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-user-tracking-and-conversion-optimization/"><u>Cookiebot-Enabled User Tracking and Conversion Optimization</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-enhancing-your-websites-data-collection/"><u>Cookiebot-Enabled: Enhancing Your Website's Data Collection</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-enhanced-enhance-your-websites-user-experience-with-personalized-content/"><u>Cookiebot-Enhanced: Enhance Your Website's User Experience with Personalized Content</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/cookiebot-enhanced-optimized-site-performance/"><u>Cookiebot-Enhanced: Optimized Site Performance</u></a></li>
-<li><a href="https://review-topics.techidaily.com/edit-and-send-fake-location-on-telegram-for-your-honor-100-in-3-ways-drfone-by-drfone-virtual-android/"><u>Edit and Send Fake Location on Telegram For your Honor 100 in 3 Ways | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-boosting-video-quality-hd-streaming-across-facebook/"><u>In 2024, Boosting Video Quality HD Streaming Across Facebook</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/in-2024-professional-results-without-the-professionals-diy-movie-making-for-beginners/"><u>In 2024, Professional Results Without the Professionals DIY Movie Making for Beginners</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/troubleshooting-your-outriders-game-sound-tips-and-solutions-for-better-gaming-experience/"><u>Troubleshooting Your Outriders Game Sound: Tips and Solutions for Better Gaming Experience</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-captivating-stories-in-motion-best-video-theme-choices/"><u>[New] In 2024, Captivating Stories in Motion Best Video Theme Choices</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-screenflix-recorder-insider-report/"><u>[New] In 2024, ScreenFlix Recorder Insider Report</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/comprehensive-list-of-apple-watches-upgradable-to-watchos-11-and-exclusions-find-out-your-models-compatibility/"><u>Comprehensive List of Apple Watches Upgradable to WatchOS 11 & Exclusions: Find Out Your Model's Compatibility</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/guia-paso-a-paso-para-generar-una-captura-de-pantalla-del-almacenamiento-secundario-en-versiones-recientes-de-windows/"><u>Guía Paso a Paso Para Generar Una Captura De Pantalla Del Almacenamiento Secundario en Versiones Recientes De Windows</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/ios-guide-to-stunning-time-lapse-cinematography/"><u>IOS Guide to Stunning Time-Lapse Cinematography</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/komplettes-handbuch-erweiterung-des-ordnerverlaufs-von-versionen-der-dateien-auf-windows-n-11/"><u>Komplettes Handbuch: Erweiterung Des Ordnerverlaufs Von Versionen Der Dateien Auf Windows N 11</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/popular-tags-for-instagram-that-you-should-be-using/"><u>Popular Tags for Instagram That You Should Be Using</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/quick-and-effective-solutions-for-when-your-wifi-stops-working/"><u>Quick and Effective Solutions for When Your WiFi Stops Working</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/resolution-des-problemes-la-reponse-a-lunexplication-de-la-mauvaise-definition-dun-ssd-extern/"><u>Résolution Des Problèmes: La Réponse À L'Unexplication De La Mauvaise Définition D'un SSD Extern]</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/step-by-step-guide-to-moving-whatsapp-messages-between-two-iphone-devices-by-bypassing-the-icloud-route/"><u>Step-by-Step Guide to Moving WhatsApp Messages Between Two iPhone Devices by Bypassing the iCloud Route</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/the-language-of-immersive-digital-worlds/"><u>The Language of Immersive Digital Worlds</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-compact-gaming-computers/"><u>Top-Rated Compact Gaming Computers</u></a></li>
 </ul></div>
 
