@@ -1,7 +1,7 @@
 ---
 title: "Expert External Storage Fix with iFinD Recover Pro: Secure Your Lost Data on Compromised HDDs and SSDs"
-date: 2024-10-31T03:06:08.715Z
-updated: 2024-10-31T21:14:21.413Z
+date: 2024-11-06T00:12:15.644Z
+updated: 2024-11-07T01:11:10.595Z
 tags:
   - product
 categories:
@@ -47,22 +47,35 @@ We often encounter this situation when we use the external hard disk: the extern
 
 ![](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2018/11/external1.jpg?resize=640%2C360&ssl=1 "external1")
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 This means the external hard drive is damaged, There are many reasons for this failure. But once that happens, don’t be nervous, we’ll try to fix it at first.
 
 1. Press “Windows + X”, then knock “A”, then pop up the terminal program.
 2. Enter “chkdsk drive letter:/f” in the terminal program, press the enter key, then run the Windows disk repair tool.
 3. After the disk repair tool running ends, reconnect the external hard disk. If the problem is not solved, we recommend using [iFinD Data Recovery](https://tools.techidaily.com/ifind-recovery/products/) to recover the data in the damaged disk.
 
+<!-- affiliate ads begin -->
+<span id="1770526">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2: USB Device not Recognized
 
 ![](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2018/11/external2.png?resize=408%2C141&ssl=1 "USB Device not Recognized")
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **USB Device not Recognized** is probably the most common problem. If you are just a normal user, but not a computer expert. When you have seen this error, you may be at a loss. But don’t worry, let’s talk about why we have this problem. and then, what to do next!
 
@@ -76,10 +89,10 @@ The main reason for the failure:
 **So what we should do NEXT?**
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082520/7443" target="_top" id="2082520">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082520" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082520/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### _How to fix “the USB Device not Recognized”._
@@ -95,16 +108,16 @@ The main reason for the failure:
 
 ![](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2018/11/external_drive1.jpg?resize=553%2C590&ssl=1 "Unkown device")
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * Double click on the device and click on the uninstall device.
 
 ![](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2018/11/external_drive2-e1542333464171.png?resize=640%2C728&ssl=1 "Uninstall device")
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Then restart the computer.
 
@@ -129,28 +142,15 @@ Don’t open the partition if you formatted it. Most important, don’t copy any
 ![](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2018/10/scan-your-sd-card.jpg?resize=640%2C486&ssl=1 "scan your flash drive")
 
 <!-- affiliate ads begin -->
-<span id="1492813">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step4:** Select the file you need to restore, and then click “save” to save it on the local device.
 
 ![](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2018/11/Recover.png?resize=640%2C486&ssl=1 "Recover your flash drive")
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Notice: Do not save files on an external hard drive that is being restored. The wrong operation will cause permanent damage to the data, and then, cannot be recovered.
 
@@ -215,22 +215,16 @@ By [andy woo](https://tools.techidaily.com/ifind-recovery/products/)|2018-11-20T
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook.techidaily.com/1719154336903-ethereum-explorer-facebook-ceos-curious-goat-nickname/"><u>'Ethereum Explorer': Facebook CEO's Curious Goat Nickname</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-the-art-of-discrete-audio-erosion-in-audacity/"><u>[New] The Art of Discrete Audio Erosion in Audacity</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-the-ultimate-unboxing-adventure-boosting-customer-delight/"><u>[New] The Ultimate Unboxing Adventure Boosting Customer Delight</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-screen-to-file-high-quality-professional-record-for-2024/"><u>[Updated] Screen to File High-Quality Professional Record for 2024</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/mnvme-ssdwindows-112/"><u>「M.nvme SSDに素早くWindows 11をセットアップする効果的な2通りの方法」</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ankers-revolutionary-ev-charger-technology-experience-rapid-power-delivery-for-less-with-top-recommendations/"><u>Anker's Revolutionary EV Charger Technology – Experience Rapid Power Delivery for Less with Top Recommendations</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/best-methods-to-eliminate-repeated-contact-information-from-microsoft-outlook-2019-and-2016/"><u>Best Methods to Eliminate Repeated Contact Information From Microsoft Outlook 2019 and 2016</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/best-strategies-for-securing-your-office-365-inboxes-a-guide-for-admins/"><u>Best Strategies for Securing Your Office 365 Inboxes: A Guide for Admins.</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/breaking-barriers-7-top-tools-for-artists-transforming-into-nfts/"><u>Breaking Barriers 7 Top Tools for Artists Transforming Into NFTs</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/clonando-sistemas-operativos-de-microsoft-con-excelencia-windows-11-10-8-y/"><u>Clonando Sistemas Operativos De Microsoft Con Excelencia - Windows 11, 10, 8 Y</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/conseils-dexperts-proteger-avec-elegance-vos-saves-minecraft-sur-toutes-les-plates-formes-windows/"><u>Conseils D'Experts: Protéger Avec Élégance Vos Saves Minecraft Sur Toutes Les Plates-Formes Windows</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/expert-tips-for-restoring-deleted-drives-and-fixing-partition-loss-in-windows/"><u>Expert Tips for Restoring Deleted Drives and Fixing Partition Loss in Windows</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/fixed-cannot-insert-object-error-in-excel-2021-step-by-step-guide-by-stellar-guide/"><u>Fixed Cannot Insert Object Error in Excel 2021 | Step-by-Step Guide</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/lost-access-to-google-play-music-understanding-the-disappearance/"><u>Lost Access to Google Play Music: Understanding the Disappearance</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/the-most-advanced-overhead-speakers-of-2n24-find-your-perfect-match/"><u>The Most Advanced Overhead Speakers of 2N24: Find Your Perfect Match</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/ultimate-guide-to-restoring-lost-files-on-unresponsive-hard-drives-with-ifind-data-recovery-by-ifind/"><u>Ultimate Guide to Restoring Lost Files on Unresponsive Hard Drives with IFind Data Recovery by iFinD</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-secrets-how-to-use-friendly-feedback-tools/"><u>Unlocking Secrets: How to Use Friendly Feedback Tools</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-the-ultimate-checklist-for-instagram-popularity-surge/"><u>[Updated] 2024 Approved The Ultimate Checklist for Instagram Popularity Surge</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/12-signs-endless-stories-create-your-whatsapp-bio-narrative-for-2024/"><u>12 Signs, Endless Stories - Create Your WhatsApp Bio Narrative for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/discover-the-top-11-cinematic-gems-that-will-inspire-and-empower-you/"><u>Discover the Top 11 Cinematic Gems That Will Inspire and Empower You</u></a></li>
+<li><a href="https://howto.techidaily.com/fixes-for-apps-keep-crashing-on-vivo-y36i-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixes for Apps Keep Crashing on Vivo Y36i | Dr.fone</u></a></li>
+<li><a href="https://program-issues.techidaily.com/how-to-stop-war-thunder-from-freezing-and-crashing-essential-troubleshooting-guide-for-gamers/"><u>How To Stop War Thunder From Freezing and Crashing: Essential Troubleshooting Guide for Gamers</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/optimizing-engagement-with-our-cookiebot-technology-solutions/"><u>Optimizing Engagement with Our Cookiebot Technology Solutions</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/optimizing-user-journeys-with-the-help-of-cookiebot-technology/"><u>Optimizing User Journeys with the Help of Cookiebot Technology</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/revolutionize-your-website-with-advanced-automation-powered-by-the-cutting-edge-cookiebot-system/"><u>Revolutionize Your Website with Advanced Automation: Powered by the Cutting-Edge Cookiebot System</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/revolutionizing-distance-tech-jobs-the-impact-of-virtual-reality-and-digital-twinning-insights-from-zdnet/"><u>Revolutionizing Distance Tech Jobs: The Impact of Virtual Reality and Digital Twinning - Insights From ZDNet</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/revolutionizing-large-scale-housing-operations-streamlined-invoice-handling-through-abbyys-advanced-technology/"><u>Revolutionizing Large-Scale Housing Operations: Streamlined Invoice Handling Through ABBYY's Advanced Technology</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/top-20-most-effective-conversations-starters-with-chatgpt-available-on-github/"><u>Top 20 Most Effective Conversations Starters with ChatGPT Available on Github</u></a></li>
 </ul></div>
 
