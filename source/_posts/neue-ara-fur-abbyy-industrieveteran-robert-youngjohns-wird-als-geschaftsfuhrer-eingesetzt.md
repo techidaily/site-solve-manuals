@@ -1,7 +1,7 @@
 ---
 title: "Neue Ära Für ABBYY: Industrieveteran Robert Youngjohns Wird Als Geschäftsführer Eingesetzt"
-date: 2024-10-29T00:30:26.611Z
-updated: 2024-11-01T05:52:18.060Z
+date: 2024-11-21T20:18:36.706Z
+updated: 2024-11-26T19:13:08.693Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5f8ab25178398b0800b6345046953e2b2e89a6d9e6a8838419dd9465e3b6b177.jpg
@@ -11,11 +11,19 @@ thumbnail: https://thmb.techidaily.com/5f8ab25178398b0800b6345046953e2b2e89a6d9e
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## ABBYY ernennt Industrie-Veteranen Robert Youngjohns zum Vorstandsvorsitzenden
 
 20\. April 2020
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### _Neuer Vorstandsvorsitzender Youngjohns soll das Wachstum der Digital Intelligence-Strategie von ABBYY beschleunigen_
 
@@ -60,25 +68,16 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-full-guide-to-download-windows-movie-maker-60/"><u>[New] 2024 Approved Full Guide to Download Windows Movie Maker 6.0</u></a></li>
-<li><a href="https://program-issues.techidaily.com/1722988694028-accelerate-chrome-swift-and-simple-fixes-for-speedier-surfing/"><u>Accelerate Chrome: Swift & Simple Fixes for Speedier Surfing!</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/complete-walkthrough-for-saving-your-icloud-pics-onto-a-separate-hdd/"><u>Complete Walkthrough for Saving Your iCloud Pics Onto a Separate HDD.</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/fixing-windows-11-cannot-connect-issue-step-by-step-guide-using-myrecover/"><u>Fixing 'Windows 11 Cannot Connect' Issue: Step-by-Step Guide Using MyRecover</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/game-enthusiasts-guide-to-early-black-friday-deals-october-2024-special-discounts-on-zdnet/"><u>Game Enthusiasts' Guide to Early Black Friday Deals - October 2024 Special Discounts on ZDNET</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/guide-easy-to-follow-cloner-un-ssd-sur-une-ps3-gratuitement-avec-le-logiciel-de-clonage-le-plus-efficace/"><u>Guide Easy-to-Follow : Cloner Un SSD Sur Une PS3 Gratuitement Avec Le Logiciel De Clonage Le Plus Efficace</u></a></li>
-<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-from-nokia-c02-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock from Nokia C02 Phones with/without a PC</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-perfect-pairings-of-sound-and-sight-on-social-platforms/"><u>In 2024, Perfect Pairings of Sound and Sight on Social Platforms</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/sauvegarde-de-windows-cuisine-salon-salle-a-manger-et-autres-pieces-de-la-maison-sont-des-espaces-ou-lorganisation-est-essentielle-pour-faciliter-les-activi244/"><u>Sauvegarde De Windows Cuisine, Salon, Salle À Manger Et Autres Pièces De La Maison Sont Des Espaces Où L'organisation Est Essentielle Pour Faciliter Les Activités Quotidiennes. Dans Un Contexte Domestique Typique, Ces Zones Servent À Différentes Fins :</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/september-marks-release-of-intels-ultra-series-launch-unveiling-cutting-edge-processors-powered-by-lunar-lake-technology/"><u>September Marks Release of Intel's Ultra Series Launch: Unveiling Cutting-Edge Processors Powered by Lunar Lake Technology</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/wiederherstellen-sie-ihr-windows-11-system-schnelle-losungen-mit-der-eingabeaufforderung/"><u>Wiederherstellen Sie Ihr Windows 11-System: Schnelle Lösungen Mit Der Eingabeaufforderung</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/wiederherstellung-geloschter-daten-auf-sandisk-festplatten-professionelle-losungen/"><u>Wiederherstellung Gelöschter Daten Auf Sandisk Festplatten - Professionelle Lösungen</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/xbox-series-x-examined-powerful-features-and-exceptional-4k-visuals-for-gamers/"><u>Xbox Series X Examined: Powerful Features & Exceptional 4K Visuals for Gamers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-step-by-step-building-free-youtube-intro-videos/"><u>[New] 2024 Approved Step-by-Step Building FREE YouTube Intro Videos</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-confirming-correct-youtube-ad-revenue-allocation/"><u>2024 Approved Confirming Correct YouTube Ad Revenue Allocation</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/advanced-personalization-through-cookiebot-integration-transform-your-site/"><u>Advanced Personalization Through Cookiebot Integration – Transform Your Site!</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/analyse-der-digitalen-transformation-von-unternehmensprozessen-durch-abbyy-und-fraunhofer/"><u>Analyse Der Digitalen Transformation Von Unternehmensprozessen Durch ABBYY Und Fraunhofer</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/automated-data-tracking-with-cutting-edge-cookiebot-technology/"><u>Automated Data Tracking with Cutting-Edge Cookiebot Technology</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/automatisierte-rechnungsbearbeitung-bei-pepsico-mit-hilfe-von-abbyy-software/"><u>Automatisierte Rechnungsbearbeitung Bei PepsiCo Mit Hilfe Von ABBYY Software</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/charting-the-path-of-auto-advancement-in-insurtech-an-idc-visual-guide/"><u>Charting the Path of Auto-Advancement in InsurTech: An IDC Visual Guide</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-11-best-location-changers-for-gionee-f3-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 11 Best Location Changers for Gionee F3 Pro | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, A Detailed Guide on Faking Your Location in Mozilla Firefox On Apple iPhone 6 Plus | Dr.fone</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210751235-9780991510276-the-connoisseur-of-time-an-invitation-to-presence/"><u>The Connoisseur of Time: An Invitation to Presence | Free Book</u></a></li>
+<li><a href="https://win-webster.techidaily.com/ultimate-tutorial-how-to-disable-dual-stage-verification-on-ios-devices/"><u>Ultimate Tutorial: How to Disable Dual-Stage Verification on iOS Devices</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948909/19272" target="_top" id="1948909">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948909" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948909/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

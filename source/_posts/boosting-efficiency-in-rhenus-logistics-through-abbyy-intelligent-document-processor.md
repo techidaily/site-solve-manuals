@@ -1,7 +1,7 @@
 ---
 title: Boosting Efficiency in Rhenus Logistics Through ABBYY Intelligent Document Processor
-date: 2024-10-27T18:24:52.699Z
-updated: 2024-11-01T05:34:22.355Z
+date: 2024-11-22T17:50:03.542Z
+updated: 2024-11-26T19:17:22.034Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ef126118f50b6cc91b0e402fe75cfce958a6a6e6b161357abe8bae35407eca1c.jpg
@@ -17,20 +17,11 @@ Transportation & Logistics | Accounts Payable Automation
 
 ![pathner logo](https://content.abbyy.com/-/media/project/abbyy/abbyy/logos-white/abbyy.png?h=40&iar=0&w=120)
 
-[Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
-
 <!-- affiliate ads begin -->
-<span id="1983549">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+[Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
 
 ## Rhenus Logistics Accelerates Business Processes with ABBYY IDP
 
@@ -38,16 +29,13 @@ Transportation & Logistics | Accounts Payable Automation
 
 ![](https://static1.abbyy.com/abbyycommedia/16262/cs-rhenus-556x303-3.jpg) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### Customer Overview
 
 ![Rhenus Assets & Services GmbH & Co. KG](https://static4.abbyy.com/abbyycommedia/15831/rhenus-logo_150x80.jpg) 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
-  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 | Name         | Rhenus Assets & Services GmbH & Co. KG   |
 | ------------ | ---------------------------------------- |
@@ -97,20 +85,21 @@ Integrated middleware handles archiving and sends status reports to the various 
 
 [![FlexiCapture](https://static2.abbyy.com/abbyycommedia/21380/4-flexicapture.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [Read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![Transportation](https://static5.abbyy.com/abbyycommedia/14363/13-transportation.jpg)](https://tools.techidaily.com/abbyy/products/) [Transportation](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 [Read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![PDF Version](https://static2.abbyy.com/abbyycommedia/16261/cs-rhenus-360x162-3.jpg)](https://static2.abbyy.com/abbyycommedia/8812/case-study-rhenus-transport-logistics-en.pdf "PDF version") [PDF version](https://static2.abbyy.com/abbyycommedia/8812/case-study-rhenus-transport-logistics-en.pdf "PDF version") 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 [Read more](https://static2.abbyy.com/abbyycommedia/8812/case-study-rhenus-transport-logistics-en.pdf "PDF version") 
 
@@ -123,10 +112,7 @@ Share  True ?  : ""
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Ready to talk to an expert?
@@ -150,18 +136,24 @@ We'd love to help you along your automation journey.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-bring-the-chuckles-home-creating-memes-on-demand-for-2024/"><u>[New] Bring the Chuckles Home Creating Memes on Demand for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-easy-ipad-and-iphone-screen-recording-for-beginners/"><u>[New] Easy iPad & iPhone Screen Recording for Beginners</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-ideal-tools-to-craft-professional-igtv-videos/"><u>[Updated] 2024 Approved Ideal Tools to Craft Professional IGTV Videos</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-shield-your-snapshots-from-times-tide-explore-cost-effective-solutions-for-2024/"><u>[Updated] Shield Your Snapshots From Time's Tide - Explore Cost-Effective Solutions for 2024</u></a></li>
-<li><a href="https://win-great.techidaily.com/efficient-methods-for-saving-your-favorite-8tracks-tunes-with-a-professional-downloading-tool/"><u>Efficient Methods for Saving Your Favorite 8Tracks Tunes with a Professional Downloading Tool</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/how-to-fix-an-application-package-compatibility-error-in-windows-11-three-effective-methods/"><u>How to Fix an Application Package Compatibility Error in Windows 11 - Three Effective Methods</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-wondering-the-best-alternative-to-hola-on-nokia-g42-5g-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>In 2024, Wondering the Best Alternative to Hola On Nokia G42 5G? Here Is the Answer | Dr.fone</u></a></li>
-<li><a href="https://win-info.techidaily.com/is-using-the-migration-assistant-feasible-on-windows-11-exploring-alternatives/"><u>Is Using the Migration Assistant Feasible on Windows 11? Exploring Alternatives</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/revive-your-outlooks-autosave-feature-5-effective-solutions-for-a-non-working-auto-archive/"><u>Revive Your Outlook's Autosave Feature: 5 Effective Solutions For a Non-Working Auto Archive!</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/solving-the-xinput13dll-file-not-detected-a-comprehensive-guide/"><u>Solving the xinput1_3.dll File Not Detected: A Comprehensive Guide</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/ssd-to-hdd-data-transfer-methods-on-windows-11-two-effective-approaches/"><u>SSD-to-HDD Data Transfer Methods on Windows 11: Two Effective Approaches</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/tecnicas-modernas-y-alternativas-al-clasico-robocopy-optimizacion-de-transferencias-de-archivo-en-windows-10/"><u>Técnicas Modernas Y Alternativas Al Clásico Robocopy: Optimización De Transferencias De Archivo en Windows 10</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/top-techniques-pour-proteger-et-restaurer-votre-ordinateur-portable-asus-sous-windows-1110/"><u>Top Techniques Pour Protéger Et Restaurer Votre Ordinateur Portable ASUS Sous Windows 11/10</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-record-breaking-reddit-threads-ranked-1-10/"><u>[Updated] Record-Breaking Reddit Threads Ranked 1-10</u></a></li>
+<li><a href="https://change-location.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-samsung-galaxy-s24-ultra-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Samsung Galaxy S24 Ultra | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/a-comprehensive-guide-to-icloud-unlock-from-apple-iphone-6s-online-by-drfone-ios/"><u>A Comprehensive Guide to iCloud Unlock From Apple iPhone 6s Online</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/becoming-an-influencer-entrepreneur-creating-a-business-profile-on-ig/"><u>Becoming an Influencer Entrepreneur Creating a Business Profile on IG</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/comprehensive-review-transform-your-images-with-facetune-for-2024/"><u>Comprehensive Review Transform Your Images with Facetune for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-precision-in-digital-imaging-a-professionals-approach/"><u>In 2024, Precision in Digital Imaging A Professional's Approach</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-sim-unlock-infinix-note-30-5g-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>In 2024, Sim Unlock Infinix Note 30 5G Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-tips-and-tricks-for-apple-id-locked-issue-from-apple-iphone-15-pro-by-drfone-ios/"><u>In 2024, Tips and Tricks for Apple ID Locked Issue From Apple iPhone 15 Pro</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/leverage-advanced-web-scraping-with-cookiebot-integration-solutions/"><u>Leverage Advanced Web Scraping with Cookiebot Integration Solutions</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/leveraging-abbyys-expertise-ashling-partners-accelerates-automation-with-elite-program-membership-and-smart-content-insights/"><u>Leveraging ABBYY's Expertise: Ashling Partners Accelerates Automation with Elite Program Membership and Smart Content Insights</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/majority-of-british-workforce-eager-to-outsource-tasks-to-automation-insights-from-abbyy/"><u>Majority of British Workforce Eager to Outsource Tasks to Automation: Insights From ABBYY</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/mitigating-workplace-stress-through-automated-solutions-research-overview/"><u>Mitigating Workplace Stress Through Automated Solutions - Research Overview</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/nighttime-iphone-photography-secrets-revealed/"><u>Nighttime iPhone Photography Secrets Revealed</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/onboarding-ist-entscheidend-erkennen-sie-die-risiken-bei-denen-fast-jeder-unternehmen-mit-dem-verlust-von-interessenten-rechnen-sollte/"><u>Onboarding Ist Entscheidend: Erkennen Sie Die Risiken, Bei Denen Fast Jeder Unternehmen Mit Dem Verlust Von Interessenten Rechnen Sollte.</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/optimize-with-cookiebot-advanced-insights-for-successful-online-presence/"><u>Optimize with Cookiebot - Advanced Insights for Successful Online Presence</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/optimize-your-digital-footprint-using-smart-tracking-technology-powered-by-cookiebot/"><u>Optimize Your Digital Footprint Using Smart Tracking Technology - Powered by Cookiebot</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/optimized-with-the-help-of-cookiebot-boost-your-websites-performance/"><u>Optimized with the Help of Cookiebot: Boost Your Website's Performance</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/optimizing-with-cookiebot-smart-website-analytics-and-personalization-tools/"><u>Optimizing with Cookiebot: Smart Website Analytics and Personalization Tools</u></a></li>
+<li><a href="https://win-great.techidaily.com/quick-and-easy-ways-to-locate-secret-folders-with-these-4-tactics/"><u>Quick & Easy Ways to Locate Secret Folders with These 4 Tactics</u></a></li>
 </ul></div>
 

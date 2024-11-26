@@ -1,7 +1,7 @@
 ---
 title: "1. Quick Guide: Watching Your Videos Anywhere - Convert WMV Files to VOB Format with Ease!"
-date: 2024-11-02T17:29:10.755Z
-updated: 2024-11-06T16:56:28.839Z
+date: 2024-11-20T19:49:19.523Z
+updated: 2024-11-26T18:35:14.913Z
 categories:
   - movavi
 thumbnail: https://thmb.techidaily.com/f8d5308a72df2042f1308b78dc1efb598f7f3491c673912341c93c2d4c06d1ec.jpg
@@ -167,10 +167,7 @@ Un facteur clé qui peut ralentir votre expérience de jeu est l'utilisation d'u
 ![](https://cdn.staticont.net/pages/0013/24/1698d2ec33be3cf4f4bedd243e199c87dbd8ac34.webp)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Si votre jeu commence à ralentir et que l'image est saccadée, surtout lorsqu'elle bouge, c'est que votre taux d'images par seconde (IPS) est faible. Cela se produit lorsque le matériel de votre ordinateur a du mal à faire fonctionner votre jeu ou fait des heures supplémentaires. S'il travaille trop, la vitesse du jeu ralentit.
@@ -190,6 +187,10 @@ Comment rendre Windows 10 plus rapide pour les jeux (corrections rapides)
 ![](https://cdn.staticont.net/pages/0013/24/d54a84e68415bc2949ca1ec30e4cf5f5b067a4e1.webp)
 
 Vous voulez savoir comment rendre Windows 10 plus rapide pour jouer avec une solution rapide ? Suivez ces conseils et recommencez à jouer !
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Régler les paramètres graphiques d'un jeu
 
@@ -217,13 +218,6 @@ Voici quelques liens vers les mises à jour des pilotes des fabricants les plus 
 * [Pilotes NVIDIA](https://www.nvidia.com/Download/index.aspx)
 * [Pilotes Intel Graphics](https://www.intel.com/content/www/us/en/support/products/80939/graphics-drivers.html)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Installer DirectX 12
 
 ![](https://cdn.staticont.net/default/0012/47/72e52d810cb1f6f8d15a641fc4b287b8c43fbcd6.webp)
@@ -235,13 +229,6 @@ Pour bénéficier des fonctionnalités de DirectX 12, le jeu doit avoir été d�
 Pour vérifier que vous disposez de la dernière version de DirectX, appuyez sur la   **touche Windows** \+ **R**, tapez "dxdiag" et cliquez sur **OK**. L'outil de diagnostic DirectX s'ouvre.
 
 Si vous n'avez pas DirectX 12, allez-y et installez-le ; le processus ne prendra que quelques minutes. Appuyez sur la   **touche Windows** \+ **I**, choisissez **Mise à jour et sécurité** et cliquez sur **Vérifier les mises à jour** dans l'onglet **Windows. Mise à jour**. Attendez que l'installation se termine.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 
 
@@ -256,13 +243,6 @@ Pour localiser les paramètres du mode jeu, appuyez sur la   **touche Windows** 
 Dans le menu qui s'ouvre, cliquez sur **Mode Jeu**. Passez à **On** pour activer le Game Mode. Si votre PC prend en charge le Mode Jeu, le système optimisera les performances de votre PC pour les jeux.
 
 Si vous ne trouvez pas ces paramètres, cela signifie que la dernière Windows Creators Update n'est pas installée sur votre PC.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Gérez vos heures actives
 
@@ -298,6 +278,10 @@ Si vous souhaitez conserver un minimum de graphismes pour que votre interface n'
 
 ![](https://cdn.staticont.net/default/0012/47/297019451ab2d6ffba248c33b083ec10c2390f59.webp)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Le problème ici est le même qu'avec Windows Mises à jour. Steam met automatiquement à jour tous vos jeux, même ceux auxquels vous n'avez pas joué depuis longtemps. Les mises à jour en arrière-plan consomment la mémoire de votre PC et peuvent ralentir les processus de jeu.
 
 Pour empêcher Steam de mettre à jour les jeux pendant que vous jouez, allez dans votre client Steam et trouvez les options de mise à jour dans **Steam** \- **Paramètres** \- **Téléchargements**. Décochez la case **Autoriser les téléchargements pendant le jeu**.
@@ -307,10 +291,7 @@ Par ailleurs, les jeux sur Steam sont mis à jour en permanence et il arrive sou
 Pour ramener la version d'un jeu à celle dont vous avez besoin, ouvrez Steam, faites un clic droit sur le jeu, choisissez **Propriétés** et allez dans l'onglet **Bêta**. Choisissez la version souhaitée dans le menu déroulant.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Désactiver les notifications
@@ -321,13 +302,6 @@ Les notifications au milieu d'un jeu consomment de la puissance CPU et peuvent n
 2. Tapez "Notifications" dans la barre de recherche et sélectionnez **Notifications et paramètres d'actions** dans les résultats.
 3. Lorsque la nouvelle fenêtre s'ouvre, mettez le commutateur à bascule situé à côté de l'option **Obtenir des notifications d'applications et d'autres expéditeurs** sur **Désactivé**. Vos notifications sont maintenant désactivées.
 4. Vous pouvez également faire défiler la liste et désactiver les notifications par application.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Régler le panneau de contrôle NVIDIA
 
@@ -369,10 +343,7 @@ Comment améliorer les performances de jeu sur Windows 10 (corrections avancées
 Vous ne savez toujours pas comment rendre Windows 10 plus rapide pour les jeux ? Utilisez ces correctifs avancés pour une solution à long terme.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Optez pour un SSD
@@ -401,6 +372,10 @@ De nombreux jeux requièrent une mémoire vive de 8 Go, mais ce chiffre augmente
 
 Si vous voulez rester en tête de la courbe, 16 Go suffiront pour l'instant. Mais si vous voulez utiliser des services de streaming en arrière-plan comme Twitch, Discord et YouTube, vous devrez passer à 32 Go pour pouvoir tout faire fonctionner sans problème.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Désactiver l'algorithme de Nagle
 
 En gros, l'algorithme de Nagle améliore l'efficacité des réseaux TCP/IP en créant des paquets de données, ce qui réduit le nombre de paquets à envoyer sur le réseau. Ce processus affecte votre connexion Internet, la rendant moins stable. La désactivation de cet algorithme sur votre PC peut contribuer à des problèmes de latence lorsque vous jouez à des jeux en ligne.
@@ -421,6 +396,10 @@ Pour overclocker :
 2. Utilisez un programme comme MSI Afterburner pour augmenter l'horloge centrale de la carte. Faites-le par intervalles de 10 MHz et réinitialisez les benchmarks au fur et à mesure.
 3. En option, vous pouvez également augmenter le voltage et l'horloge de la mémoire, mais surveillez de près la température de votre carte lorsque vous faites cela.
 4. Jouez à un jeu et vérifiez les performances.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Désactiver SysMain et Prefetch
 
@@ -443,6 +422,10 @@ C'est l'un des services faciles à désactiver sur Windows 10\. Ces programmes e
 * Double-cliquez sur la valeur **REG\_DWORD EnablePrefetcher**.
 * Définissez la **valeur** sur **0**.
 * Cliquez sur **OK**.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 
 
@@ -472,13 +455,6 @@ Les ordinateurs portables sont réputés pour leur surchauffe, car tous les comp
 ### Mettez à niveau votre GPU et votre RAM
 
 Nous avons déjà abordé ce sujet pour les PC, mais votre ordinateur portable peut également être équipé d'un processeur graphique et d'une mémoire vive. Suivez les mêmes protocoles, et si vous n'avez pas l'habitude de travailler avec des ordinateurs portables, il est préférable de confier l'installation à un technicien expérimenté.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 
 
@@ -511,6 +487,10 @@ Logiciel d'enregistrement de jeux et de streaming gratuit et simple
 
 ![Gecata&nbsp;by Movavi](https://cdn.staticont.net/products/0023/55/189f02c8904c7cafef6bd153dc2ff5755f569030.webp)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 
 
 Foire aux questions 
@@ -523,6 +503,10 @@ L'article ci-dessus énumère une série de mesures que vous pouvez prendre pour
 * Modifiez les paramètres de votre carte graphique
 * Mettez à niveau votre GPU et/ou votre CPU
 * Vérifiez les paramètres de performance de votre Windows.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Qu'est-ce qui ralentit mon ordinateur ?
 
@@ -601,19 +585,22 @@ En vous inscrivant, vous acceptez de recevoir nos courriels de marketing et acce
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/ed-from-obscurity-to-stardom-trendsetting-tactics-for-videos/"><u>[Updated] From Obscurity to Stardom Trendsetting Tactics for Videos</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/10-superior-text-conversion-tools-for-mac-enthusiasts-for-2024/"><u>10 Superior Text Conversion Tools for Mac Enthusiasts for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-capturing-classroom-talks-on-a-mac/"><u>2024 Approved Capturing Classroom Talks on a Mac</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/exploring-the-efficiency-of-cookiebot-in-digital-marketing-strategies/"><u>Exploring the Efficiency of Cookiebot in Digital Marketing Strategies</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ng-your-niche-making-money-with-video-content-for-2024/"><u>Finding Your Niche Making Money with Video Content for 2024</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/future-proof-your-finance-institution-essential-digital-tactics-and-strategies-featuring-abbyy-industry-experts/"><u>Future-Proof Your Finance Institution: Essential Digital Tactics & Strategies, Featuring ABBYY Industry Experts</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-track-vivo-y200e-5g-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>How to Track Vivo Y200e 5G Location without Installing Software? | Dr.fone</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/idpidp-revolutionary-victories-in-investment-decision-processes/"><u>IDP革命帷幄，IDP斐然！ - Revolutionary Victories in Investment Decision Processes!</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/innovative-synergy-strengthening-the-purposeful-ai-collaboration-between-abbyy-and-novelis/"><u>Innovative Synergy: Strengthening the Purposeful AI Collaboration Between ABBYY & Novelis</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/integrating-ai-into-your-business-top-7-strategies-from-the-abbyy-expertise/"><u>Integrating AI Into Your Business: Top 7 Strategies From the ABBYY Expertise</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/optimize-iphoneandroid-video-quality-in-online-platforms-for-2024/"><u>Optimize iPhone/Android Video Quality in Online Platforms for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/quick-fixes-eliminate-ssgnatures-in-a-blink-for-2024/"><u>Quick Fixes Eliminate Ssgnatures in a Blink for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/simplified-tech-talk-how-to-sync-any-computer-with-wireless-speaker-systems/"><u>Simplified Tech Talk: How to Sync Any Computer with Wireless Speaker Systems</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/three-ways-to-sim-unlock-samsung-galaxy-s23-by-drfone-android/"><u>Three Ways to Sim Unlock Samsung Galaxy S23</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-premium-cameras-perfect-for-podcasts/"><u>[New] In 2024, Premium Cameras Perfect for Podcasts</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-top-10-text-manipulators-boosting-affects-craft/"><u>[New] Top 10 Text Manipulators Boosting Affects Craft</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-optimal-recorders-top-10-tools-for-webinars/"><u>2024 Approved Optimal Recorders Top 10 Tools for Webinars</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-apple-iphone-14-drfone-by-drfone-virtual-ios/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Apple iPhone 14 | Dr.fone</u></a></li>
+<li><a href="https://fox-that.techidaily.com/expert-advice-getting-your-iphones-guided-mode-back-online/"><u>Expert Advice: Getting Your iPhone's Guided Mode Back Online</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/guide-complet-a-la-synchronisation-des-dossiers-locaux-sur-onedrive-les-deux-facons-pratiques-pour-commencer-aujourdhui/"><u>Guide Complet À La Synchronisation Des Dossiers Locaux Sur OneDrive : Les Deux Façons Pratiques Pour Commencer Aujourd'hui!</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/ifind-pro-essential-techniques-and-tips-for-successful-ssd-data-recovery/"><u>IFind Pro: Essential Techniques and Tips for Successful SSD Data Recovery</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-a-comprehensive-guide-for-converting-pinterest-video-content-to-mp3-format/"><u>In 2024, A Comprehensive Guide for Converting Pinterest Video Content to MP3 Format</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-airplane-mode-turn-off-gps-location-on-honor-play-7t-drfone-by-drfone-virtual-android/"><u>In 2024, Does Airplane Mode Turn off GPS Location On Honor Play 7T? | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-highlighting-prime-3ds-emulation-software-pc/"><u>In 2024, Highlighting Prime 3Ds Emulation Software PC</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/mastering-ssd-data-restoration-with-ifind-expert-guidelnce-and-easy-to-follow-strategies/"><u>Mastering SSD Data Restoration with iFind - Expert Guidelnce & Easy-to-Follow Strategies</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/ntfs-partities-vernieuwing-de-stap-by-step-procedure-voor-volmaakbare-gebruikers/"><u>NTFS Partities Vernieuwing: De Stap-by-Step Procedure Voor Volmaakbare Gebruikers</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/quick-guide-youtube-soundtracks-to-mp3-for-macos-2shift-for-2024/"><u>Quick Guide YouTube Soundtracks to MP3 for MacOS 2Shift for 2024</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/step-by-step-hp-notebook-refresh-comprehensive-windows-11-os-reinstallation-tutorial-both-techniques-covered/"><u>Step-by-Step HP Notebook Refresh: Comprehensive Windows 11 OS Reinstallation Tutorial (Both Techniques Covered)</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/sviluppo-e-trasferimento-efficiente-dei-dati-utilizzando-lo-strumento-di-spostamento-della-samsung-in-windows-11-download-ora/"><u>Sviluppo E Trasferimento Efficiente Dei Dati Utilizzando Lo Strumento Di Spostamento Della Samsung in Windows 11: Download Ora</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/top-rated-iphone-file-manager-apps-on-windows-the-best-itunes-substitutes/"><u>Top Rated iPhone File Manager Apps on Windows: The Best iTunes Substitutes</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1728495418986-windows-server-2016/"><u>Windows Server 2016のゴースト化:サーバ保護のためのベストプラクティス</u></a></li>
 </ul></div>
 

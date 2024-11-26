@@ -1,7 +1,7 @@
 ---
 title: ABBYY Welcomes Tomohito Shimizu as New Head of Its Japan Operations
-date: 2024-10-27T01:21:17.200Z
-updated: 2024-11-01T03:33:16.445Z
+date: 2024-11-23T17:29:30.437Z
+updated: 2024-11-26T16:49:35.317Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c8e68cffef41fc4061ac722c7019bbd23a7bd74185b074d0cf9fcbe34770c5fd.jpg
@@ -11,13 +11,25 @@ thumbnail: https://thmb.techidaily.com/c8e68cffef41fc4061ac722c7019bbd23a7bd7418
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## ABBYY appoints Tomohito Shimizu to lead and grow Japanese business
 
 October 02, 2023
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Tomohito Shimizu Newsroom 848X444](https://static1.abbyy.com/abbyycommedia/37844/tomohito-shimizu-newsroom-848x444.jpg) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ABBYY, a leader in intelligent automation, is pleased to announce that Tomohito Shimizu has been appointed country manager of ABBYY Japan Co., Ltd.
 
@@ -37,16 +49,7 @@ Before joining ABBYY, Mr. Shimizu spent more than 30 years at RICOH, being respo
 _1 IDC Worldwide Intelligent Process Automation Software Forecast, 2021-2025; July 2021 #US48015622_
 
 <!-- affiliate ads begin -->
-<span id="2127886">
-					<video width="576" height="1024" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### About ABBYY
@@ -55,28 +58,12 @@ ABBYY puts your information to work. We combine innovation and experience to tra
 
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies and may not be used without consent of its respective owners.
 
-<!-- affiliate ads begin -->
-<span id="1770526">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### ABBYY Editorial Contact
 
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### Gina Ray
@@ -103,20 +90,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-copyright-laws-and-screencasting-of-online-video-platforms-youtube/"><u>[New] Copyright Laws and Screencasting of Online Video Platforms (YouTube)</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-skype-voice-to-mp3-the-economical-choice/"><u>[Updated] 2024 Approved Skype Voice to MP3 The Economical Choice</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/ssd-windows-10-3/"><u>小型 SSD に適した Windows 10 クローニングツールトップ3選択肢</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/como-replicar-tu-particion-de-emergencia-oculta-en-un-disco-ssd-sin-riesgos/"><u>Cómo Replicar Tu Partición De Emergencia Oculta en Un Disco SSD Sin Riesgos</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/des-precisions-pour-empecher-la-deletion-automatique-des-fichiers-sur-votre-ordinateur/"><u>Des Précisions Pour Empêcher La Déletion Automatique Des Fichiers Sur Votre Ordinateur</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/essential-steps-for-fixing-fall-guys-link-failures-windows-wise/"><u>Essential Steps for Fixing Fall Guys Link Failures Windows-Wise</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/five-effective-solutions-to-resolve-corruptedincompatible-itunes-backups-on-your-iphone/"><u>Five Effective Solutions to Resolve Corrupted/Incompatible iTunes Backups on Your iPhone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-remove-forgotten-pin-of-your-xiaomi-civi-3-by-drfone-android/"><u>How to Remove Forgotten PIN Of Your Xiaomi Civi 3</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-14-without-passcode-drfone-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone 14 Without Passcode? | Dr.fone</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-overcoming-compression-artifacts-on-youtube-videos/"><u>In 2024, Overcoming Compression Artifacts on YouTube Videos</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/iniciando-en-el-manejo-de-contenidos-como-mover-archivos-de-una-surface-a-otra/"><u>Iniciando en El Manejo De Contenidos - Cómo Mover Archivos De Una Surface a Otra</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/maximize-your-streams-impact-our-recommendations-for-best-9-filters/"><u>Maximize Your Stream's Impact Our Recommendations for Best 9 Filters</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/optimieren-sie-ihre-datensicherheit-festplattenloschen-im-einklang-mit-milspec-dod-522022-m-auf-windows-systemen/"><u>Optimieren Sie Ihre Datensicherheit: Festplattenlöschen Im Einklang Mit MILSPEC DoD 5220.22-M Auf Windows Systemen</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/solving-the-puzzle-of-error-code-0xc000021a-on-windows-an-in-depth-tutorial/"><u>Solving the Puzzle of Error Code 0xC000021A on Windows: An In-Depth Tutorial</u></a></li>
-<li><a href="https://change-location.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-vivo-y17s-drfone-by-drfone-virtual-android/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Vivo Y17s | Dr.fone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-snap-into-fun-step-by-step-guide-for-adding-gifs-in-conversations/"><u>[New] Snap Into Fun Step-by-Step Guide for Adding Gifs in Conversations</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-equipment-list-for-homebound-filmmakers/"><u>[Updated] In 2024, Equipment List for Homebound Filmmakers</u></a></li>
+<li><a href="https://win-blog.techidaily.com/5-hassle-free-fixes-to-get-your-genshin-adventure-rolling/"><u>5 Hassle-Free Fixes to Get Your Genshin Adventure Rolling</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/automated-consent-management-how-cookiebot-streamlines-compliance/"><u>Automated Consent Management: How Cookiebot Streamlines Compliance</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/automation-projects-aiming-to-reduce-employee-burnout-study-insights/"><u>Automation Projects Aiming to Reduce Employee Burnout - Study Insights</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/award-winning-abbyy-dominates-2024-gartner-magic-quadrant-for-process-mining-software/"><u>Award-Winning ABBYY Dominates 2024 Gartner Magic Quadrant for Process Mining Software</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/best-srt-mods-ultimate-upgrades-for-macwindows-for-2024/"><u>Best SRT Mods Ultimate Upgrades for Mac/Windows for 2024</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/boost-your-shipping-efficiency-access-our-essential-downloaded-checklist-now/"><u>Boost Your Shipping Efficiency: Access Our Essential Downloaded Checklist Now!</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/boost-your-traffic-with-cookiebots-advanced-tracking-solutions/"><u>Boost Your Traffic with Cookiebot's Advanced Tracking Solutions</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/convert-your-scanned-documents-and-books-into-editable-text-with-iphone-scanner-app/"><u>Convert Your Scanned Documents & Books Into Editable Text with iPhone Scanner App</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-fueled-solutions-enhancing-user-experience-with-smart-data-tracking/"><u>Cookiebot-Fueled Solutions: Enhancing User Experience with Smart Data Tracking</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-the-essential-ai-driven-tool-enhancing-your-websites-seo/"><u>Cookiebot: The Essential AI-Driven Tool Enhancing Your Website's SEO</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-your-key-to-effective-online-user-tracking-and-personalization/"><u>Cookiebot: Your Key to Effective Online User Tracking and Personalization</u></a></li>
+<li><a href="https://techtrends.techidaily.com/guide-to-correcting-the-critical-kernel-paging-problem/"><u>Guide to Correcting the Critical Kernel Paging Problem</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/hd-rendering-repaired-error-22/"><u>HD Rendering Repaired - Error 22</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-motorola-moto-g84-5g-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>In 2024, How to Cast Motorola Moto G84 5G Screen to PC Using WiFi | Dr.fone</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782288-9781594779183-rumis-four-essential-practices/"><u>Rumi's Four Essential Practices | Free Book</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/ultimate-audio-treasures-for-video-crafting-for-2024/"><u>Ultimate Audio Treasures for Video Crafting for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/unveiling-the-secrets-of-using-telnet-in-a-windows-environment/"><u>Unveiling The Secrets of Using Telnet in a Windows Environment</u></a></li>
 </ul></div>
 

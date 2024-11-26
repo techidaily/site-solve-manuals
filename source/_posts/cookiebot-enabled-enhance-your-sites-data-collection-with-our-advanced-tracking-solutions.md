@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Enabled: Enhance Your Site's Data Collection with Our Advanced Tracking Solutions"
-date: 2024-10-29T20:36:38.470Z
-updated: 2024-10-31T21:39:45.855Z
+date: 2024-11-23T19:56:55.841Z
+updated: 2024-11-26T16:39:12.280Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a848ca5db9b7c808865a38728eb2f3fa3f3cb8b726203e03c39aa2db5f8c0bbd.jpg
@@ -11,11 +11,19 @@ thumbnail: https://thmb.techidaily.com/a848ca5db9b7c808865a38728eb2f3fa3f3cb8b72
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## ABBYY appoints Tomohito Shimizu to lead and grow Japanese business
 
 October 02, 2023
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![Tomohito Shimizu Newsroom 848X444](https://static1.abbyy.com/abbyycommedia/37844/tomohito-shimizu-newsroom-848x444.jpg) 
 
@@ -37,10 +45,7 @@ Before joining ABBYY, Mr. Shimizu spent more than 30 years at RICOH, being respo
 _1 IDC Worldwide Intelligent Process Automation Software Forecast, 2021-2025; July 2021 #US48015622_
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144283/7443" target="_top" id="2144283">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144283" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144283/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### About ABBYY
@@ -50,16 +55,7 @@ ABBYY puts your information to work. We combine innovation and experience to tra
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies and may not be used without consent of its respective owners.
 
 <!-- affiliate ads begin -->
-<span id="1977004">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### ABBYY Editorial Contact
@@ -67,10 +63,7 @@ ABBYY can either be a registered trademark or a trademark and can also be a logo
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557746/17382" target="_top" id="1557746">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557746" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557746/17382" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### Gina Ray
@@ -97,20 +90,18 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-the-complete-manual-to-mobile-igtv-video-acquisition/"><u>[New] 2024 Approved The Complete Manual to Mobile IGTV Video Acquisition</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-guided-steps-to-decrease-audio-intensity-using-lumafusion/"><u>[Updated] Guided Steps to Decrease Audio Intensity Using Lumafusion</u></a></li>
-<li><a href="https://some-tips.techidaily.com/updated-the-essential-funimate-guidebook/"><u>[Updated] The Essential Funimate Guidebook</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/8-best-online-free-voice-recorder/"><u>8 Best Online Free Voice Recorder</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/comparaison-detaillee-des-quatre-techniques-de-mise-a-jour-le-bilan/"><u>Comparaison Détaillée Des Quatre Techniques De Mise À Jour : Le Bilan</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/guide-how-to-successfully-revert-or-disable-a-windows-press-update/"><u>Guide: How To Successfully Revert or Disable a Windows Press Update</u></a></li>
-<li><a href="https://network-issues.techidaily.com/how-to-activate-and-install-an-external-wireless-adapter-on-pcs/"><u>How To Activate & Install an External Wireless Adapter on PCs</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-call-history-on-reno-11f-5g-by-fonelab-android-recover-call-logs/"><u>How to restore wiped call history on Reno 11F 5G?</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-4-ways-to-transfer-music-from-oppo-k11-5g-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 4 Ways to Transfer Music from Oppo K11 5G to iPhone | Dr.fone</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/klonen-von-abteilungen-im-unternehmenskontext-ist-es-notwendig-informative-antworten-auf-ihre-fragen/"><u>Klonen Von Abteilungen Im Unternehmenskontext – Ist Es Notwendig? Informative Antworten Auf Ihre Fragen.</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/mantap-dan-rinci-tutorial-penumpuhan-gadget-usb-di-atas-layar-dengan-cmd/"><u>Mantap Dan Rinci Tutorial Penumpuhan Gadget USB Di Atas Layar Dengan CMD</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/optimierung-ihrer-ssd-durch-zwei-bewahrte-verfahren-sicher-verbessern/"><u>Optimierung Ihrer SSD Durch Zwei Bewährte Verfahren Sicher Verbessern</u></a></li>
-<li><a href="https://howto.techidaily.com/stuck-at-android-system-recovery-of-xiaomi-redmi-note-13-pro-5g-fix-it-easily-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Stuck at Android System Recovery Of Xiaomi Redmi Note 13 Pro 5G ? Fix It Easily | Dr.fone</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/troubleshoot-your-windows-top-5-solutions-for-non-functional-support/"><u>Troubleshoot Your Windows 移行アシスタント: Top 5 Solutions for Non-Functional Support</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/1728486725123-windows-102/"><u>Windows 10への自動バックアップ:最も効果的な手法2選び</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-overcoming-fixed-color-voids-in-recording-software/"><u>[New] In 2024, Overcoming Fixed Color Voids in Recording Software</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-restore-shadows-in-iphone-hdr-footage-using-premiere-pro-techniques/"><u>2024 Approved Restore Shadows in iPhone HDR Footage Using Premiere Pro Techniques</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/a-quick-guide-to-firefoxs-innovative-pip-mode-for-2024/"><u>A Quick Guide to Firefox's Innovative PIP Mode for 2024</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/comment-abbyy-renforce-sa-plateforme-timeline-avec-des-fonctionnalites-supplementaires-pour-aider-les-entreprises-a-atteindre-leurs-cibles-operationnelles.m6/"><u>Comment ABBYY Renforce Sa Plateforme Timeline Avec Des Fonctionnalités Supplémentaires Pour Aider Les Entreprises À Atteindre Leurs Cibles Opérationnelles</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-personalization-boosting-your-sites-seo-performance/"><u>Cookiebot-Driven Personalization: Boosting Your Site's SEO Performance</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-site-enhanced-user-experience-and-advanced-tracking/"><u>Cookiebot-Enabled Site: Enhanced User Experience and Advanced Tracking</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-enabled-optimize-your-site-with-smart-tracking-technology/"><u>Cookiebot-Enabled: Optimize Your Site with Smart Tracking Technology</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/effective-onboarding-strategies-harmonizing-client-trust-and-anti-fraud-measures/"><u>Effective Onboarding Strategies: Harmonizing Client Trust and Anti-Fraud Measures</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/elevate-video-decks-smart-description-templates-for-2024/"><u>Elevate Video Decks Smart Description Templates for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/illuminating-interactions-mastering-animate-texts-in-stories-for-2024/"><u>Illuminating Interactions Mastering Animate Texts in Stories for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/kids-car-clubbing-capers/"><u>Kids' Car Clubbing Capers</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/resolved-overcoming-the-application-failed-to-launch-error-code-0xc000007b/"><u>Resolved: Overcoming the 'Application Failed to Launch' Error Code 0xC000007B</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-solitary-path-to-podcast-popularity-for-2024/"><u>The Solitary Path to Podcast Popularity for 2024</u></a></li>
 </ul></div>
 

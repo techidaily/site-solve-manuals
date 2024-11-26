@@ -1,7 +1,7 @@
 ---
 title: "スクリーンショットからPDFへ: FineReader PDFというアプリはiPhone・Androidデバイスでどのように文章をスキャンしますか?"
-date: 2024-10-30T21:14:57.602Z
-updated: 2024-11-01T00:48:48.292Z
+date: 2024-11-19T17:46:12.281Z
+updated: 2024-11-26T17:40:36.497Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b2bf4cd4c4150768a4991186ca82f84c6e82b391b455745b734da2cba3671e13.jpg
@@ -11,12 +11,20 @@ thumbnail: https://thmb.techidaily.com/b2bf4cd4c4150768a4991186ca82f84c6e82b391b
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 文書スキャンはスマホで、スキャン後の編集はPCで！  
 ～テレワーク時のスキャン作業効率化～
 
 5月5日, 2021
 
 ![](https://static4.abbyy.com/abbyycommedia/32738/microsoftteams-image-20.png) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ABBYYのスキャンアプリに新しい名前とアイコンが追加された理由を知りたいですか？ 我々ABBYYは、今回素晴らしいニュースをお伝えします。ABBYYFineScannerはモバイル用のABBYYFineReader PDF for Mobileとして、名前が変更され、対応するデスクトップ製品と統合されました！ なぜ、大きく名前が変わるのですか、そしてあなたにとって何ができるようになりますか？ 早速、本題に入りましょう。
 
@@ -37,9 +45,18 @@ iOS ユーザ向け説明
 * **クラウドストレージ** を選択し、**Google Drive (FineReader)**をタップして下さい。  
 ![Mobile 1](https://static1.abbyy.com/abbyycommedia/32746/mobile1.png)
 * Google アカウントへサインインして下さい。
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * **自動アップロード先：**をタップして**Google Drive (FineReader)**を選択下さい。
 * 望んでいる出力ファイルのフォーマット、サイズが選択されているか確認下さい。  
 ![Mobile 2](https://static1.abbyy.com/abbyycommedia/32745/mobile2.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 以上により、新たにスキャンを行うと、自動的にGoogle Drive へアップロードされ、ABBYY [FineReader PDF for Windows](https://tools.techidaily.com/abbyy/products/)と連携されます。
 
@@ -78,6 +95,10 @@ ABBYY FineReader PDF 15を立ち上げ、**新しいタスクのモバイルア�
 
 ![finereader pdf](https://static1.abbyy.com/abbyycommedia/32904/finereader-screenshot-jp.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Google ドライブの中の **FineReader** フォルダを選択下さい。(これは最初の一度だけ設定する必要があります。)
 
 ![PC 2](https://static1.abbyy.com/abbyycommedia/32741/pc2.png)
@@ -103,13 +124,6 @@ PDF ファイルはPDFエディタで開かれます。そしてレビューし�
 [](https://youtu.be/oo00Gxcptyw) 
 
 [モバイル](https://tools.techidaily.com/abbyy/products/) 
-
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### いいね！、シェア、再投稿
 
@@ -181,6 +195,10 @@ iOS ユーザ向け説明
 ![Mobile 1](https://static1.abbyy.com/abbyycommedia/32746/mobile1.png)
 * Google アカウントへサインインして下さい。
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * **自動アップロード先：**をタップして**Google Drive (FineReader)**を選択下さい。
 * 望んでいる出力ファイルのフォーマット、サイズが選択されているか確認下さい。  
 ![Mobile 2](https://static1.abbyy.com/abbyycommedia/32745/mobile2.png)
@@ -205,6 +223,10 @@ Android ユーザ向け説明
 * 望んでいる出力ファイルのフォーマット、サイズが選択されているか確認下さい。  
 ![Mobile 4](https://static1.abbyy.com/abbyycommedia/32743/mobile4.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 以上により、新たにスキャンを行うと、自動的にGoogle Drive へアップロードされ、ABBYY [FineReader PDF for Windows](https://tools.techidaily.com/abbyy/products/)と連携されます。
 
 Google Drive (FineReader)への自動アップロードを設定する代わりにスキャンデータを手動でアップロードすることも可能です。そのための操作は、以下となります。
@@ -223,13 +245,6 @@ ABBYY FineReader PDF 15を立ち上げ、**新しいタスクのモバイルア�
 
 ![finereader pdf](https://static1.abbyy.com/abbyycommedia/32904/finereader-screenshot-jp.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Google ドライブの中の **FineReader** フォルダを選択下さい。(これは最初の一度だけ設定する必要があります。)
 
 ![PC 2](https://static1.abbyy.com/abbyycommedia/32741/pc2.png)
@@ -239,13 +254,6 @@ Google ドライブの中に “**FineReader**” を見つけられない場合
 FineReader PDF 15 は **FineReader**フォルダへのパスを保存し、次回からはモバイルアプリケーションのタブをクリックした際に、そのフォルダを開きます。
 
 ![ABBYY FineReader PDF for Mobile](https://static1.abbyy.com/abbyycommedia/32903/finereader-screenshot-2-jp.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 FineReader PDF for Mobile アプリでスキャン作成したファイルで作業を続けるには、そのファイルをクリックして下さい。
 
@@ -262,13 +270,6 @@ PDF ファイルはPDFエディタで開かれます。そしてレビューし�
 [](https://youtu.be/oo00Gxcptyw) 
 
 [モバイル](https://tools.techidaily.com/abbyy/products/) 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### いいね！、シェア、再投稿
 
@@ -289,22 +290,15 @@ PDF ファイルはPDFエディタで開かれます。そしてレビューし�
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-mastering-youtubes-vista-an-in-depth-tutorial-on-video-submissions/"><u>[Updated] 2024 Approved Mastering YouTube's Vista An In-Depth Tutorial on Video Submissions</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-effortless-single-frame-analysis-in-youtube-videos-5-ways-for-2024/"><u>[Updated] Effortless Single-Frame Analysis in YouTube Videos [5 Ways] for 2024</u></a></li>
-<li><a href="https://android-location.techidaily.com/10-free-location-spoofers-to-fake-gps-location-on-your-infinix-note-30-vip-drfone-by-drfone-virtual/"><u>10 Free Location Spoofers to Fake GPS Location on your Infinix Note 30 VIP | Dr.fone</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-mastering-youtube-profits-ajeys-guidebook/"><u>2024 Approved Mastering YouTube Profits Ajey's Guidebook</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/bilder-auf-ihrem-iphone-oder-ipad-speichern-tipps-fur-die-ubertragung-von-sony-kameraaufnahmen/"><u>Bilder Auf Ihrem iPhone Oder iPad Speichern - Tipps Für Die Übertragung Von Sony-Kameraaufnahmen</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/comprehensive-strategies-for-retrieving-files-from-unavailable-hard-disk-drives/"><u>Comprehensive Strategies for Retrieving Files From Unavailable Hard Disk Drives</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/dilemas-de-respaldo-digital-historia-de-archivos-o-copia-de-seguridad-en-windows-cual-es-la-mejor-opcion/"><u>Dilemas De Respaldo Digital: Historia De Archivos O Copia De Seguridad en Windows, Cuál Es La Mejor Opción?</u></a></li>
-<li><a href="https://fox-links.techidaily.com/experts-selection-of-iphone-recording-aids/"><u>Expert's Selection of iPhone Recording Aids</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/guia-paso-a-paso-para-rescatar-archivos-del-hdd-externo-de-toshiba/"><u>Guía Paso a Paso Para Rescatar Archivos Del HDD Externo De Toshiba</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/guide-detaille-clonage-de-partition-pour-windows-nativite1-avec-le-logiciel-daomei-gratuit/"><u>Guide Détaillé : Clonage De Partition Pour Windows Nativité1 Avec Le Logiciel D'AOMEI Gratuit</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-bypass-android-lock-screen-using-emergency-call-on-oneplus-nord-ce-3-5g-by-drfone-android/"><u>How to Bypass Android Lock Screen Using Emergency Call On OnePlus Nord CE 3 5G?</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-stop-my-spouse-from-spying-on-my-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>How to Stop My Spouse from Spying on My Apple iPhone 6 Plus | Dr.fone</u></a></li>
-<li><a href="https://win-trending.techidaily.com/1726030188232-mp4dvd/"><u>MP4形式へのレンタルDVD変換専用無料アプリをご紹介</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/sync-beats-to-goes-a-comprehensive-guide-on-transferring-tunes-from-pc-to-sd-card/"><u>Sync Beats to Goes: A Comprehensive Guide on Transferring Tunes From PC to SD Card</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/unveiling-secrets-sharing-restricted-youtube-content-via-email-for-2024/"><u>Unveiling Secrets Sharing Restricted YouTube Content via Email for 2024</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/vervullen-van-uw-verloren-gegevens-ongemakloos-herstel-van-bestanden-van-een-sd-plaat/"><u>Vervullen Van Uw Verloren Gegevens: Ongemakloos Herstel Van Bestanden Van Een SD-Plaat</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/1728504048876-windows-pc/"><u>Windows PC でパスワードを利用したバックアップの暗号化手順</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-streaming-sound-excellence-5-top-headsets/"><u>[Updated] 2024 Approved Streaming Sound Excellence 5 Top Headsets</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/2024s-definitive-solution-for-getting-your-rec-room-mic-up-and-running-on-windows-what-you-need-to-know/"><u>2024'S Definitive Solution for Getting Your Rec Room Mic Up and Running on Windows – What You Need To Know</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-zmi-powerpack-20000-assessment-your-ultimate-mobile-energy-solution/"><u>Comprehensive ZMI PowerPack 20,000 Assessment: Your Ultimate Mobile Energy Solution</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/decoding-shrouded-comments-in-video-platforms/"><u>Decoding Shrouded Comments in Video Platforms</u></a></li>
+<li><a href="https://os-tips.techidaily.com/effective-methods-to-restore-or-update-passwords-on-a-windows-(span-stylefont-size16pxcolor03a5f9)7-desktop-system(span)/"><u>Effective Methods to Restore or Update Passwords on a Windows <Span Style=font-Size:16px;color:#03A5F9;>7 Desktop System</Span></u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/how-the-newly-released-multi-camera-drone-is-changing-the-game-a-detailed-analysis-by-zdnet/"><u>How the Newly Released Multi-Camera Drone Is Changing the Game – A Detailed Analysis by ZDNet</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/introducing-the-latest-milestone-abbyy-opens-a-state-of-the-art-innovation-center-for-smart-automation-in-serbia/"><u>Introducing the Latest Milestone: ABBYY Opens a State-of-the-Art Innovation Center for Smart Automation in Serbia</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/leveraging-cookiebot-technology-for-enhanced-user-engagement-and-growth/"><u>Leveraging Cookiebot Technology for Enhanced User Engagement and Growth</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/leveraging-cookiebot-technology-for-improved-website-personalization-and-retargeting/"><u>Leveraging Cookiebot Technology for Improved Website Personalization and Retargeting</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/neil-murphy-lead-revenue-strategist-at-abbyy/"><u>Neil Murphy: Lead Revenue Strategist at ABBYY</u></a></li>
 </ul></div>
 

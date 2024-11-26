@@ -1,7 +1,7 @@
 ---
 title: Korrekt Installieren Von Windows Amochen Mit Einem USB-Stick Oder Neuem HDD - Anleitung Zum Übertragen Des Systems
-date: 2024-11-12T17:09:18.979Z
-updated: 2024-11-16T16:03:12.877Z
+date: 2024-11-23T16:25:41.205Z
+updated: 2024-11-26T18:00:06.109Z
 categories:
   - AOMEI-Backuper
 thumbnail: https://thmb.techidaily.com/69447678dc133f5b018ef497ad72f57eb0cb6c7d822e25e4c7a002557a9f1942.jpg
@@ -23,6 +23,10 @@ thumbnail: https://thmb.techidaily.com/69447678dc133f5b018ef497ad72f57eb0cb6c7d8
 Want to create an image, restore image, or clone hard drive via Norton Ghost? This guide will tell you how to use Norton Ghost step by step. It also provides you with an easy alternative.
 
 ![Lena](https://www.ubackup.com/assets/images/author/Lena.png) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 By[Lena](https://tools.techidaily.com/ubackup/products/)Updated on June 5, 2024
 
@@ -68,6 +72,10 @@ Here in this guide, you will get the detailed steps about how to use Symantec Gh
 
 [![Create Backup](https://www.ubackup.com/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/others/norton-ghost/create-backup.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 3\. The **Easy Setup** screen will appear.
 
 * You can click **OK** to accept the default settings or click a setting to modify it.
@@ -78,10 +86,7 @@ Here in this guide, you will get the detailed steps about how to use Symantec Gh
 4\. Finally, click **OK** to confirm.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Restore Image with Norton Ghost
@@ -95,19 +100,6 @@ Click **Recover My Files** if you want to recover files or folder, or **Recover 
 2\. Whichever you choose, you can type the file name you need in the box under **Find files to recover** and click **Search** to find it.
 
 [![Recover My Files](https://www.ubackup.com/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/others/norton-ghost/find-files-to-recover.png)
-
-<!-- affiliate ads begin -->
-<span id="1975648">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 3\. After the scanning, select the file you need and click **Recover Files...**
 
@@ -148,13 +140,6 @@ Download it to have a try! If you are using a server system, such as, server 200
 
 Secure Download
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Create Image Backup
 
 Take disk backup as an example. Follow the step below to backup your computer disk.
@@ -174,16 +159,17 @@ Select the corresponding backup methods if you want to backup system, partition 
 [![Select Backup Destination](https://www.ubackup.com/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/std/backup/disk-backup/select-backup-destination.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 👉 **Notes:**
 
 * In case your computer cannot start normally, you can **[create a bootable media](https://tools.techidaily.com/ubackup/products/)** using CD/DVD or USB flash drive in advance to help boot your computer. When your computer goes wrong, you can boot the computer using the bootable media and perform a system restore to get everything back to normal.
 * If you want to [upgrade Windows 10 to Windows 11](https://tools.techidaily.com/ubackup/products/) without losing files, this software is very useful. It backs up everything you want, either in the system partition or entire disk, and you can use it to restore files or system as needed.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Restore Disk & Files
 
@@ -198,23 +184,28 @@ If you have created a backup with AOMEI Backupper, you can easily perform a rest
 
 [![Disk Image Explore Home](https://www.ubackup.com/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/adv/tools/explore-image/home-explore-image-disk.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Clone Hard Drive
 
 You can directly clone hard drive to another one with the **[Disk Clone](https://tools.techidaily.com/ubackup/products/)** feature. If you are cloning HDD to SSD, you can make use of the "**SSD Alignment**" feature to improve the read/write speed of the destination SSD.
 
 [![Clone](https://www.ubackup.com/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/std/main-interface/clone.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896541/19272" target="_top" id="1896541">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896541" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896541/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 👉 **Notes:** 
 
 * The free version of AOMEI Backupper only supports cloning a data disk. To clone a disk with OS installed, you can [upgrade](https://tools.techidaily.com/ubackup/products/) to higher versions to enjoy it.
 * The [System Clone](https://tools.techidaily.com/ubackup/products/) feature can help you only clone system to new hard drive, which uses less disk space than disk clone. Also, it requires a higher version.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -225,10 +216,7 @@ For backup and restore features, you have 4 corresponding options plus two premi
 For the clone feature, you have two free options plus System Clone. So you can copy boot drive to another one successfully, even to smaller drive. And it is able to accelerate the reading and writing speed of the target disk if it is an SSD. 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## FAQs about Norton Ghost
@@ -281,13 +269,6 @@ Was the provided information useful? Your vote is important to us!
 
 [Yes](https://tools.techidaily.com/ubackup/products/)[No](https://tools.techidaily.com/ubackup/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Free Get AOMEI Backupper Now
 
 Safeguard any data of your computer with backup, sync and clone.
@@ -296,14 +277,11 @@ Safeguard any data of your computer with backup, sync and clone.
 
 ![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-secure-16.svg) 100% Clean & Secure
 
-![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-medium-img-pc@2x.png)
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-medium-img-pc@2x.png)
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -320,21 +298,14 @@ Safeguard any data of your computer with backup, sync and clone.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-achieving-effortless-seams-in-inshot-videos/"><u>[New] 2024 Approved Achieving Effortless Seams in Inshot Videos</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/new-camera-recommendations-for-starters-in-the-year-2024/"><u>[New] Camera Recommendations for Starters in the Year 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-the-editors-lifeline-essential-responses-to-filmora-queries/"><u>[New] The Editor's Lifeline Essential Responses to Filmora Queries</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/ai-ocr-abbyy/"><u>「テガキを駆使したAI OCR: 手書き文字認識におけるコゲントラボ対フレックスキャプチャーの完璧な合体」 - ABBYYブログ</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/abbyy-steigert-effizienz-von-munchens-bauakten-durch-digitalisierung/"><u>ABBYY Steigert Effizienz Von Münchens Bauakten Durch Digitalisierung</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/advanced-analytics-and-personalization-enabled-by-cookiebot-inspired-technology/"><u>Advanced Analytics and Personalization Enabled by Cookiebot-Inspired Technology</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/automated-traffic-management-with-the-advanced-capabilities-of-cookiebot/"><u>Automated Traffic Management with the Advanced Capabilities of Cookiebot</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/automation-insights-robotics-employment-and-advanced-text-analysis-on-the-abbeyb-log/"><u>Automation Insights - Robotics, Employment & Advanced Text Analysis on the ABBEYB Log</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/boosting-site-engagement-with-advanced-cookiebot-tracking-solutions/"><u>Boosting Site Engagement with Advanced Cookiebot Tracking Solutions</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/comparing-rpa-and-ipa-understanding-their-distinctive-features/"><u>Comparing RPA and IPA: Understanding Their Distinctive Features</u></a></li>
-<li><a href="https://win-online.techidaily.com/conversion-gratuita-de-audio-transforma-archivos-mp3-en-formatos-premium-flac-usando-movavi/"><u>Conversión Gratuita De Audio: Transforma Archivos Mp3 en Formatos Premium Flac Usando Movavi</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/gratuit-verbale-conversie-van-dpx-naar-jpg-ondersteuning-online-met-movavi/"><u>Gratuit Verbale Conversie Van DPX Naar JPG: Ondersteuning Online Met Movavi</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-change-vivo-y78t-lock-screen-clock-in-seconds-by-drfone-android/"><u>How To Change Vivo Y78t Lock Screen Clock in Seconds</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-videos-from-vivo-y36-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Videos from Vivo Y36 to iPad | Dr.fone</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/how-to-use-handbrake-for-free-dvd-to-mp4-conversions-step-by-step-tutorial/"><u>How to Use Handbrake for Free DVD-to-MP4 Conversions - Step by Step Tutorial</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-nokia-105-classic-drfone-by-drfone-virtual-android/"><u>What Pokémon Evolve with A Dawn Stone For Nokia 105 Classic? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-basic-building-blocks-simplest-mc-dwellings-for-novices/"><u>[Updated] Basic Building Blocks Simplest MC Dwellings for Novices</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-essential-online-locations-alarm-ringtones-collection-for-2024/"><u>[Updated] Essential Online Locations Alarm Ringtones Collection for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-professionals-secret-utilizing-windows-movie-maker-expertly-in-windows-8-systems/"><u>[Updated] The Professional's Secret Utilizing Windows Movie Maker Expertly in Windows 8 Systems</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1-no-cost-online-conversion-transforming-ts-files-into-avi-with-moveavi/"><u>1. No Cost Online Conversion: Transforming TS Files Into AVI with Moveavi</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/conversione-veloce-di-file-video-flv-e-mp4-in-formato-swf-gratuito-utilizzo-online-di-movavi/"><u>Conversione Veloce Di File Video FLV E MP4 in Formato SWF Gratuito - Utilizzo Online Di Movavi</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/free-mp4-recovery-guide-restore-damaged-videos-fast-on-your-computer-or-laptop/"><u>Free MP4 Recovery Guide: Restore Damaged Videos Fast on Your Computer or Laptop</u></a></li>
+<li><a href="https://win-able.techidaily.com/step-by-step-solutions-for-smoother-gaming-experience-on-naraka-platform/"><u>Step-by-Step Solutions for Smoother Gaming Experience on Naraka Platform</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/w64wav/"><u>W64ファイルを対象にしたコストなしウェブ上の波形(WAV)変換 - ムーバビ</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/wmawavmovavi/"><u>オンラインでも簡単！無料WMAからWAVへの高品質変換：Movaviプレミアム</u></a></li>
 </ul></div>
 

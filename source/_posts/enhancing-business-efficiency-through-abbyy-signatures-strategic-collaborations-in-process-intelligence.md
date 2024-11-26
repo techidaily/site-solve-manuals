@@ -1,7 +1,7 @@
 ---
 title: Enhancing Business Efficiency Through ABBYY Signature's Strategic Collaborations in Process Intelligence
-date: 2024-10-28T23:22:59.569Z
-updated: 2024-11-01T05:21:03.545Z
+date: 2024-11-22T16:17:39.867Z
+updated: 2024-11-26T20:05:32.269Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3940086541c823408b7e3893cd4adcfe04714cf8a1d0ceb2c3d06364d867bc68.png
@@ -11,11 +11,19 @@ thumbnail: https://thmb.techidaily.com/3940086541c823408b7e3893cd4adcfe04714cf8a
 
 [Actualités](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Process Intelligence : ABBYY signe une série de partenariats stratégiques
 
 24 septembre 2020
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### _Un an après [l’acquisition de TimelineP](https://tools.techidaily.com/abbyy/products/)I, ABBYY annonce la signature d’une vague de partenariats portée par l’appétence des entreprises pour l’innovation et la transformation digitale._
 
@@ -69,22 +77,16 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-the-roadmap-to-engaging-youtube-trailers-through-filmora/"><u>[New] 2024 Approved The Roadmap to Engaging YouTube Trailers Through Filmora</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-the-road-to-impressive-3d-text-artistry-in-photoshop/"><u>[Updated] The Road to Impressive 3D Text Artistry in Photoshop</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-unlocking-language-top-8-free-and-accurate-srt-translators/"><u>[Updated] Unlocking Language Top 8 Free & Accurate SRT Translators</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/aomei-backupper-quick-screenshot-capture-tool/"><u>AOMEI Backupper - Quick Screenshot Capture Tool</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/comparing-360-degree-captures-and-full-immersion-media-for-2024/"><u>Comparing 360-Degree Captures and Full Immersion Media for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/free-online-conversion-change-dts-files-into-aac-format-with-movavi/"><u>Free Online Conversion: Change DTS Files Into AAC Format with Movavi</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/how-to-delete-previous-archived-records-in-windows-11-for-optimized-performance/"><u>How to Delete Previous Archived Records in Windows 11 for Optimized Performance</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/quick-solutions-for-resolving-photoshops-file-opening-difficulties/"><u>Quick Solutions for Resolving Photoshop's File Opening Difficulties</u></a></li>
-<li><a href="https://techidaily.com/repair-corrupt-pdf-v10-file-using-pdf-repair-tool-by-stellar-guide/"><u>Repair Corrupt PDF v1.0 File using PDF Repair Tool</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/solution-de-la-panne-dimage-system-restore-erreur-0x80042309-sous-windows-7-8-et-10/"><u>Solution De La Panne D'Image System Restore - Erreur 0X80042309 Sous Windows 7, 8 Et 10</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-best-bits-of-bulb-tech-top-17-choices/"><u>[New] 2024 Approved Best Bits of Bulb Tech - Top 17 Choices</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/boosting-performance-top-tips-for-gamers-using-windows-11/"><u>Boosting Performance: Top Tips for Gamers Using Windows 11</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/exploring-the-efficiency-of-cookiebot-in-digital-marketing-strategies/"><u>Exploring the Efficiency of Cookiebot in Digital Marketing Strategies</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/future-proof-your-finance-institution-essential-digital-tactics-and-strategies-featuring-abbyy-industry-experts/"><u>Future-Proof Your Finance Institution: Essential Digital Tactics & Strategies, Featuring ABBYY Industry Experts</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/guide-to-repair-libxml2dll-is-missing-problems-in-windows-systems/"><u>Guide to Repair 'libxml2.dll Is Missing' Problems in Windows Systems</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-bypass-android-lock-screen-using-emergency-call-on-oppo-a78-by-drfone-android/"><u>How to Bypass Android Lock Screen Using Emergency Call On Oppo A78?</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/idpidp-revolutionary-victories-in-investment-decision-processes/"><u>IDP革命帷幄，IDP斐然！ - Revolutionary Victories in Investment Decision Processes!</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/innovative-synergy-strengthening-the-purposeful-ai-collaboration-between-abbyy-and-novelis/"><u>Innovative Synergy: Strengthening the Purposeful AI Collaboration Between ABBYY & Novelis</u></a></li>
+<li><a href="https://win-lab.techidaily.com/reviving-the-autoplay-feature-top-9-solutions-for-windows-11-users/"><u>Reviving the Autoplay Feature: Top 9 Solutions for Windows 11 Users</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/tackling-latency-issues-for-smooth-video-conferencing-on-xbox-one/"><u>Tackling Latency Issues for Smooth Video Conferencing on Xbox One</u></a></li>
+<li><a href="https://article-posts.techidaily.com/the-complete-periscope-users-handbook/"><u>The Complete Periscope User's Handbook</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094414/7443" target="_top" id="2094414">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094414" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094414/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

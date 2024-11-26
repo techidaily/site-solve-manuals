@@ -1,7 +1,7 @@
 ---
 title: How to Delete Previous Archived Records in Windows 11 for Optimized Performance
-date: 2024-11-13T16:58:52.656Z
-updated: 2024-11-16T22:06:15.851Z
+date: 2024-11-23T17:28:51.891Z
+updated: 2024-11-26T20:30:53.074Z
 categories:
   - AOMEI-Backuper
 thumbnail: https://thmb.techidaily.com/589975317cd54578e2464cf37ff9c3436a24bffda2b797c9a9ae1ed0b5abaff9.jpg
@@ -44,10 +44,7 @@ Condividi questo: ![facebook](https://www.ubackup.com/resource/images/ab-theme/u
 7. [Conclusione](https://tools.techidaily.com/ubackup/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
-  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Introduzione
@@ -55,6 +52,10 @@ Condividi questo: ![facebook](https://www.ubackup.com/resource/images/ab-theme/u
 Incontrare il problema di non poter digitare nella barra di ricerca di Windows 10 può essere frustrante, interrompendo il flusso di lavoro e ostacolando la navigazione efficiente. In questa guida completa, esamineremo i dettagli di questo problema, esploreremo le possibili cause e forniremo una varietà di soluzioni per garantire che tu possa digitare senza problemi nella barra di ricerca di Windows 10.
 
 [![non riesco a digitare nella barra di ricerca di windows 10](https://www.ubackup.com/it/articoli/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/it/others/log/can-t-type-in-search-bar-windows-10.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Capire il Problema di Non Poter Digitare nella Barra di Ricerca su Windows 10
 
@@ -75,6 +76,10 @@ Alcune applicazioni di terze parti o conflitti software potrebbero interferire c
 ## Soluzioni: Ripristinare la Funzionalità della Barra di Ricerca di Windows 10
 
 Ora, esploriamo cinque soluzioni per affrontare il problema di non poter digitare nulla nella casella di ricerca su Windows 10, garantendo un'esperienza utente fluida.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Soluzione 1: Riavvio dei Servizi Cortana e Ricerca di Windows
 
@@ -144,6 +149,10 @@ Passo 3\. Installa gli Aggiornamenti:
 
 Se sono disponibili degli aggiornamenti, installali e riavvia il computer per verificare se l'errore di non poter digitare nella barra di ricerca di Windows 10 è stato risolto.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Soluzione 5: Crea un Nuovo Account Utente
 
 Passo 1\. Apri Impostazioni:
@@ -170,13 +179,6 @@ Passo 6\. Testa la Barra di Ricerca:
 
 Nel nuovo account utente, testa la funzionalità della barra di ricerca. Se funziona, suggerisce che il problema potrebbe essere specifico del tuo account utente originale.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Utilizza AOMEI Backupper per la Protezione del Sistema su Windows 10
 
 Assicurarsi la protezione dei dati è cruciale durante la risoluzione dei problemi. Considera l'utilizzo di AOMEI Backupper per creare un backup del sistema di Windows 10.
@@ -196,13 +198,6 @@ Scegli una destinazione per il backup e personalizza le impostazioni se necessar
 Passo 4\. Avvia il Backup:
 
 Clicca su "Avvia Backup" per creare un backup completo del tuo sistema Windows 10.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972665/19272" target="_top" id="1972665">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972665" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972665/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Domande Frequenti su Impossibilità di Digitare nella Barra di Ricerca su Windows 10
 
@@ -239,10 +234,7 @@ Le informazioni fornite sono state utili? Il tuo voto è importante per noi!
 ![Aira](https://www.ubackup.com/assets/images/author/aira.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 [Aira](https://tools.techidaily.com/ubackup/products/) · Editore
@@ -255,13 +247,6 @@ Le informazioni fornite sono state utili? Il tuo voto è importante per noi!
 
 [Sì](https://tools.techidaily.com/ubackup/products/)[No](https://tools.techidaily.com/ubackup/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Scarica Gratis AOMEI Backupper Ora
 
 Proteggi tutti i dati del tuo computer con backup, sincronizzazione e clonazione.
@@ -270,13 +255,14 @@ Proteggi tutti i dati del tuo computer con backup, sincronizzazione e clonazione
 
 ![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-secure-16.svg) 100% Pulito e Sicuro
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-medium-img-pc@2x.png)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
@@ -294,19 +280,24 @@ Proteggi tutti i dati del tuo computer con backup, sincronizzazione e clonazione
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-files.techidaily.com/new-proven-steps-to-create-high-impact-facebook-video-ads-for-2024/"><u>[New] Proven Steps to Create High-Impact Facebook Video Ads for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-navigate-to-sites-where-you-can-procure-sponsorships-on-youtube-for-2024/"><u>[Updated] Navigate to Sites Where You Can Procure Sponsorships on Youtube for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-art-of-gaining-traction-using-hashtags-in-igtv-for-2024/"><u>[Updated] The Art of Gaining Traction Using Hashtags in IGTV for 2024</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/2024-approved-enhancing-digital-presence-with-vimeo-sharing/"><u>2024 Approved Enhancing Digital Presence with Vimeo Sharing</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/comment-transformer-avec-elegance-votre-video-hevc-en-un-fichier-mp4-clair-sans-deterioration-visuelle/"><u>Comment Transformer Avec Élégance Votre Vidéo HEVC en Un Fichier MP4 Clair Sans Détérioration Visuelle</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/gratis-progrma-de-backup-para-windows-10-8-e-7-eficiente-solucao-de-sincronizacao-de-arquivos/"><u>Grátis: Progrma De Backup Para Windows 10, 8 E 7 - Eficiente Solução De Sincronização De Arquivos</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-easy-guide-how-to-bypass-nokia-frp-android-10111213-by-drfone-android/"><u>In 2024, Easy Guide How To Bypass Nokia FRP Android 10/11/12/13</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondlys-new-help-section-a-leap-forward-in-customer-service/"><u>Mondly's New Help Section: A Leap Forward in Customer Service</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/professional-gopro-filming-made-simple-a-comprehensive-guide-for-2024/"><u>Professional GoPro Filming Made Simple A Comprehensive Guide for 2024</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/simple-steps-for-restoring-accidentally-erased-photos-from-your-computer/"><u>Simple Steps for Restoring Accidentally Erased Photos From Your Computer</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/tres-faciles-tacticas-para-resguardar-su-windows-server-20199s-implementacion-de-un-copia-de-seguridad-en-una-nas/"><u>Tres Fáciles Tácticas Para Resguardar Su Windows Server 201ˈ#99;s: Implementación De Un Copia De Seguridad en Una NAS</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/uncovering-vanished-tweets-and-images-on-twitter-a-comprehensive-guide/"><u>Uncovering Vanished Tweets & Images on Twitter: A Comprehensive Guide</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/wie-behandeln-sie-ein-problem-mit-einer-nicht-erkannten-hitachi-festplatte-in-ihrem-system/"><u>Wie Behandeln Sie Ein Problem Mit Einer Nicht Erkannten Hitachi-Festplatte in Ihrem System?</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/1728466325104-win11/"><u>Win11錯亂恢復教程：最有效的策略</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-leverage-loops-for-stirring-instagram-engagement-and-likes-for-2024/"><u>[New] Leverage Loops for Stirring Instagram Engagement & Likes for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-ultimate-laptop-recording-mastering-screenrec-for-2024/"><u>[New] Ultimate Laptop Recording Mastering ScreenRec for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-uncovering-your-personalized-playlist-hideaway/"><u>[New] Uncovering Your Personalized Playlist Hideaway</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-compose-chuckling-content-for-giphy-audience/"><u>[Updated] In 2024, Compose Chuckling Content for Giphy Audience</u></a></li>
+<li><a href="https://os-tips.techidaily.com/discover-the-ideal-podcasting-tools-for-your-apple-tablet-and-phone-experience/"><u>Discover the Ideal Podcasting Tools for Your Apple Tablet & Phone Experience</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/expanding-capabilities-with-cloud-based-ocr-sdks-insights-from-the-abbyy-experts/"><u>Expanding Capabilities with Cloud-Based OCR SDKs – Insights From the ABBYY Experts</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138544996-9781401925055-fractal-time/"><u>Fractal Time | Free Book</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/harness-the-power-of-cookiebot-revolutionize-seo-and-skyrocket-online-engagement/"><u>Harness the Power of Cookiebot: Revolutionize SEO and Skyrocket Online Engagement</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/harnessing-cutting-edge-ocr-technology-for-effective-learning-explore-with-abbyy-experts-on-our-blog/"><u>Harnessing Cutting-Edge OCR Technology for Effective Learning | Explore with ABBYY Experts on Our Blog</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-reset-a-oppo-reno-10-5g-phone-that-is-locked-by-drfone-android/"><u>In 2024, How to Reset a Oppo Reno 10 5G Phone that is Locked?</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/introducing-the-latest-milestone-abbyy-opens-a-state-of-the-art-innovation-center-for-smart-automation-in-serbia/"><u>Introducing the Latest Milestone: ABBYY Opens a State-of-the-Art Innovation Center for Smart Automation in Serbia</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/leveraging-cookiebot-technology-for-enhanced-user-engagement-and-growth/"><u>Leveraging Cookiebot Technology for Enhanced User Engagement and Growth</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/leveraging-cookiebot-technology-for-improved-website-personalization-and-retargeting/"><u>Leveraging Cookiebot Technology for Improved Website Personalization and Retargeting</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/neil-murphy-lead-revenue-strategist-at-abbyy/"><u>Neil Murphy: Lead Revenue Strategist at ABBYY</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/new-strategic-alliance-abbyy-joins-forces-with-lifeboat-distribution-for-north-american-market-expansion/"><u>New Strategic Alliance: ABBYY Joins Forces with Lifeboat Distribution for North American Market Expansion</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/next-gen-banking-masterclass-on-digital-transformation-and-process-automation/"><u>Next-Gen Banking: Masterclass on Digital Transformation and Process Automation</u></a></li>
+<li><a href="https://os-tips.techidaily.com/rejuvenate-your-ipads-performance-rediscover-peak-functionality-today/"><u>Rejuvenate Your iPad's Performance: Rediscover Peak Functionality Today</u></a></li>
+<li><a href="https://fox-links.techidaily.com/startling-audience-with-compelling-intros/"><u>Startling Audience with Compelling Intros</u></a></li>
+<li><a href="https://win-dash.techidaily.com/swift-download-of-microsofts-ergonomic-keyboard-v4000-driver-software/"><u>Swift Download of Microsoft's Ergonomic Keyboard v4000 Driver Software</u></a></li>
 </ul></div>
 
