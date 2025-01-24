@@ -1,7 +1,7 @@
 ---
 title: Resetting Windows 10 - A Complete Tutorial for Returning to Out-of-Box Experience (OOBE)
-date: 2025-01-12T02:14:26.967Z
-updated: 2025-01-18T04:10:44.034Z
+date: 2025-01-22T19:08:29.252Z
+updated: 2025-01-23T21:13:57.053Z
 categories:
   - AOMEI-Backuper
 thumbnail: https://thmb.techidaily.com/8f0f7ad73a0fa3da9b0369f5be30ef87f2772c066879ac12a1f0a0dafbb254a9.png
@@ -46,7 +46,7 @@ NAS Buffalo est la solution idéale pour la protection des données et peut faci
 Ne vous inquiétez pas trop. Vous pouvez envisager d'utiliser un logiciel de sauvegarde NAS tiers pour vous aider. [AOMEI Backupper Standard](https://tools.techidaily.com/ubackup/products/) est un excellent choix en raison de sa grande compatibilité (prise en charge de Windows 7/8/10/11/XP/Vista), de sa gratuité, de sa facilité d'utilisation, de sa flexibilité et de ses fonctionnalités riches.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Avantages du logiciel de sauvegarde NAS Buffalo - AOMEI Backupper Standard
@@ -65,17 +65,9 @@ Toutes les opérations s'effectuent dans une interface intuitive, ce qui permet 
 
 ![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-logo-ab-32.svg)AOMEI Backupper
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Meilleur logiciel de sauvegarde Windows gratuit pour usage personnel.
 
 [**Télécharger gratuiciel** Windows 11/10/8.1/8/7](https://tools.techidaily.com/ubackup/products/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Comment utiliser le logiciel de sauvegarde NAS Buffalo pour Windows pour sauvegarder des fichiers
 
@@ -85,10 +77,6 @@ Avant de commencer à sauvegarder des fichiers avec le logiciel de sauvegarde NA
 
 [![sauvegarde de fichiers](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/sauvegarde-fichier/sauvegarde-de-fichiers.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Vous pouvez également choisir _Sauvegarde de disque_ et _Sauvegarde de partition_. Si vous souhaitez sauvegarder le système sur le NAS Buffalo, essayez la fonctionnalité de [Sauvegarde système](https://tools.techidaily.com/ubackup/products/).
 
 **Étape 2.** Sélectionnez les fichiers ou les dossiers sur le lecteur NAS Buffalo.
@@ -96,6 +84,10 @@ Vous pouvez également choisir _Sauvegarde de disque_ et _Sauvegarde de partitio
 Tout d'abord, cliquez sur **Ajouter un dossier** ou **Ajouter un fichier** sur la page principale de sauvegarde de fichiers.
 
 [![ajouter un fichier ou un dossier](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/sauvegarde-fichier/ajouter-dossier-fichier.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Cliquez sur **Share/NAS** pour ouvrir la fenêtre suivante.
 
@@ -114,7 +106,7 @@ Ensuite, cliquez sur **Ajouter un périphérique Share ou NAS**, saisissez le no
 [![mode planifier](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/mode-planifier.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Par défaut, ce logiciel créera une sauvegarde complète et 6 sauvegardes incrémentielles si vous définissez une tâche de sauvegarde planifiée. Cela peut entraîner un problème d'espace disque plein à long terme, il est donc recommandé d'activer le [Plan de sauvegarde](https://tools.techidaily.com/ubackup/products/) et de supprimer automatiquement les fichiers de sauvegarde. Pour profiter de ces fonctions, passez à l'édition [Professional](https://tools.techidaily.com/ubackup/products/).
@@ -124,6 +116,10 @@ Et la sauvegarde incrémentielle nécessite une récupération plus complexe tan
 De plus, vous pouvez activer la notification par e-mail une fois la tâche terminée. Commenter, fractionner, compresser l'image de sauvegarde ou sélectionner un mode de sauvegarde, etc.
 
 [![options](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/options-sauvegarder/sauvegarde-options.png "AOMEI Email SMS Notification Settings")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Dernières réflexions sur l'utilitaire de sauvegarde Buffalo
 
@@ -141,13 +137,13 @@ Les informations fournies sont-elles utiles ? Votre vote compte beaucoup pour no
 
 ![Aurore](https://www.ubackup.com/assets/images/author/aurore.png) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 [Aurore](https://tools.techidaily.com/ubackup/products/) · Éditeur
 
 Éditrice senior d'AOMEI Technology qui rédige principalement des articles sur la sauvegarde, la synchronisation, le clonage et la restauration de l'ordinateur, tout dans le but de proposer des solutions simples aux utilisateurs pour protéger les données de leur ordinateur. Grâce à ses expertises informatiques, elle propose souvent des astuces très utiles.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Autres articles connexes
 
@@ -178,10 +174,14 @@ Protégez toutes les données de votre ordinateur avec la sauvegarde, la synchro
 ![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-secure-16.svg) 100% Propre & Sûr
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-medium-img-pc@2x.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -198,22 +198,24 @@ Protégez toutes les données de votre ordinateur avec la sauvegarde, la synchro
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-capture-and-save-fb-videos-on-windows-mac/"><u>[New] 2024 Approved Capture and Save FB Videos on Windows, Mac</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-enhancing-communication-strategies-for-effective-call-logging/"><u>[New] Enhancing Communication Strategies for Effective Call Logging</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-megasecond-analysis-understanding-20mb-video-time-for-2024/"><u>[New] MegaSecond Analysis Understanding 20Mb Video Time for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-ultimate-durecorder-handbook-insights-and-evaluation/"><u>[Updated] Ultimate DuRecorder Handbook Insights & Evaluation</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/1-how-to-easily-back-up-your-computer-data-to-a-free-netgear-readynas-a-step-by-step-guide/"><u>1. How to Easily Back Up Your Computer Data to a Free NetGear ReadyNAS: A Step-by-Step Guide</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/3-effektive-vorgehensweisen-zum-klonen-von-windows-10-auf-einem-bootfahigen-usb-stick/"><u>3 Effektive Vorgehensweisen Zum Klonen Von Windows 10 Auf Einem Bootfähigen USB-Stick</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/windows-server-201n/"><u>三大辦法提升Windows Server 201N系統檔案共享速度</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/aomei-backupper-e-aomei-cloud-soluzioni-di-backup-avanzate-per-windows-server/"><u>AOMEI Backupper E AOMEI Cloud: Soluzioni Di Backup Avanzate per Windows Server</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/de-beste-2-methoden-om-schijfdeelname-in-windows-10-te-verwerken/"><u>De Beste 2 Methoden Om Schijfdeelname in Windows 10 Te Verwerken</u></a></li>
-<li><a href="https://howto.techidaily.com/fix-app-not-available-in-your-country-play-store-problem-on-tecno-phantom-v-flip-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix App Not Available in Your Country Play Store Problem on Tecno Phantom V Flip | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-music-from-realme-12-5g-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Music from Realme 12 5G to iPod | Dr.fone</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/lesen-sie-wie-man-ps4-spielstande-und-profile-einfach-von-der-konsole-in-den-computer-importieren-kann-ein-umfassender-leitfaden-von-myrecover/"><u>Lesen Sie, Wie Man PS4 Spielstände Und Profile Einfach Von Der Konsole in Den Computer Importieren Kann – Ein Umfassender Leitfaden Von MyRecover</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/overcoming-multiple-copies-how-to-remove-redundant-pictures-from-your-ipad-after-updating/"><u>Overcoming Multiple Copies: How to Remove Redundant Pictures From Your iPad After Updating</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/panduan-mengenai-restorasi-data-dari-penyimpanan-jenis-toshiba-canvio/"><u>Panduan Mengenai Restorasi Data Dari Penyimpanan Jenis Toshiba Canvio</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/security-audit-are-there-gaps-in-chatgpt/"><u>Security Audit: Are There Gaps in ChatGPT?</u></a></li>
-<li><a href="https://techidaily.com/video-fixer-software-for-all-corrupt-videos-of-xiaomi-14-pro-by-stellar-video-repair-mobile-video-repair/"><u>Video Fixer Software for all Corrupt Videos of Xiaomi 14 Pro</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/1716454355849-watch-9-free-full-length-christmas-movies-on-youtube/"><u>Watch 9 Free Full Length Christmas Movies On Youtube</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-secret-story-gazers-manual-for-discreet-instagram-stories-on-desktopmobile/"><u>[New] 2024 Approved Secret Story Gazer's Manual for Discreet Instagram Stories on Desktop/Mobile</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-unveiling-the-powerhouse-techniques-in-facebooks-360-streaming/"><u>[New] In 2024, Unveiling the Powerhouse Techniques in Facebook's 360 Streaming</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-ultimate-guide-to-digitizing-and-saving-faded-frames/"><u>[New] The Ultimate Guide to Digitizing and Saving Faded Frames</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-things-about-asmr-video-you-should-know/"><u>[New] Things About ASMR Video You Should Know</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-from-download-to-usage-setting-up-obs-on-a-mac/"><u>2024 Approved From Download to Usage Setting Up OBS on a Mac</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/aktualisierung-ihrer-alten-festplatte-schritt-fur-schritt-anleitung-zum-ausschneiden-und-einfugen-von-daten/"><u>Aktualisierung Ihrer Alten Festplatte: Schritt-Für-Schritt-Anleitung Zum Ausschneiden Und Einfügen Von Daten</u></a></li>
+<li><a href="https://common-error.techidaily.com/1723208133743-errtoomanyredirects-clear-it-up-in-minutes-with-these-tips/"><u>ERR_TOO_MANY_REDIRECTS? Clear It Up in Minutes with These Tips!</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/guia-paso-a-paso-para-la-clonacion-libre-de-discos-seagate-mover-contenido-de-disco-duro-a-un-nuevo-estado-solido/"><u>Guía Paso a Paso Para La Clonación Libre De Discos Seagate: Mover Contenido De Disco Duro a Un Nuevo Estado Sólido</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/guida-passo-passo-al-recupero-dei-dati-con-cmd-tre-metodi-per-riprendere-le-informazioni-dalla-tua-unita-usb-esterna/"><u>Guida Passo-Passo Al Recupero Dei Dati Con CMD: Tre Metodi per Riprendere Le Informazioni Dalla Tua Unità USB Esterna</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-mobile-image-mastery-with-top-10-stickers-for-appleandroid-users/"><u>In 2024, Mobile Image Mastery with Top 10 Stickers for Apple/Android Users</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/introducing-chatgpt-your-android-conversation-hub/"><u>Introducing ChatGPT: Your Android Conversation Hub</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/le-meilleur-programme-de-duplication-des-donnees-pour-hdd-vers-ssdhdd-guide-complet/"><u>Le Meilleur Programme De Duplication Des Données Pour HDD Vers SSD/HDD : Guide Complet</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/problembehebung-bei-der-apple-id-authentifizierungsfehler/"><u>Problembehebung Bei Der Apple ID Authentifizierungsfehler</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/seeking-windows-7-updates-obstructed-by-system-update-hurdle/"><u>Seeking Windows 7 Updates Obstructed by System-Update Hurdle</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/unable-to-locate-webpage-understanding-the-404-error/"><u>Unable to Locate Webpage: Understanding the 404 Error</u></a></li>
+<li><a href="https://media-tips.techidaily.com/unlock-full-performance-set-up-5kplayers-hardware-decoding-in-windows-10/"><u>Unlock Full Performance: Set Up 5KPlayer's Hardware Decoding in Windows 10</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/verbesserung-ihrer-systemleistung-mit-windows-11-die-acht-wichtigsten-methoden-erklart/"><u>Verbesserung Ihrer Systemleistung Mit Windows ˈ11 - Die Acht Wichtigsten Methoden Erklärt!</u></a></li>
+<li><a href="https://techidaily.com/why-cant-i-play-mp4-files-on-my-redmi-note-12-5g-by-aiseesoft-video-converter-play-mp4-on-android/"><u>Why can’t I play MP4 files on my Redmi Note 12 5G?</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1728492251924-windows-10/"><u>Windows 10のバックアップ作業中にエラー発生:迅速な対処法</u></a></li>
 </ul></div>
 
