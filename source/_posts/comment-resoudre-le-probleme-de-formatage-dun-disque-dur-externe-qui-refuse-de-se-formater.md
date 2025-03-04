@@ -1,7 +1,7 @@
 ---
 title: Comment Résoudre Le Problème De Formatage D'un Disque Dur Externe Qui Refuse De Se Formater
-date: 2025-02-09T00:27:34.760Z
-updated: 2025-02-12T19:08:18.847Z
+date: 2025-02-28T22:49:32.593Z
+updated: 2025-03-04T05:41:54.771Z
 categories:
   - AOMEI-Backuper
 thumbnail: https://thmb.techidaily.com/8a7c2713a5a85ee94384e3a403324debf1e357fa3f2637bf212870351e0edf0f.jpg
@@ -35,10 +35,6 @@ Partager sur : ![facebook](https://www.ubackup.com/resource/images/ab-theme/ub-a
 3. [Comment utiliser le logiciel de sauvegarde NAS Buffalo pour Windows pour sauvegarder des fichiers](https://tools.techidaily.com/ubackup/products/)
 4. [Dernières réflexions sur l'utilitaire de sauvegarde Buffalo](https://tools.techidaily.com/ubackup/products/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Logiciel de sauvegarde NAS Buffalo pour système Windows
 
 NAS Buffalo est la solution idéale pour la protection des données et peut facilement éviter les défaillances informatiques causées par une attaque de virus, un plantage système, une corruption de disque, etc. Cependant, il peut également se bloquer et entraîner une perte de données dans ces situations. Vous ne souhaitez probablement pas perdre vos données, il est donc judicieux de sauvegarder votre NAS Buffalo sur un disque dur externe, une clé USB ou d'autres périphériques.
@@ -48,10 +44,6 @@ NAS Buffalo est la solution idéale pour la protection des données et peut faci
 [![buffalo](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/others/image/nas-buffalo.png)
 
 Ne vous inquiétez pas trop. Vous pouvez envisager d'utiliser un logiciel de sauvegarde NAS tiers pour vous aider. [AOMEI Backupper Standard](https://tools.techidaily.com/ubackup/products/) est un excellent choix en raison de sa grande compatibilité (prise en charge de Windows 7/8/10/11/XP/Vista), de sa gratuité, de sa facilité d'utilisation, de sa flexibilité et de ses fonctionnalités riches.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Avantages du logiciel de sauvegarde NAS Buffalo - AOMEI Backupper Standard
 
@@ -93,17 +85,9 @@ Cliquez sur **Share/NAS** pour ouvrir la fenêtre suivante.
 
 [![share/nas](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/sauvegarde-fichier/ouvrir.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Ensuite, cliquez sur **Ajouter un périphérique Share ou NAS**, saisissez le nom d'affichage, l'adresse IP, le nom d'utilisateur et le mot de passe pour connecter votre espace de stockage NAS Buffalo. Double-cliquez ensuite dessus dans le volet de gauche et sélectionnez ce que vous souhaitez sauvegarder dans la liste de droite.
 
 [![ajouter périphérique share ou nas](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/sauvegarde-fichier/emplacement-reseau.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Étape 3.** Cliquez là où la flèche pointe et sélectionnez le disque externe préparé comme destination.
 
@@ -137,10 +121,6 @@ Les informations fournies sont-elles utiles ? Votre vote compte beaucoup pour no
 
 ![Aurore](https://www.ubackup.com/assets/images/author/aurore.png) 
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 [Aurore](https://tools.techidaily.com/ubackup/products/) · Éditeur
 
 Éditrice senior d'AOMEI Technology qui rédige principalement des articles sur la sauvegarde, la synchronisation, le clonage et la restauration de l'ordinateur, tout dans le but de proposer des solutions simples aux utilisateurs pour protéger les données de leur ordinateur. Grâce à ses expertises informatiques, elle propose souvent des astuces très utiles.
@@ -173,15 +153,7 @@ Protégez toutes les données de votre ordinateur avec la sauvegarde, la synchro
 
 ![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-secure-16.svg) 100% Propre & Sûr
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-medium-img-pc@2x.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -198,20 +170,16 @@ Protégez toutes les données de votre ordinateur avec la sauvegarde, la synchro
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-completely-erase-your-connection-with-youtube-shorts/"><u>[New] In 2024, Completely Erase Your Connection with YouTube Shorts</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-initiate-insight-an-entryway-guide-to-online-product-critique-channels/"><u>[New] Initiate Insight An Entryway Guide to Online Product Critique Channels</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-precision-craftsmanship-building-exquisite-circle-sphere-objects-for-2024/"><u>[New] Precision Craftsmanship Building Exquisite Circle, Sphere Objects for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-quick-guide-to-mp3-from-instagram-videos/"><u>[Updated] 2024 Approved Quick Guide to MP3 From Instagram Videos</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-who-holds-sway-over-youtube-subscribers/"><u>[Updated] Who Holds Sway Over YouTube Subscribers?</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-fix-the-invisible-fb-watch-video-icon-restored/"><u>2024 Approved Fix the Invisible FB Watch Video Icon, Restored</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/1728461471606-windows-11/"><u>失敗したWindows 11のバックアップを修正する簡単な手順：最新のテクニック</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-hidefake-snapchat-location-on-your-nokia-c12-plus-drfone-by-drfone-virtual-android/"><u>How to Hide/Fake Snapchat Location on Your Nokia C12 Plus | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-my-oppo-a59-5g-location-is-wrong-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix My Oppo A59 5G Location Is Wrong | Dr.fone</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/prevenir-eliminacion-automatica-en-microsoft-onedrive-soluciones-efectivas-para-archivos-y-documentos/"><u>Prevenir Eliminación Automática en Microsoft OneDrive: Soluciones Efectivas Para Archivos Y Documentos</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/resepsi-tiga-terbaik-untuk-restorasi-gambar-yang-hamil-pada-komputer-lcd-dell/"><u>Resepsi Tiga Terbaik Untuk Restorasi Gambar Yang Hamil Pada Komputer LCD Dell</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/revive-your-forgotten-tv-episodes-a-simple-trick-to-recover-deleted-dish-network-recordings/"><u>Revive Your Forgotten TV Episodes: A Simple Trick to Recover Deleted Dish Network Recordings</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/safeguarding-investments-in-digital-coins-proactive-measures-against-cyber-theft-with-yl-software-expertise/"><u>Safeguarding Investments in Digital Coins: Proactive Measures Against Cyber Theft with YL Software Expertise</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/stunning-andromeda-series-hd-backgrounds-and-wallpapers-from-mass-effect-for-pc-created-by-yl-software-expertise/"><u>Stunning Andromeda Series HD Backgrounds & Wallpapers From Mass Effect for PC, Created by YL Software Expertise</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/transferir-archivos-de-mpeg-a-mp4-sin-coste-guia-paso-a-paso-para-windows-y-mac/"><u>Transferir Archivos De MPEG a MP4 Sin Coste: Guía Paso a Paso Para Windows Y Mac</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-celebrating-artistry-top-20-anime-melodies/"><u>[New] Celebrating Artistry Top 20 Anime Melodies</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-the-role-and-design-of-instagram-story-segments/"><u>[New] In 2024, The Role and Design of Instagram Story Segments</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ne-arm-wonders-keeping-photos-steady-for-2024/"><u>[New] One Arm Wonders Keeping Photos Steady for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-googles-musical-sidekick-ringers-guide/"><u>[Updated] 2024 Approved Google's Musical Sidekick Ringers Guide</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/pc6/"><u>「PCから失われた画像を迅速に回復する6つのステップ」</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-ultimate-srt-insights-essential-facts-unveiled/"><u>2024 Approved Ultimate SRT Insights Essential Facts Unveiled</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/ai-bots-collide-who-will-outshine-gpt-plus-or-perplexity/"><u>AI Bots Collide: Who Will Outshine, GPT Plus Or Perplexity?</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/clone-your-c-drive-on-a-samsung-ssd-the-two-most-efficient-methods-revealed/"><u>Clone Your C Drive on a Samsung SSD: The Two Most Efficient Methods Revealed</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/how-to-resolve-the-problem-when-your-windows-server-backup-doesnt-start-as-planned/"><u>How to Resolve the Problem When Your Windows Server Backup Doesn’t Start as Planned</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/next-visit-the-manufacturers-website-and-download-the-latest-or-older-graphics-card-drivers-suitable-for-your-system-install-these-drivers-manually/"><u>Next, Visit the Manufacturer's Website and Download the Latest or Older Graphics Card Drivers Suitable for Your System. Install These Drivers Manually.</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/schnelles-kopieren-von-festplatten-auf-usbs-eine-einfache-anleitung-fur-den-pc/"><u>Schnelles Kopieren Von Festplatten Auf USBs: Eine Einfache Anleitung Für Den PC</u></a></li>
 </ul></div>
 
